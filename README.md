@@ -25,6 +25,8 @@
 
 ## Примеры 
 
+* [Death Metal альбомы](./output/style_deathmetal.md)
 * [Thrash альбомы](./output/style_thrash.md)
+
 * [Slayer](./output/band_slayer.md)
 * [Hypocrisy](./output/band_hipocisy.md)
