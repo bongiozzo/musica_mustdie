@@ -252,6 +252,1168 @@ The song describes part of the Kalevala story, the national epic of Finland.
 * C группой "Shaman (Finland)" Jonne
 * C группой "Falchion" 
 
+## Публикации
+
+### 24.09.2003 news New finnish folk-metal
+
+KORPIKLAANI, or "Woods Clan" in its translated form, is one of NAPALM RECS' latest signings. The band describes its music as a combination of old Finnish folk melodies and the powerful sound and attitude of metal. KORPIKLAANI may make avid use of traditional Finnish instruments, yet their way of approaching folk metal is without a doubt unique, even in Finland! Expect KORPIKLAANI's debut, Spirit of the Forest on 10 November.
+Автор: Morsus
+
+### 24.09.2003 news Ещё один финский фолк-метал
+
+KORPIKLAANI, в переводе на русский "Лесное Братство", - одно из последних приобретений Napalm Records.  Молодая команда, прежде выступавшая под именем Shaman, исполняет музыку на стыке старинных финских народных мелодий и мощного саунда. Хотя в Финляндии достаточно групп, играющих фолк-метал, KORPIKLAANI без сомнения займут свою нишу. Дебютный альбом "Spirit of the Forest" выходит 10 ноября.
+Автор: Morsus
+
+### 02.01.2004 articles TOP-50 продаж лицензионных компакт-дисков за декабрь 2003 года
+
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=678 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="51%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>KORPIKLAANI</B></TD>
+<TD align=middle width="51%" height=17><B>SPIRIT OF THE FOREST</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B></TD>
+<TD align=middle width="29%" height=17><B>FALKENBACH</B></TD>
+<TD align=middle width="51%" height=17><B>OR NEFNA TYSVAR TY</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="51%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>CRYSTAL BALL</B></TD>
+<TD align=middle width="51%" height=17><B>HELLVETIA</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>6 (Re)</B></TD>
+<TD align=middle width="29%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="51%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DEATHSTARS</B></TD>
+<TD align=middle width="51%" height=17><B>SYNHETIC GENERATION +2 bonus tracks</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="51%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>A C T</B></TD>
+<TD align=middle width="51%" height=17><B>IMAGINARY FRIENDS</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="29%" height=17><B>FIREWIND</B></TD>
+<TD align=middle width="51%" height=17><B>BURNING EARTH</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="51%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (1)</TD>
+<TD align=middle width="29%" height=17>KING DIAMOND</TD>
+<TD align=middle width="51%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>CATHARSIS</TD>
+<TD align=middle width="51%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>MAJESTY</TD>
+<TD align=middle width="51%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (2)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>PENUMBRA</TD>
+<TD align=middle width="51%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>17 (23)</TD>
+<TD align=middle width="29%" height=17>CHARON</TD>
+<TD align=middle width="51%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NEST</TD>
+<TD align=middle width="51%" height=17>WOODSMOKE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THEATRES DES VAMPIRES</TD>
+<TD align=middle width="51%" height=17>SUICIDE VAMPIRE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TVANGESTE</TD>
+<TD align=middle width="51%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (30)</TD>
+<TD align=middle width="29%" height=17>HELLOWEEN</TD>
+<TD align=middle width="51%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>22 (18)</TD>
+<TD align=middle width="29%" height=17>GRAVEWORM</TD>
+<TD align=middle width="51%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (3)</TD>
+<TD align=middle width="29%" height=17>CORNERSTONE</TD>
+<TD align=middle width="51%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>24 (14)</TD>
+<TD align=middle width="29%" height=17>MONSTERS OF METAL</TD>
+<TD align=middle width="51%" height=17>METAL COMPILATION (2 DVD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>WOLFSHEIM</TD>
+<TD align=middle width="51%" height=17>CASTING SHADOWS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DARK LUNACY</TD>
+<TD align=middle width="51%" height=17>DEVOID</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>27 (Re)</TD>
+<TD align=middle width="29%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=middle width="51%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (4)</TD>
+<TD align=middle width="29%" height=17>REBELLION</TD>
+<TD align=middle width="51%" height=17>BORN A REBEL</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Moving Target" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>VOICE</TD>
+<TD align=middle width="51%" height=17>SOULHUNTER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>31 (49)</TD>
+<TD align=middle width="29%" height=17>ANTIMATTER</TD>
+<TD align=middle width="51%" height=17>LIGHTS OUT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="51%" height=17>"Fear" LTD DIGI</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DUKE</TD>
+<TD align=middle width="51%" height=17>ESCAPE FROM REALITY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (Re)</TD>
+<TD align=middle width="29%" height=17>AVULSED</TD>
+<TD align=middle width="51%" height=17>YEARNING FOR THE GROTESQUE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TNT</TD>
+<TD align=middle width="51%" height=17>TRANSISTOR</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>ZERAPHINE</TD>
+<TD align=middle width="51%" height=17>KALTE SONNE</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SUPREME MAJESTY</TD>
+<TD align=middle width="51%" height=17>DANGER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THUNDERBOLT</TD>
+<TD align=middle width="51%" height=17>DEMONS AND DIAMONDS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>KNORKATOR</TD>
+<TD align=middle width="51%" height=17>ICH HASSE MUSIK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BARILARI</TD>
+<TD align=middle width="51%" height=17>BARILARI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>THE WAKE</TD>
+<TD align=middle width="51%" height=17>ODE TO MY MISERY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>DIMENSION ZERO</TD>
+<TD align=middle width="51%" height=17>SILENT NIGHT FEVER</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>NIGHTMARE</TD>
+<TD align=middle width="51%" height=17>SILENT ROOM multimedia bonus</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (Re)</TD>
+<TD align=middle width="29%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="51%" height=17>ELEMENTS PART I</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (9)</TD>
+<TD align=middle width="29%" height=17>MELOTRON</TD>
+<TD align=middle width="51%" height=17>STERNENSTAUB</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>46 (10)</TD>
+<TD align=middle width="29%" height=17>FALCONER</TD>
+<TD align=middle width="51%" height=17>SCEPTRE OF DECEPTION</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="29%" height=17>ALTARIA</TD>
+<TD align=middle width="51%" height=17>INVITATION</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>BURNING RAIN</TD>
+<TD align=middle width="51%" height=17>BURNING RAIN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>TOKEN</TD>
+<TD align=middle width="51%" height=17>TOMORROWLAND</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="29%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="51%" height=17>SEVEN WISHES</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE></P>
+<P>В нашем хит-параде, как всегда произошли немалые изменения. Даже невооружённым взглядом видно, что некоторые производители наверстали упущенное и сделали рывок вперёд, а некоторые откатились назад. Декабрь – предпраздничный месяц, объёмы продаж растут, и в TOP-50 не остаётся места слабым позициям.</P>
+<P>Последний месяц 2003 года – стал месяцем Irond records. Скажу честно, отказ от производства новинок за 2 недели до Нового года, многими (в том числе и мной) был воспринят настороженно. Но этот ход идеально оправдал себя. Первые 7 мест за Irond, 6 же новинки, вышедшие в первые две недели декабря. Кроме этого ещё 13 позиций, 9 из который в первых 30. Отличный результат, который не оставил шанса другим конторам, а Irond может смело отмечать удачное окончание года.</P>
+<P>Чтобы суметь отметить менее явственные скачки, предлагаю ввести два критерия: количество альбомов в списке и их качество. Последнее найдём через среднее арифметическое всех мест, занимаемых позициями этого лэйбла. Редко кому удаётся заметно увеличить и тот, и тот фактор. Для сравнения мною были высчитаны цифры для ноября и декабря. Начнём с Irond. Здесь, как я уже говорил, всё видно, но отметим, что при таком же количестве позиций – 20, коэффициент места упал с 25,45 до 18,2. Это означает, что альбомы от этого лэйбла поднялись на семь пунктов. У остальных всё не так хорошо. Положительная динамика только у CD-Maximum, да и то их цифры в этом месяце – 12 позиций и среднее 29,6, не идут ни в какое сравнение. После отличного ноября Art-Music увеличили производство и в качественном отношении сильно подсели 27,5 вместо 8, а в количественном выросли 13 вместо 6. Fono упало и теперь проигрывает CD-Maximum не только количественно, но и качественно (4 и 36). Ну, и совсем плохи дела у Soyuz Music (1 и 45). Единственной их позицией в списке является MELOTRON, да и тот на 45 месте. Надо что-то делать! Не всегда удастся составить рейтинг лэйблов, но в этом месяце он ясен. Лидер – Irond, далее Art-Music, затем CD-MAXIMUM, Fono, а замыкает список Soyuz.</P>
+<P>Обратимся к наполнению нашего TOP-50. Здесь у нас позор для всех металлистов. Лидер – SAMSAS TRAUM. Готическая опера, оказалась милее покупателям, чем любой альбом “с гитарами”. Далее следуют фольклор от KORPIKLAANI (бывший SHAMAN, который уже занимал в нашем рейтинге высокие места), pagan от FALKENBACH, великолепный gothic-doom-metal от DRACONIAN и hard-rock от CRYSTAL BALL. Вот такая пятёрка – и всего один альбом от NUCLEAR BLAST, но в эти дебри мы не полезем. Как я и предполагал, DIMMU BORGIR вернулись и сразу на шестое место. В первой десятке также progressive от ACT и power-metal от DARK MOOR и FIREWIND. Представлены все стили кроме death, к чему мы привыкли.</P>
+<P>Вторую десятку открывает трибьют ABBA 2001 года выпуска, великолепно подобрана дата релиза в России. Несмотря на громадное количество пиратских копий в прошлом, отличные продажи. Лидер прошлого месяца KING DIAMOND держится довольно высоко, это относится и к STRATOVARIUS, занимавшему второе место. Первая русская группа находится на 13 месте – это переиздание 2 в 1 альбомов CATHARSIS. Вторым представителем России является TVANGESTE, замыкающий 20-ку. Поаплодируем двум долгожителям нашего рейтинга HELLOWEEN и GRAVEWORM. С самого начала – с июля – они продолжают оставаться фаворитами у слушателей.</P>
+<P>В этом году мы не будем подводить подсчёт итогов, так как нет данных за первую его половину, но в следующем 2004 году, мы с апломбом их подсчитаем. С наступившем Вас, и спасибо, что посещаете наш сайт!!!</P>
+Автор: Vit Belov
+
+### 02.01.2004 news SAMSAS TRAUM - первый в декабре
+
+<P><B>SAMSAS TRAUM </B>со своим новейшим альбомом <B><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></B>, в лицензионной версии <B>IROND</B>, заняли первое место по продажам в ТВЦ "Рубин" в магазине B2-100 'Metal&Progressive'. С солидным отрывом отстали&nbsp;<B>KORPIKLAANI&nbsp;(Irond)</B> и&nbsp;ещё одна новинка от <B>Irond-&nbsp;FALKENBACH</B>'. В первую десятку вошли:</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=2 width=610 border=0>
+<TBODY>
+<TR>
+<TD width="33%" height=17><B>
+<P align="center">SAMSAS TRAUM</B></P></TD>
+<TD width="56%" height=17><B>
+<P align="center">TINEOIDEA ODER DIE FOLGEN EINER NACHT </B></P></TD>
+<TD width="11%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="33%" height=17><B>
+<P align="center">KORPIKLAANI</B></P></TD>
+<TD width="56%" height=17><B>
+<P align="center">SPIRIT OF THE FOREST</B></P></TD>
+<TD width="11%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="33%" height=17><B>
+<P align="center">FALKENBACH</B></P></TD>
+<TD width="56%" height=17><B>
+<P align="center">OR NEFNA TYSVAR TY</B></P></TD>
+<TD width="11%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="33%" height=17><B>
+<P align="center">DRACONIAN</B></P></TD>
+<TD width="56%" height=17><B>
+<P align="center">WHERE LOVESS MOURN</B></P></TD>
+<TD width="11%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="33%" height=17><B>
+<P align="center">CRYSTAL BALL</B></P></TD>
+<TD width="56%" height=17><B>
+<P align="center">HELLVETIA</B></P></TD>
+<TD width="11%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="33%" height=17><B>
+<P align="center">DIMMU BORGIR</B></P></TD>
+<TD width="56%" height=17><B>
+<P align="center">DEATH CULT ARMAGEDDON +1 bonus track</B></P></TD>
+<TD width="11%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="33%" height=17><B>
+<P align="center">DEATHSTARS</B></P></TD>
+<TD width="56%" height=17><B>
+<P align="center">SYNHETIC GENERATION +2 bonus tracks</B></P></TD>
+<TD width="11%" height=17><B>
+<P align="center">Irond</B></P></TD></TR>
+<TR>
+<TD width="33%" height=17><B>
+<P align="center">DARK MOOR</B></P></TD>
+<TD width="56%" height=17><B>
+<P align="center">DARK MOOR</B></P></TD>
+<TD width="11%" height=17><B>
+<P align="center">CD-MAX</B></P></TD></TR>
+<TR>
+<TD width="33%" height=17><B>
+<P align="center">A C T</B></P></TD>
+<TD width="56%" height=17><B>
+<P align="center">IMAGINARY FRIENDS</B></P></TD>
+<TD width="11%" height=17><B>
+<P align="center">CD-MAX</B></P></TD></TR>
+<TR>
+<TD width="33%" height=17><B>
+<P align="center">FIREWIND</B></P></TD>
+<TD width="56%" height=17><B>
+<P align="center">BURNING EARTH</B></P></TD>
+<TD width="11%" height=17><B>
+<P align="center">AMG</B></P></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 04.01.2004 reviews Финский folk-metal, и этим всё сказано
+
+Неизвестно, какая группа внесла больший вклад в развитие финского folk-metal. :))) Нас с вами не очень волнует развитие национальной финской музыки? Нас гораздо больше интересует её металлическая состовляюшая. <B>KORPIKLAANI</B> - это бывший финский <B>SHAMAN</B>, который был переименован, то ли из-за наличия бразильского коллектива с таким названием, то ли из-за некой смены стиля. Вернее поменялся не стиль, а способ подачи. Финский язык был заменён на английский, в чистые народные мелодии были добавлены "роковые" мотивы, и получился альбом, который можно смело назвать облегченной версией <B>FINNTROLL</B>.&nbsp;Чтобы было понятнее,&nbsp;заберите из <B>'Jaktens Tid'</B> (кстати, лидер <B>KORPIKLAANI Jonne</B>&nbsp;участвовал в его записи) все тяжёлые моменты и увеличьте количество танцевальных мелодий. По идее подобное творчество должно пользоваться масштабным успехом, оно им будет пользоваться. Я думаю, что группе вполне реально обогнать по продажам последние работы <B>FINNTROLL</B>, вот только каков будет вклад в развитие финского folk-METAL?&nbsp;Но нас это не волнует, как я уже сообщал выше... Хороший диск.
+Автор: Vit Belov
+
+### 08.02.2004 articles TOP-50 продаж лицензионных компакт-дисков за январь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=662 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>МАВРИН, СЕРГЕЙ</B></TD>
+<TD align=middle width="44%" height=17><B>ЗАПРЕЩЁННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ICED EARTH</B></TD>
+<TD align=middle width="44%" height=17><B>GLORIOUS BURDEN</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ANDRE ANDERSEN</B></TD>
+<TD align=middle width="44%" height=17><B>OCEANVIEW</B></TD>
+<TD align=middle width="10%" height=17><B>AMG</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>POVERTY's NO CRIME</B></TD>
+<TD align=middle width="44%" height=17><B>ThHE CHEMICAL CHAOS</B></TD>
+<TD align=middle width="10%" height=17><B>Soyuz</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>5 (1)</B></TD>
+<TD align=middle width="35%" height=17><B>SAMSAS TRAUM</B></TD>
+<TD align=middle width="44%" height=17><B>TINEOIDEA ODER DIE FOLGEN EINER NACHT</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>DREAMTALE</B></TD>
+<TD align=middle width="44%" height=17><B>OCEAN'S HEART</B></TD>
+<TD align=middle width="10%" height=17><B>Fono</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>ZYKLON (ex-EMPEROR)</B></TD>
+<TD align=middle width="44%" height=17><B>AEON</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="35%" height=17><B>VHALDEMAR</B></TD>
+<TD align=middle width="44%" height=17><B>I MADE MY OWN HELL</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>9 (8)</B></TD>
+<TD align=middle width="35%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="44%" height=17><B>DARK MOOR</B></TD>
+<TD align=middle width="10%" height=17><B>CD-MAX</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17><B>10 (4)</B></TD>
+<TD align=middle width="35%" height=17><B>DRACONIAN</B></TD>
+<TD align=middle width="44%" height=17><B>WHERE LOVESS MOURN</B></TD>
+<TD align=middle width="10%" height=17><B>Irond</B></TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>11 (20)</TD>
+<TD align=middle width="35%" height=17>TVANGESTE</TD>
+<TD align=middle width="44%" height=17>FIRESTORM</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>12 (14)</TD>
+<TD align=middle width="35%" height=17>MAJESTY</TD>
+<TD align=middle width="44%" height=17>REIGN IN GLORY</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>13 (23)</TD>
+<TD align=middle width="35%" height=17>CORNERSTONE</TD>
+<TD align=middle width="44%" height=17>ONCE UPON OUR YESTERDAYS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GUNN, TREY</TD>
+<TD align=middle width="44%" height=17>UNTUNE THE SKY</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>15 (7)</TD>
+<TD align=middle width="35%" height=17>DEATHSTARS</TD>
+<TD align=middle width="44%" height=17>SYNHETIC GENERATION</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>SPELLCRAFT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>MOONSORROW</TD>
+<TD align=middle width="44%" height=17>SUDEN UNI</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>18 (15)</TD>
+<TD align=middle width="35%" height=17>STRATOVARIUS</TD>
+<TD align=middle width="44%" height=17>ELEMENTS PART 2</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>19 (11)</TD>
+<TD align=middle width="35%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="44%" height=17>A TRIBUTE TO ABBA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>20(2)</TD>
+<TD align=middle width="35%" height=17>KORPIKLAANI</TD>
+<TD align=middle width="44%" height=17>SPIRIT OF THE FOREST</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>21 (16)</TD>
+<TD align=middle width="35%" height=17>PENUMBRA</TD>
+<TD align=middle width="44%" height=17>SECLUSION</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>TRANSATLANTIC</TD>
+<TD align=middle width="44%" height=17>LIVE IN EUROPE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>23 (12)</TD>
+<TD align=middle width="35%" height=17>KING DIAMOND</TD>
+<TD align=middle width="44%" height=17>THE PUPPET MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GOTHMINISTER</TD>
+<TD align=middle width="44%" height=17>GOTHIC ELECTRONIC MASTER</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>25 (3)</TD>
+<TD align=middle width="35%" height=17>FALKENBACH</TD>
+<TD align=middle width="44%" height=17>OR NEFNA TYSVAR TY</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>26 (21)</TD>
+<TD align=middle width="35%" height=17>HELLOWEEN</TD>
+<TD align=middle width="44%" height=17>RABBIT DON'T COME EASY </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>PANTHEIST</TD>
+<TD align=middle width="44%" height=17>O SOLITUDE</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>28 (22)</TD>
+<TD align=middle width="35%" height=17>GRAVEWORM</TD>
+<TD align=middle width="44%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>GIVE ME LIGHT</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EINHERJER</TD>
+<TD align=middle width="44%" height=17>BLOT</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SUMMONER</TD>
+<TD align=middle width="44%" height=17>WINTER SOLSTICE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>AXENSTAR</TD>
+<TD align=middle width="44%" height=17>FAR FROM HEAVEN</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>33 (6)</TD>
+<TD align=middle width="35%" height=17>DIMMU BORGIR</TD>
+<TD align=middle width="44%" height=17>DEATH CULT ARMAGEDDON </TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>34 (17)</TD>
+<TD align=middle width="35%" height=17>CHARON</TD>
+<TD align=middle width="44%" height=17>THE DYING DAYLIGHTS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>DARKSEED</TD>
+<TD align=middle width="44%" height=17>DIVING INTO DARKNESS</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>36(Re)</TD>
+<TD align=middle width="35%" height=17>NORTHER</TD>
+<TD align=middle width="44%" height=17>MIRROR OF MADNESS</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>37 (Re)</TD>
+<TD align=middle width="35%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="44%" height=17>EYE WITNESS</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>38 (Re)</TD>
+<TD align=middle width="35%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="44%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>39 (Re)</TD>
+<TD align=middle width="35%" height=17>NEGATIVE</TD>
+<TD align=middle width="44%" height=17>WAR OF LOVE</TD>
+<TD align=middle width="10%" height=17>Soyuz</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>40 (13)</TD>
+<TD align=middle width="35%" height=17>CATHARSIS</TD>
+<TD align=middle width="44%" height=17>DEA/FEBRIS EROTICA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>FASSADE / DER MORGEN DANACH (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>42 (Re)</TD>
+<TD align=middle width="35%" height=17>POISONBLACK</TD>
+<TD align=middle width="44%" height=17>EXCAPECSTASY</TD>
+<TD align=middle width="10%" height=17>Fono</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>GREEN CARNATION</TD>
+<TD align=middle width="44%" height=17>JOURNEY TO THE OF THE NIGHT</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>44 (5)</TD>
+<TD align=middle width="35%" height=17>CRYSTAL BALL</TD>
+<TD align=middle width="44%" height=17>HELLVETIA</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>45 (Re)</TD>
+<TD align=middle width="35%" height=17>STILLIFE</TD>
+<TD align=middle width="44%" height=17>REMEMBRANCE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>LACRIMOSA</TD>
+<TD align=middle width="44%" height=17>ECHOS / DURCH NACHT UND FLUT (2 CD)</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>47 (Re)</TD>
+<TD align=middle width="35%" height=17>DESTRUCTION</TD>
+<TD align=middle width="44%" height=17>METAL DISCHARGE</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD align=middle width="10%" height=17>48 (9)</TD>
+<TD align=middle width="35%" height=17>FIREWIND</TD>
+<TD align=middle width="44%" height=17>BURNING EARTH</TD>
+<TD align=middle width="10%" height=17>AMG</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>EISHEILIG</TD>
+<TD align=middle width="44%" height=17>DIE GARTEN DES HERRN</TD>
+<TD align=middle width="10%" height=17>Irond</TD></TR>
+<TR>
+<TD width="10%" height=17></TD>
+<TD align=middle width="35%" height=17>SHYLOCK</TD>
+<TD align=middle width="44%" height=17>PYRONIZED</TD>
+<TD align=middle width="10%" height=17>CD-MAX</TD></TR></TBODY></TABLE>
+<P>Ура!!! Первый раз в нашем рейтинге вперёд вышел русский альбом. Пускай, его лидерство весьма условно, и Сергею Маврину удалось обойти ICED EARTH только после многолюдной презентации в нашем магазине. Факт остаётся фактом! Он лидер продаж, который сумел воспользоваться теми плюсами, которые предоставляет ему происхождение. Любовь народа к АРИИ неискоренима. Первая десятка в этом месяце выглядит совсем демократично. Каждой фирме достался свой кусок пирога. Особо хочется выделить, фортепианный альбом Andre Andersen.&nbsp;Музыка, которая мало имеет в нашему рейтингу отношение всё равно продаётся, за счёт имени.</P>
+<P>Есть ещё одна особенность у этого пост-праздничного рейтинга. Поистратившись за каникулы, людям не хватает финансовых возможностей, да и фирмы не стремятся выпускать ничего сверхходового. За счёт этого, рекордной количество альбомов, сохранившихся в рейтинге и на следующий месяц. И такое же рекордно малое количество новинок, достойных внимания публики. По прежнему остаются в 50 GRAVEWORM и HELLOWEEN, при чём и тот, и другой, чувтвуют себя достаточно спокойно. </P>
+<P>Перейдём к анализу деятельноти наших фирм. Вышесказанное о затишье в работе в январе не&nbsp;относится к Soyuz. У него всё наоборот: декабрь затишье, январь - штурм. Всего пять&nbsp;новинок в рейтинге, зато каких!!! И&nbsp;коэффициент&nbsp;качества самый лучший из всех 16,2.&nbsp;Не рекорд, конечно же, но после&nbsp;отвратного декабря очень достойный шаг вперёд. Положительная динамика и у ещё одного аутсайдера прошлого месяца&nbsp; Fono&nbsp;(6 против 4, 27,5 против 36). Что ж, пожелаем им успеха в будущем, благо у них есть достойные контракты, чтобы выпускать достойные пластинки. А что же лидер прошлого месяца Irond? Они явно ослабили своё давление на рынок, но всё равно, по количеству позиций в TOP-50 они вне конкуренции (24!!!), качество же упало довольно существенно, но это только по сравнению с феноменальным декабрём (27,8 против 18,2). CD-MAXIMUM и Art-Music показали примерно равные результаты (8; 25,125 и 7; 22,85, соответственно). Но, это кажущееся сходство. Art-Music выпустили только три новинки (и то одно переиздание), а CD-MAXIMUM - 21 новинку!!! Результат одинаковый. Что ж, впереди по прежнему Irond, второе место Soyuz, затем Art-Music, CD-MAXIMUM и последние, несмотря на положительный баланс, Fono.</P>
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 31.03.2004 news Korpiklaano выступят в России
+
+Финская folk-metal группа<B> KORPIKLAANI</B> (бывший <B>SHAMAN</B>) выступит с концертом в России. Гиг состоится 17-18 сентября на фестивале "Карельские лица" в Петрозаводске.&nbsp;&nbsp;
+Автор: Vit Belov
+
+### 29.08.2004 news KORPIKLAANI работают над новым альбомом
+
+<P><STRONG>KORPIKLAANI</STRONG> закрепляют успех дебютного альбома и уже вовсю работают над следующей пластинкой "<STRONG>Voice of Wilderness</STRONG>". Девять новых песен, по словам фронтмена <STRONG>Jonne</STRONG>, придутся по вкусу как поклонникам финских "лесных братьев", так и вообще всем любителям фолк-металла. Альбом выйдет в конце 2004 или в начале 2005 года, точная дата пока ещё не объявлена.</P>
+Автор: Morsus
+
+### 29.11.2004 news KORPIKLAANI назначили дату
+
+Новый альбом<STRONG> KORPIKLAANI 'Voice Of Wilderness'</STRONG> выходит 24 января на <STRONG>Napalm Records</STRONG>.
+Автор: Vit Belov
+
+### 26.03.2005 reviews Безумства лесного клана
+
+<P>Уже второе творение финской команды смело разбавляющей heavy metal финской народной музыкой. Хотя, правильнее, будет сказать, что это уже их четвертая работа (первые две вышли под вывеской SHAMAN). Стопроцентно натуральный альбом, сыгранный только на живых инструментах, без использования синтезаторов и сэмплов. Зажигательная и бодрящая музыка с богатым инструментарием, симпатичными плясовыми мелодиями и берущая за душу своей непосредственностью. Если проводить аналогии с кем-то, то можно упомянуть такие коллективы, как FINNTROLL и ENSIFERUM. Но, несмотря на то, что все эти коллективы принадлежат к одному музыкальному стилю, их музыка значительно различается. У KORPIKLAANI, пожалуй,&nbsp;материал наиболее похожий на народную музыку, более легкий. Как и на предыдущем альбоме, здесь есть и медленные лиричные композиции, и хуммпа-плясовые вещи. А вообще, эти горячие финские парни сделали все, чтобы поднять настроение своему слушателю. И это уже словами не описать.</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond Records</A></P>
+Автор: Dimas
+
+### 01.09.2005 articles KORPIKLAANI в Москве: пресс-релиз
+
+<P>Korpiklaani в России.<BR>15 и 16 сентября состоятся единственные концерты группы Korpiklaani в России в рамках фестиваля «FOLK METAL FEST by Troll!»:<BR>15 сентября – клуб «Арктика»(СПБ) при поддержке Wolfsangel, Nomansland, Antarctica, Аркона(Начало в 17.30, цена билета 250-350р.)<BR>16 сентября – клуб «Релакс»(Москва) при поддержке Тролль Гнет Ель, Аркона(Начало в 18.00, цена билета 350-450р.)</P>
+<P><BR>Кто такие Korpiklaani? Еще одни тупые подражатели Finntroll, пытающиеся "выехать" на волне модного теперь сплава народной скандинавской музыки и металла? Нет, нет, и еще раз - нет! Korpiklaani (в переводе - "лесной клан") - это наши старые хорошие знакомые, всем известные финские "лесники" Shaman, но под новым названием и с новым, соответствующим современности, звучанием! Достигнув отличных результатов под старым названием с первыми двумя дисками, 'Idja' (1999) и 'Shamaniac' (2002), они решили отойти от своей оригинальной концепции - использование финского языка и фольклора - в пользу более широкого музыкального кругозора и более понятного слушателям английского языка. За все это, прежде всего, ответственен лидер "шаманов", Jonne Jarvela (также Finntroll), задумавший с одной стороны, еще глубже погрузиться в музыку своих предков, при этом, с другой стороны, еще больше утяжелить и разнообразить общее звучание. Для начала он решил собрать совершенно новый состав. Первым к лидеру примкнул Jaakko Lemmetty, молодой музыкант, больше известный как Hittavainen, большой знаток старинных народных инструментов. Jonne убедился в правильности своего выбора после первой же встречи с ним! Барабанщик Matson, будучи старым корешем Jonne, просто не смог остаться в стороне, да еще и привел с собой басиста и гитариста - Arto Tissari и Toni 'Honka' Honkanen, соответственно. Honka, в свою очередь, подтянул талантливого перкуссиониста Ali, не понаслышке знакомого с народной музыкой_ После чего, разумеется, секстет плотно приступил к работе. Большинство тем, использованных в музыке Korpiklaani берут начало непосредственно в фолке, после чего обрабатываются "металлическим" резцом - при этом в ход идут подлинные образцы народного искусства! В этом и кроется главное отличие Korpiklaani от остальных folk metal-банд, зачастую использующих folk только как пикантную приправу к своему пресному metal-блюду. Это явно почуяли и Napalm Records, подписавшие с членами Лесного Клана контракт аж на 4 альбома. 'Spirit Of The Forest', дебютный альбом нового проекта, выглядит более финским, чем сама Финляндия. Музыка варьируется от лиричных инструментальных пьес до зажигательных humppa-подобных плясовых, во время которых способен усидеть на месте только глухой! Звучание народных инструментов и четкий саунд современных гитар и ударных создают неповторимый контраст, заставляющий наслаждаться этой музыкой и открывать ее для себя снова и снова. Без сомнения, 'Spirit Of The Forest' является одним из лучших metal-релизов, созданных на основе смешения metal и народной финской музыки! Мастеринг произвёл Mika Jussila в прославленной Finnvox studios, Helsinki (Stratovarius, Theatre Of Tragedy, Amorphis, Insania, Therion, To/Die/For). Треки с пластинки вошли в Inferno Magazine/Firebox Records comilation CD и в сборник, распространяющийся с культовым изданием Metal Hammer. Очередной диск 'Voice Of Wilderness' (2005) - очень честный и очень финский альбом. Ребята пользуются только настоящими инструментами, никаких синтезаторов и клавишных нет вообще. Этой работой финны навсегда нарушат душевный покой поклонников Moonsorrow, Ensiferum и Skyclad. Тяжелые гитары, скрипки, флейты, аккордеон и народные мелодии - вот далеко не полный арсенал лесных шаманов! Напомним, что Jonne Jarvela также играл в группе Finntroll, а их скрипач записывался для двух последних альбомов Moonsorrow. Для записи 'Voice Of Wilderness' была привлечена аккордеонистка Катя Юхола, которая также работает в одном фолк-ансамбле. С 2004 года в группе также появился постоянный аккордеонист Юхо - он ещё играет на гитаре и поёт в группе Falchion. На композицию "Hunting Song" было снято сногсшибательное видео, также размещённое на диске. Для него группе удалось получить права на использование фрагментов очень старого фильма от которого уцелело всего на 18 секунд. Это картина Калле Каарны 'Ei Aauta Itku Makkinoilla' 1927 года. Эти старые кадры и современную сьёмку совместили, смонтировав на компьютере. Видео можно будет увидеть по японскому Music TV или в программах немецкого канала Viva. </P>
+Автор: Vit Belov
+
+### 11.09.2005 news Korpiklaani в России
+
+<CENTER><IMG height=450 alt="" hspace=0 src="/images/shows_rus/2005.09/9080.jpg" width=300 align=left border=5></CENTER>
+<P>Финская группа <STRONG>KORPIKLAANI</STRONG> хорошо известна всем любителям тяжелого северного фолка. Выросшая из проекта<STRONG> SHAMAN</STRONG>, группа двигается в сторону более мощного, импульсивного фолк-металла, разнообразного по звучанию. <BR>Музыка <STRONG>KORPIKLAANI </STRONG>- финская не только по месту появления, но и по духу. Это и красивые инструментальные композиции, вдохновленные загадочными северными лесами и убойные плясовые номера в стиле хумппа, услышав которые, невозможно устоять на месте. <BR><STRONG>KORPIKLAANI </STRONG>выступят в рамках знаменитого фестиваля "<STRONG>Folk Metal Fest</STRONG>", в котором также примут участие группы: </P>
+<P><STRONG>ANTARCTICA</STRONG> (Viking metal, Санкт-Петербург)<BR><STRONG>NOMANS LAND</STRONG> (Viking metal, Санкт-Петербург)<BR><STRONG>АРКОНА </STRONG>(славянский pagan metal, Москва)<BR><STRONG>WOLFSANGEL</STRONG> (folk metal, Санкт-Петербург)<BR>Концерт состоится 15 сентября 2005 года в клубе "АрктикА" (Санкт-Петербург, ул. Беринга, 38). Начало в 17.00.</P>
+<P><STRONG>ТРОЛЛЬ ГНЕТ ЕЛЬ</STRONG>(beer-folk-metal, Санкт-Петербург)<BR><STRONG>АРКОНА</STRONG> (славянский pagan metal, Москва)<BR>16 сентября <STRONG>KORPIKLAANI </STRONG>выступят в Москве в клубе "Релакс".<BR>(Москва, ул. Мельникова д.7). Начало в 18.00</P>
+<P>Стоимость билетов в Санкт-Петербурге: 250 - 350 руб.<BR>Стоимость билетов в Москве: 350 - 450 руб.</P>
+Автор: Dimas
+
+### 22.10.2005 news Korpiklaani will start recording third album
+
+<P>Korpiklaani will start recording their 3rd album on 15th of November at Fantom studio. The album will be named "Tales Along This Road". The exact release date isn't confirmed yet, but a rough guess is that it might be out in March or April. The album will be produced by Samu Oittinen, who also produced the "Voice Of Wilderness"-album.</P>
+Автор: Morsus
+
+### 22.10.2005 news KORPIKLAANI готовы к записи третьего альбома
+
+<P><STRONG>KORPIKLAANI</STRONG> отправятся записывать третий альбом 15 ноября в студию Fantom. Альбом будет называться "Tales Along This Road" и выйдет ориентировочно в марте или апреле будущего года на Napalm Records. Продюсировать запись будет Samu Oittinen, уже знакомый по прежней работе лесных финнов - "Voice Of Wilderness".</P>
+Автор: Morsus
+
+### 27.12.2005 news KORPIKLAANI опубликовали rfhnbyre
+
+<CENTER><STRONG>KORPIKLAANI </STRONG>опубликовали арт-ворк своего нового альбома <STRONG>"Tales along this Road" </STRONG>пластинка увидит свет в марте-апреле.</CENTER>
+<P></P>
+<CENTER><IMG height=299 src="/images/news_rus/2005.12/9877.jpg" width=300 border=0></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 25.02.2006 news KORKIPLAANI выходит 21 апреля
+
+<P>Новый альбом <STRONG>KORPIKLAANI</STRONG> <STRONG>"Tales along this Road" </STRONG>выйдет 21 апреля на <STRONG>Napalm</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.11.2006 news KORPIKLAANI начали запись
+
+<P><STRONG>KORPIKLAANI</STRONG> вошли в <STRONG>Fantom Studios</STRONG>&nbsp;для записи нового альбома <STRONG>"Tervaskanto", </STRONG>который выйдет в апреле. Стало известно, что на альбом войдут 11 песен.</P>
+Автор: Vit Belov
+
+### 14.03.2007 articles KORPIKLAANI в России: &quot;Наливай пива и танцуй&quot; (пресс-релиз)
+
+<DIV class=pna align=justify><BR>Любители пива и танцев - трепещите! На излете апреля, в то самое время, когда проснувшиеся от зимнего оцепенения леса наконец-то зазеленеют по-настоящему, во всю древнюю мощь, в Россию нагрянут главные лесники страны тысячи озер, кудесники таинственного братства под названием KORPIKLAANI, "лесной клан". Впрочем, для тех, кто уже имел счастье посетить прошлые концерты уникальной финской группы, особого секрета нет. Они-то точно знают, что ожидает их вновь в эти концертные дни: бесконечный позитив, ураганные пляски, зеркальные озера... с пивом и феноменальный сплав финской национальной музыки и heavy metal.<BR><BR>Как-то раз главный шаман Финляндии Jonne Jarvela (ex-SHAMAN, ex-FINNTROLL) всерьез задумался над мучавшим его долгое время вопросом: почему в творчестве всех фолк- и паган-групп Скандинавии горячо любимая им народная музыка всегда появляется лишь разовыми алмазными вкраплениями в не менее горячо любимом им heavy metal? Что нужно сделать, чтобы два этих музыкальных жанра на равных сплелись в диковинный музыкальный узор?<BR><BR>Ответ оказался прост, как и все гениальное: для этого нужно всего лишь создать KORPIKLAANI, группу-сказку, в единый неразъемный монолит соединившую казалось бы несовместимое - финский фольклор и парадоксально тяжелую музыку. Во что это вылилось? В три изумительных альбома "Spirit Of The Forest" (2003), "Voice Of Wilderness" (2004), и "Tales Along This Road" (2006), насколько народных и танцевальных, настолько и современных и тяжелых. Потенциал "лесного клана" вырос настолько высоко, что их третий альбом уже просто состоял из одних хитов! А как еще назвать филигранное исполнение исконно финского танца hummpa совместным многоголосьем таких народных или классических инструментов как кантеле, аккордеон, флейты, скрипки и современных электрогитар, поддержанных ураганной ритм-секцией в составе талантливейших басиста и ударника?<BR><BR>И пусть музыканты, посмеиваясь в бороды, называют основной темой своего творчества мысль "наливай пиво и танцуй". В их музыке, как в кристально чистой воде озер Финляндии, отражаются радость и удаль, залихватство и искренность, веселье людей и безграничность природы. Никакой "химии", никаких "синтезаторов" - только живые народные инструменты, играющие и живущие плечом к плечу с полноценным металлическим коллективом. От первой ноты до последней. От начала песни до самого конца.<BR><BR>На концертах KORPIKLAANI не бывает безучастно стоящих зрителей: вопрос только в том, в начале или середине первой песни вы включитесь в зажигательную плясовую, наверстывая упущенное среди уже танцующих остальных присутствующих. А чтобы вам было, чем похвалиться перед теми, кто не сможет туда попасть, финские парни привезут специально для вас свой свежий, еще дымящийся альбом 2007 года, как в виде живых песен, так и на CD, но это уже совсем другая история... Оставим же возможность рассказывать ее своим внукам и правнукам лично вам, сидя под теплым пледом на кресле-качалке у потрескивающего камина и зябко шевеля пальцами ног в толстых шерстяных носках с разноцветными скандинавскими узорами. Ведь малолетние потомки, отыскав в вашей тумбочке между страховым полисом, пенсионным удостоверением и сберегательной книжкой аккуратную стопочку дисков с надписью KORPIKLAANI, начнут закидывать вас вопросами.<BR><BR>Текст Олег "ShadowBarrel" Бочаров <BR></DIV>
+<DIV class=pna align=justify>Официальный сайт: <A href="http://www.korpiklaani.com/">http://www.korpiklaani.com/</A></DIV>
+<DIV class=pna align=justify>28 апреля, Санкт-Петербург, клуб "Порт" (организатор Russian Metal Agency: <A href="http://www.russianmetalagency.com/">http://www.russianmetalagency.com</A>)</DIV>
+<DIV class=pna align=justify>29 апреля, Москва, клуб "Точка" (организатор Delta Mekong Concerts: <A href="http://www.deltamekong.ru/">http://www.deltamekong.ru</A>)</DIV>
+<DIV class=pna align=justify>&nbsp;</DIV>
+Автор: Ixtiandr
+
+### 16.04.2007 news Новый альбом KORPIKLAANI
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2007.04/11566.jpg" width=400 align=right border=5>Новый альбом <STRONG>KORPIKLAANI "Tervaskanto"</STRONG> выйдет 29 июня на <STRONG>Napalm Records</STRONG>. Трэк-лист:</P>
+<P>01. <STRONG>Let's Drink<BR></STRONG>02. <STRONG>Tervaskanto<BR></STRONG>03. <STRONG>Viima<BR></STRONG>04. <STRONG>Veriset DpOrot<BR></STRONG>05. <STRONG>Running With Wolves</STRONG><BR>06. <STRONG>Liekkion Isku<BR></STRONG>07. <STRONG>Palovana<BR></STRONG>08. <STRONG>Karhunkaatolaulu<BR></STRONG>09. <STRONG>Misty Fields<BR></STRONG>10. <STRONG>Vesilahden Ver&#228;jillo<BR></STRONG>11. <STRONG>Nordic Feast</STRONG></P>
+Автор: Vit Belov
+
+### 29.04.2007 news KORPIKLAANI в России
+
+<CENTER><IMG height=318 src="/images/shows_rus/2007.04/11434.jpg" width=450 border=0> 
+<CENTER></CENTER></CENTER>
+Автор: Dimas
+
+### 09.10.2007 news KORPIKLAANI уже записали
+
+<P><STRONG>KORPIKLAANI</STRONG> уже подготовили новый альбом <STRONG>'Korven Kuningas'</STRONG> (Король лесов). на пластинку попадут 14 новых песен и 2 бонус-трэка. Диск выйдет в феврале на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.12.2007 news Дата релиза KORPIKLAANI
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2007.12/12084.jpg" width=400 align=left border=5>Релиз нового альбома <STRONG>KORPIKLAANI "Korven Kuningas" </STRONG>назначен на 15 марта на <STRONG>Nuclear Blast</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 08.01.2008 news Превью нового KORPIKLAANI
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> KORPIKLAANI</STRONG> <STRONG>"Korven Kuningas" </STRONG>выходит 21 марта на <STRONG>Nuclear Blast</STRONG>. Группа выложила превью нескольких песен на своей <STRONG>MySpace</STRONG> страничке. Также стал известен трэк-лист этого альбома:</FONT></P>
+<P>01. <B>Tapporauta</B><BR>02. <B>Mets&#228;mies</B><BR>03. <B>Keep On Galloping</B><BR>04. <B>Northern Fall</B><BR>05. <B>Shall We Take A Turn?</B><BR>06. <B>Paljon On Koskessa Kivi&#228;</B><BR>07. <B>Ali J&#228;isten Vetten</B><BR>08. <B>Gods On Fire</B><BR>09. <B>Kipakka</B> (Japan bonus track)<BR>10. <B>Kantaiso</B><BR>11. <B>Kipumylly</B><BR>12. <B>Suden Joiku</B><BR>13. <B>Runamoine</B><BR>14. <B>Syntykoski Sy&#246;mmehess&#228;in</B><BR>15. <B>Korven Kuningas</B><BR>16. <B>Nuolet nomalan</B> (digipack bonus track)</P>
+<P>Ссылка: <A href="http://myspace.com/korpiklaaniofficial">http://myspace.com/korpiklaaniofficial</A></P>
+Автор: Vit Belov
+
+### 21.02.2008 news Мировая презентация нового альбома KORPIKLAANI
+
+<CENTER><IMG height=750 src="/images/shows_rus/2008.03/12270.jpg" width=500 border=0></CENTER>
+Автор: Vit Belov
+
+### 02.08.2008 reviews Шире улыбку
+
+<P>Я часто ругался на KORPIKLAANI. Ругань моя продолжалась где-то со второго альбома этой группы. Если дебют «лесных человеков» и пластинки SHAMAN представляли для меня интерес и с музыкальной точки зрения, то всё остальное творческое наследие финнов заставляло меня только скептически ухмыляться. Я всё ждал, когда это всё надоест слушателям и самим артистам, но этого не происходило. И вот сейчас, когда всё происходящее стало совсем абсурдным, KORPIKLAANI вышли не Nuclear Blast, создав новую пластинку меньше, чем за год, у меня пропало желание вертеть пальцем у виска. Я вдруг всё понял…</P>
+<P>Те, кто знают меня лично, не дадут соврать, я достаточно весёлый человек, так мне казалось. Но водить хороводы под KORPIKLAANI всё равно не хотелось. И вот я еду в поезде на дачу из этого душного города, слушаю в плейере новый альбом KORPIKLAANI “Korven Kuningas”, и вдруг стало мне так весело и хорошо от того, что сегодня, в среду, все на работе, а я на природе, что тут же буквально я полюбил эту пластинку. Я понял, до того, чтобы начать коллекционировать пластинки KORPIKLAANI в своей домашней фонотеке мне осталось совсем чуть-чуть. Надо просто шире улыбаться и, главное, больше пить пива. Пиво, кстати, можно пить постоянно, и тогда KORPIKLAANI могут выпускать свои альбомы каждый месяц, а я на автомате буду выставлять им высшие баллы. </P>
+<P>Если же серьёзно, внимательное прослушивание этого альбома позволило мне вновь отметить положительные черты в творчестве KORPIKLAANI. Ребята ищут любые возможности для создания отличного настроения, адаптируя на свой финский лад наследие мировой музыки. Все эти чукотские напевы и черты очухоненного кантри на этом альбоме порадуют не только любителей танцев вприсядку, но и достаточно искушённого слушателя. Только не забывайте шире улыбаться!</P>
+Автор: Vit Belov
+
+### 22.01.2009 news Название KORPIKLAANI
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Летом на <STRONG>Nuclear Blast</STRONG> выйдет новый альбом <STRONG>KORPIKLAANI</STRONG>, получивший название <STRONG>"Karkelo" </STRONG>(Вечеринка)<STRONG>. </STRONG></FONT></P>
+Автор: Vit Belov
+
+### 01.02.2009 news KORPIKLAANI войдут в студию
+
+<P>15 февраля<STRONG> KORPIKLAANI</STRONG> войдут в студию и начнут запись нового альбома <STRONG>"Karkelo" </STRONG>(вечеринка). Пластинка выйдет в июне на <STRONG>Nuclear Blast</STRONG> и будет записана в двух студиях, <STRONG>Petrax</STRONG> studio и <STRONG>Recording Studio</STRONG>, с продюсером <STRONG>Aksu Hanttu.</STRONG></P>
+Автор: Vit Belov
+
+### 10.04.2009 news KORPIKLAANI опубликовали обложку
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.04/13921.jpg" width=400 align=right vspace=5 border=0>Финские металлисты<STRONG>&nbsp;KORPIKLAANI</STRONG> опубликовали обложку своего нового альбома. Диск "<STRONG>Karkelo</STRONG>" выходит&nbsp;26 июня на <STRONG>Nuclear Blast</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа, так же, заявлена хэдлайнером грядущего aмериканского фестиваля "<STRONG>PAGANFEST</STRONG>". Среди прочих, на фестивале выступят <STRONG>Moonsorrow, Primordial</STRONG> и <STRONG>Blackguard</STRONG>. </FONT></P>
+Автор: Headcrusher
+
+### 23.04.2009 news KORPIKLAANI выпустили Водку
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.04/14000.jpg" width=400 align=right border=5>В конце мая на <STRONG>Nuclear Blast</STRONG> выйдет новый сингл <STRONG>KORPIKLAANI "Vodka"</STRONG>. Трэк-лист:</P>
+<P>01. <B>Vodka</B><BR>02. <B>Juodaan Viinaa</B></P>
+Автор: Vit Belov
+
+### 25.04.2009 news Трэк-лист KORPIKLAANI
+
+<P><STRONG>KORPIKLAANI </STRONG>опубликовали трэк-лист своего нового альбома <STRONG>"Karkelo"</STRONG>:</P>
+<P>01. <B>Vodka</B><BR>02. <B>Eramaan Arjyt</B><BR>03. <B>Isku Pitkasta Ilosta</B><BR>04. <B>Mettanpeiton Valtiaalle</B><BR>05. <B>Juodaan Viinaa</B><BR>06. <B>Uniaika</B><BR>07. <B>Kultanainen</B><BR>08. <B>Bring Us Pints Of Beer</B><BR>09. <B>Huppiaan Aarre</B><BR>10. <B>Konnin Kuokkamies</B> (bonus track; digipack)<BR>11. <B>Vesaisen Sota</B><BR>12. <B>Sulasilma</B><BR>13. <B>Kohmelo</B></P>
+<P>Пластинка выйдет 24 июня на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 15.05.2009 news Послушай &quot;Водку&quot;
+
+<P><STRONG>KORPIKLAANI </STRONG>выложили на <STRONG>MySpace</STRONG> новую песню "<STRONG>Vodka</STRONG>": <A href="http://www.myspace.com/korpiklaani">http://www.myspace.com/korpiklaani</A></P>
+Автор: Vit Belov
+
+### 12.06.2009 news Видео-&quot;водка&quot; от KORPIKLAANI
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на новый хит KORPIKLAANI "Vodka" можно посмотреть ниже:</FONT></P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=58793369">Vodka</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=58793369,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=58793369,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.06.2009 news KORPIKLAANI на MySpace
+
+<P>Новый альбом <STRONG>KORPIKLAANI</STRONG> <STRONG>"Karkelo" </STRONG>можно целиком послушать на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/korpiklaani">http://www.myspace.com/korpiklaani</A></P>
+Автор: Vit Belov
+
+### 20.07.2009 reviews Медленный KORPIKLAANI – музыка для похмелья?
+
+<P>Финны KORPIKLAANI продолжают радовать своих многочисленных поклонников. Практически каждое лето группа выдаёт новый материал, и уже скоро нельзя будет разобраться какой альбом, где и когда вышел. В этот раз я нашёл целых две особенности, о которых можно рассказать. Хит-сингл “Vodka”, отзывающийся теплотой в душах всех отечественных любителей группы, и обилие медленных и несколько суровых вещей, которое меня немного обескуражило.</P>
+<P>Нам приходилось слышать медленные вещи у подобных групп. Как правило это нечто угарное про любовь к бутылке и похмелье, при этом нам совсем необязательно понимать слова, потаённый смысл слышен и в музыке. В завершающих трэках нового альбома KORPIKLAANI потаённый смысл мне не открылся. Здесь мы можем руководствоваться только личными ощущениями, но переходящие на суровые «баллады» финны могут символизировать лишь одно. Ужасающее похмелье. Задам вопрос. Можно ли под эту музыку мучиться похмельем? Каждый ответит сам, но мне кажется, KORPIKLAANI всегда предназначались для вечеринок, а не для болезненных их последствий. Ещё отмечу одно свойство группы. Музыканты всегда пытались цитировать на свой «humppa» манер классиков тяжёлого рока, и сейчас, если кому интересно покопаться, можно отыскать нечто забавное и интересное.</P>
+<P>Вообще же, серьёзно писать о KORPIKLAANI не стоит. Их ведь никто серьёзно и не воспринимает, в том числе и они сами. Просто хороший разогрев для фестиваля и группа для попойки. Остаётся только понять, какие напитки вы будете пить, прослушивая медленную humppa.</P>
+Автор: Vit Belov
+
+### 11.11.2010 news KORPIKLAANI заканчивают альбом
+
+<P><STRONG>KORPIKLAANI </STRONG>заканчивают работу над новым альбомом <STRONG>"Ukon Wacka"</STRONG>, который должен выйти в начале 2011 года на <STRONG>Nuclear Blast</STRONG>.&nbsp;Альбом обещает быть похожим на предыдущие. В частности вместо песни "<STRONG>Vodka</STRONG>" группа записала песню "<STRONG>Tequila</STRONG>".&nbsp;</P>
+Автор: Vit Belov
+
+### 30.11.2010 news Обложка нового KORPIKLAANI
+
+<P><IMG border=1 hspace=0 alt="" align=right src="/images/news_rus/2010.11/17698.jpg" width=400 height=400>4 февраля 2011 года на <STRONG>Nuclear Blast</STRONG> выходит очередной альбом <STRONG>KORPIKLAANI "Ukon Wacka". </STRONG>Пластинка будет содержать 9 трэков:</P>
+<P>01. <B>Louhen Yhdeksas Poika</B><BR>02. <B>Paat Pois Tai Hirteen</B> <BR>03. <B>Tuoppi Oltta</B> <BR>04. <B>Lonkkaluut</B> <BR>05. <B>Tequila</B> <BR>06. <B>Ukon Wacka</B> <BR>07. <B>Korvesta Liha</B> <BR>08. <B>Koivu Ja T&#228;hti</B> <BR>09. <B>Vaarinpolkka</B></P>
+<P>Название альбома означает древний праздник, посвящённый пиву. Все песни альбома будут исполнены на финском языке, но в буклет будут помещены переводы текстов. Вторая вещь "<STRONG>Paat Pois Tai Hirteen</STRONG>"&nbsp;принадлежит перу старинной финской группы<STRONG> PEER GUNT</STRONG>.</P>
+<P>10&nbsp;и 11 декабря<STRONG> KORPIKLAANI</STRONG> выступят в Санкт-Петербурге и Москве. Подробнее о этих концертах можно узнать в нашем разделе SHOWS: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A>&nbsp;</P>
+Автор: Vit Belov
+
+### 05.01.2011 news KORPIKLAANI и самба
+
+<P>Новый клип <STRONG>KORPIKLAANI </STRONG>на песню <STRONG>"Tequila" </STRONG>можно посмотреть ниже. Песня посвящена всем фэнам группы в Южной Америке и попадёт на новый альбом коллектива <STRONG>"Ukon Wacka"</STRONG>, который выйдет 4 февраля на<STRONG> Nuclear Blast</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/wzEahz7pa7k?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/wzEahz7pa7k?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 22.02.2011 reviews Арфы нет, возьмите бубен
+
+<P>О финнах KORPIKLAANI уже не знаешь, что и писать. Начнём с констатации факта выхода седьмого альбома этой оригинальной группы “Ukon Wacka”. Отметим также, что на диске терпеливый слушатель сможет найти кавер на песню MOTORHEAD “Iron Fist”, он в самом конце, а менее терпеливый найдёт мощный хит “Tequila”, он где-то в середине.</P>
+<P>Честно говоря, если музыканты KORPIKLAANI бывают хоть когда-то в трезвом состоянии, то им не позавидуешь. Нужно постоянно чем-то стимулировать свои творческие начала, ведь даже отчаянным фолк-музыкантам нужно иногда за что-то зацепиться, чтобы испытывать удовольствие от собственного творчества. Плясать, развлекая публику по клубам и на фестивалях, это одно, а сидеть в студии, набирая песни для нового альбома, это совсем другое. Вот и создают различные нелепые сериалы, чтобы хоть как-то отличить один свой альбом от другого. На этот раз KORPIKLAANI сосредоточились на винно-водочной теме.&nbsp; Вслед за композицией “Vodka”, посвящённой нашим отчаянным фэнам folk-музыки, финны создали неповторимый эпик “Tequila”, который предназначен всем поклонникам в Южной Америке. Теперь следует ждать хита «Саке» для азиатов или, не дай Боги, «Пейсах» сами знаете для кого. Здесь у финских музыкантов открываются широкие возможности не только в сочинении хитов, но и в дегустации, что для KORPIKLAANI явно является не самым последним по значимости моментом. </P>
+<P>Что там KORPIKLAANI, меня радуют фэны этого музыкального коллектива, собирающие все альбомы любимцев. После первых двух пластинок отличить одну работу финнов от другой не представляется возможным. Как только на обложке альбома “Tales Along This Road” появился уже знаменитый дедушка, музыкально KORPIKLAANI закончились, но для поднятия настроения их альбомы несомненно рекомендовать необходимо. Не говоря уже о концертных выступлениях.</P>
+Автор: Vit Belov
+
+### 13.09.2011 news KORPIKLAANI покинул скрипач Hittavainen, объявлена замена
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.09/21053.jpg" width=310 height=350>Впервые, с 2005 года, в группе <STRONG>KORPIKLAANI</STRONG> произошли изменения в составе. "Лесной клан" покинул <STRONG>Hittavainen</STRONG>&nbsp;<EM>(на фото)</EM> - скрипач коллектива. Расставание между ним и группой прошло по обоюдному согласию и без какой либо драмы. Здоровье <STRONG>Hittavainen</STRONG>, больше не позволяет ему участвовать в постоянных гастролях и записях коллектива.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KORPIKLAANI</STRONG> уже нашли замену на вакантное место. Ей стало молодое дарование по имени <STRONG>Teemu Eerola</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первый концерт с новичком пройдёт 24 сентября в Роттердаме (Голландия). Российские же поклонники&nbsp;группы смогут познакомиться с <STRONG>Teemu</STRONG> на концертах, которые состоятся 7 октября в Санкт-Петербурге (клуб "Арктика) и 8 октября в Москве (ККЗ "Москва").</FONT></P>
+Автор: Headcrusher
+
+### 29.03.2012 news Новая песня KORPIKLAANI
+
+<P>Новый трек <STRONG>KORPIKLAANI "Metsalle"</STRONG> можно послушать в клипе ниже. Песня была написана коллективом для участия в отборочном турнире к конкурсу Евровидение и войдёт в новый релиз финов, который выйдет летом на <STRONG>Nuclear Blast</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/sz05MslfJ9k?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 11.05.2012 news KORPIKLAANI выйдет 3 августа
+
+<P>3 августа на <STRONG>Nuclear Blast</STRONG> выходит новый альбом финских юмористов <STRONG>KORPIKLAANI "Manala"</STRONG>. Название альбома является синонимом слова “Tuonela” и используется в финском эпосе Калевала в качестве обозначения места, где обитают мёртвые. Интересно, что и большое количество треков новой работы группы связано с финским эпосом.</P>
+<P><center><IMG height=475 src="/images/news_rus/2012.05/23880.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 25.05.2012 news Трек-лист и обложка нового KORPIKLAANI
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.05/24014.jpg" width=475 align=right border=0>Новый альбом <STRONG>KORPIKLAANI "Manala" </STRONG>выйдет 3 августа на <STRONG>Nuclear Blast</STRONG>. На лимитированное издание альбома войдёт второй диск, где финны исполнили все новые песни на английском. Трек-лист:</P>
+<P>Limited digipak CD:<BR>01. <B>Kunnia</B><BR>02. <B>Tuonelan Tuvilla</B><BR>03. <B>Rauta</B><BR>04. <B>Ruuminmultaa</B><BR>05. <B>Petoelaimen Kuola</B><BR>06. <B>Synkka</B><BR>07. <B>Ievan Polkka</B><BR>08. <B>Husky Sledge</B><BR>09. <B>Dolorous</B><BR>10. <B>Uni</B><BR>11. <B>Metsalle</B><BR>12. <B>Sumussa Hamaran Aamun</B><BR><BR>Bonus CD:<BR>01. <B>Honor</B><BR>02. <B>At The Huts Of The Underworld</B><BR>03. <B>The Steel</B><BR>04. <B>Soil Of The Corpse</B><BR>05. <B>Predator's Saliva</B><BR>06. <B>Dark Side</B><BR>07. <B>Ieva's Polka</B><BR>08. <B>Husky-Sledge</B><BR>09. <B>Dolorous</B><BR>10. <B>Dream</B><BR>11. <B>Off To The Hunt</B></P>
+Автор: Vit Belov
+
+### 24.07.2012 news KORPIKLAANI: видеоклип на песню &quot;Rauta&quot;
+
+<P>Финский лесной клан <STRONG>KORPIKLAANI</STRONG> снял видеоклип на песню&nbsp;<STRONG>"Rauta"</STRONG> (Сталь). Этот трек войдёт в новый альбом коллектива, под названием <STRONG>"Manala"</STRONG>. Дата выхода: 3 августа 2012 г. в Европе и 14 августа 2012 г. в С.Ш.А.</P>
+<P>Режиссёр клипа: <STRONG>Markku Kirves</STRONG>. <BR>Так же доступна англоязычная версия видео: <A href="http://youtu.be/rDSwF3igT-Q">http://youtu.be/rDSwF3igT-Q</A></P>
+<P>Версия песни <STRONG>"Rauta"</STRONG> (<STRONG>"Steel"</STRONG>) на английском, войдёт на бонус диск 'deluxe' издания альбома.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/PJwo6bMKBaw" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 19.03.2013 news KORPIKLAANI: аккордионист Juho Kauppinen покинул группу
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25549.jpg" width=350 height=473>Аккордионист <STRONG>Juho Kauppinen</STRONG><EM> (на фото)</EM> покинул финскую folk metal группу <STRONG>KORPIKLAANI</STRONG>. </P>
+<P>По этому поводу он оставил следующее заявление:</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><EM>"Я решил направить&nbsp;свои силы в другое русло, в результате чего <STRONG><FONT color=#ddd9d0>KORPIKLAANI </FONT></STRONG>будет продолжать без моего участия. В течении долгого времени <STRONG><FONT color=#ddd9d0>KORPIKLAANI </FONT></STRONG>были главной частью моей жизни, но после восьми с половиной лет моей игры в группе, я пришел к выводу, что в настоящее время&nbsp;мне бы хотелось заняться чем-то другим. Аккордеон никогда не был моим основным инструментом. Я также понял, что выступать перед аудиторией, это&nbsp;не совсем то, чем я могу наслаждаться. Как ни странно это прозвучит, но сейчас я больше всего хочу создавать музыку, играя на гитаре у себя дома. Это именно то, что расслабляет меня и не приносит стресса. Некоторые люди любят гастролировать, но я очень закрытый человек и понял, что жить и путешествовать на автобусе&nbsp;в течение четырех недель подряд для меня слишком&nbsp;трудно. Тем не менее, я получил огромный опыт за время гастролей и хочу поблагодарить всех тех, кто был&nbsp;&nbsp;вовлечён в это - слушателей <STRONG><FONT color=#ddd9d0>KORPIKLAANI</FONT></STRONG>, группы, с которыми приходилось выступать, наш технический персонал. Я рад, что группа нашла действительно профессионального аккордеониста, который сможет занять моё место и отыграет на грядущих турах и выступлениях, в тот срок, как это и было запланированно ранее. Я желаю всем всего корошего. Путешествие только начинается".</EM></FONT></P>
+Автор: Headcrusher
+
+### 10.02.2015 news KORPIKLAANI выпускают альбом &quot;Noita&quot; в мае
+
+<P>Финские фолк-металлисты&nbsp;<STRONG>KORPIKLAANI</STRONG> опубликовали обложку нового альбома. Её автор - <STRONG>Jan Yrlund</STRONG> (<A href="http://www.darkgrove.net/">http://www.darkgrove.net</A>), уже работавший с группой&nbsp;над оформлением нескольких предыдущих её работ. </P>
+<P>Диск получил название <STRONG>"Noita"</STRONG> и выйдет 1 мая в Европе, 4 мая в Англии и 5 мая в США на лейбле <STRONG>Nuclear Blast</STRONG>. </P>
+<P>Предзаказ можно сделать по ссылке: <A href="http://bit.ly/KORPIKLAANI-ALbumShop">http://bit.ly/KORPIKLAANI-ALbumShop</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.02/27620.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 25.04.2015 news KORPIKLAANI: клип на трек &quot;Pilli On Pajusta Tehty&quot;
+
+<P>Финские фолк-металлисты <STRONG>KORPIKLAANI</STRONG> выпустили клип на новый трек <STRONG>"Pilli On Pajusta Tehty"</STRONG>. Снят он, кстати, был на московском концерте группы, который состоялся 4 апреля этого года в клубе <STRONG>"Volta"</STRONG>. Посмотреть его можно ниже.</P>
+<P>А фотографии с концерта доступны по ссылке: <A href="/ru/galleries/1/1595">http://musica.mustdie.ru/ru/galleries/1/1595</A></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/lCGlO2Ssqwk?feature=player_embedded" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 11.04.2016 news KORPIKLAANI: анимационное видео &quot;A Man With A Plan&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Финские весельчаки <STRONG>KORPIKLAANI</STRONG> выпустили анимационное видео на песню <STRONG>"A Man With A Plan"</STRONG>. Песня взята с альбома <STRONG>"Noita"</STRONG>, который вышел в мае прошлого года.</FONT></P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/bc0sJvtKrRM" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 16.05.2016 news KORPIKLAANI поедут в большой российский тур в конце 2016 года
+
+<P>Финны <STRONG>KORPIKLAANI</STRONG> впервые поедут в большие российские гастроли в ноябре-декабре этого года. Подробности на <A href="http://korpiklaani.ru/">http://korpiklaani.ru</A></P>
+<P><center><IMG border=0 src="/images/news_rus/2016.05/29195.jpg" width=500 height=704></P>
+Автор: Headcrusher
+
+### 09.09.2016 news KORPIKLAANI записали гимн ФК Лахти
+
+<p>Финны <strong>KORPIKLAANI </strong>выпустили сегодня новый сингл "<strong>FC Lahti</strong>". Трек посвящён 20-летию финского футбольного клуба Лахти, играющего в высшем дивизионе страны. Песня станет гимном этой команды.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/4BLnOyrLzzs" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 09.09.2016 news KORPIKLAANI - release new single, &#39;FC Lahti&#39;!
+
+<p>Finnish folk metal superstars<strong> KORPIKLAANI </strong>are releasing a new digital single today. It is a very special release, supporting the 20th Anniversary of their local football team FC Lahti with that track. FC Lahti, who are playing in the finnish Veikkausliiga, the highest soccer league in Finland.</p><p><strong>Jonne Jдrvelд</strong> states:<br><em>“When I was asked if Korpiklaani would want to support the local football team playing at the top level in Finland, my answer was definitely yes. My first idea on how to take this forward was the thing that is important to us as a band, to write a song, a new official anthem for FC Lahti, and here it is now. Lyrics are not just about football, but also about love for your home town without forgetting it's history. I wish the fans of FC Lahti and everyone else too will like the song.”</em></p><p><strong>Tomi Honkanen</strong>, the Managing director (President) of FC Lahti adds:<br>"<em>FC Lahti and Korpiklaani are two strong brands that generate strong emotions in Lahti and internationally. At FC Lahti we highly value that Korpiklaani wears our colours and brings our great FC Lahti to the world. Lahti rocks!”</em></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/4BLnOyrLzzs" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Финский Фолк-Метал

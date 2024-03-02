@@ -336,6 +336,69 @@ Everett Ravestein  -  Pre-Production
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.04.2001 news RUSH возвращаются...
+
+<p>Арт-роковая легенда RUSH работают над новым материалом. Репетиции проходят в двух различных студиях в Торонто. Гитарист Alex Lifeson и барабанщик Neil Peart работают совместно, а бассист Geddy Lee - в своей собственной студии. По сообщениям источников близких к группе, новый материал выдержан в духе "Permanent Waves". Для продюссирования планируется привлечь также канадца - Боба Рока (!).</p>
+
+Автор: Yermola
+
+### 03.04.2001 news RUSH - Permanent Waves!
+
+<p>According to sources close to the band, RUSH are currently working on new material at two different studios in Toronto. Guitarist Alex Lifeson and drummer Neil Peart are working together at a secret location in downtown Toronto, meanwhile bassist Geddy Lee is working on material on his own. Studio sources have commented that the new material sounds "rockin' and harder edged. The pre-production work is totally unconventional." Sources say that there is a good chance the band will use a "big Vancouver-based producer," which alludes to only one individual - Bob Rock. As for the once AWOL Peart, he has remarried and currently resides in San Diego (he married a local woman there) and just outside Montreal. The band are expected to be taking their time with the new material, although Lee suggested in a recent interview that an album is only guaranteed if the material stimulates them. DON'T expect output from Rush until fall at the earliest.</p>
+
+Автор: Yermola
+
+### 02.04.2002 news Vapor Trails от RUSH....
+
+<p><IMG SRC="/images/news_rus/2002.04/2576.jpg" ALT="pho" width=208 height=208 hspace="15" vspace="5" border="1" align="right"> Первый студийный альбом культовых "RUSH" за последние пять лет - "Vapor Trails" выходит в продажу 14-го мая. В поддержку диска группа запустила веб-сайт <A HREF="http://www.rushvaportrails.com/">www.rushvaportrails.com. </A>на котором можно послушать сингл с альбома "One Little Victory". Полный MP3 этого трека можно послушать <A HREF="http://weezil.com/rush/OLV.mp3">здесь.....</A></p>
+
+Автор: Yermola
+
+### 02.04.2002 news RUSH Set Up Dedicated Web Site For New CD ...
+
+<p> <IMG SRC="/images/news/2002.04/2577.jpg" ALT="pho" width=146 height=146 hspace="15" vspace="5" border="1" align="right"> RUSH have set up a dedicated web site for their much-anticipated Vapor Trails CD at <A HREF="http://www.rushvaportrails.com/">www.rushvaportrails.com</A>. Currently under construction, the site features a preview of the album's first single "One Little Victory". A full MP3 of the track can be downloaded at <A HREF="http://weezil.com/rush/OLV.mp3">this location. </A></p>
+
+Автор: Yermola
+
+### 24.07.2003 news Тройной концертник от RUSH
+
+<p>Ветераны канадского progressive rock RUSH подготовили к выпуску концертный альбом под названием "Rush in Rio", записанный 23 ноября прошлого года. Релиз выйдет в сентябре через Atlantic Records в двух вариантах, как тройной аудио-диск и как двойной DVD. Окончательный трэк-лист выглядит следующим образом:</p>
+<p> 1. Tom Sawyer <BR> 2. Distant Early Warning <BR> 3. New World Man <BR> 4. Roll the Bones <BR> 5. Earthshine <BR> 6. YYZ <BR> 7. The Pass <BR> 8. Bravado <BR> 9. Big Money <BR> 10. The Trees <BR> 11. Freewill <BR> 12. Natural Science <BR> 13. Closer to the Heart <BR> 14. One Little Victory <BR> 15. Driven <BR> 16. Ghost Rider <BR> 17. Secret Touch <BR> 18. Dreamline <BR> 19. Red Sector 'A' <BR> 20. Leave That Thing Alone <BR> 21. The Rhythm Method <BR> 22. Resist <BR> 23. 2112 <BR> 24. Limelight <BR> 25. La Villa Strangiato <BR> 26. The Spirit of Radio <BR> 27. By-Tor & the Snow Dog<BR> 28. Working Man</p>
+
+Автор: Dimas
+
+### 10.01.2004 news Гитарист RUSH попал за решётку
+
+Гитарист <B>RUSH Alex Lifeson</B> был аррестован полицией города Неаполь, штат Флорида за чрезмерное употребление алкоголя, а главное, за хулиганство, учинённое им в новогоднюю ночь в отеле Ритц этого города.
+Автор: Vit Belov
+
+### 10.12.2007 news SLAYER, MACHINE HEAD, KING DIAMOND и AS I LAY DYING номинированы
+
+<P><STRONG>SLAYER</STRONG>, <B>MACHINE HEAD</B>, <B>KING DIAMOND</B>&nbsp;и <B>AS I LAY DYING</B> находятся среди номинантов на премию Грэмми. 50-тая церемония вручения этой музыкальной награды пройдёт 10 февраля в Лос-Анджелесе. Вот списки номинантов в "рок" номинациях:</P>
+<P>Лучшее металл представление:<BR><B>AS I LAY DYING</B> - "Nothing Left"<BR><B>KING DIAMOND</B> - "Never Ending Hill"<BR><B>MACHINE HEAD</B> - "Aesthetics Of Hate"<BR><B>SHADOWS FALL</B> - "Redemption"<BR><B>SLAYER</B> - "Final Six"<BR><BR>Лучшее хард рок представление:<BR><B>EVANESCENCE</B> - "Sweet Sacrifice"<BR><B>FOO FIGHTERS</B> - "The Pretender"<BR><B>OZZY OSBOURNE</B> - "I Don't Wanna Stop"<BR><B>QUEENS OF THE STONE AGE</B> - "Sick, Sick, Sick"<BR><B>TOOL</B> - "The Pot"<BR><BR>Лучшее инструментальное рок представление: <BR><B>METALLICA</B> - 'The Ecstasy Of Gold <BR><B>RUSH</B> - "Malignant Narcissism"<BR><B>JOE SATRIANI</B> - "Always With Me, Always With You" <BR><B>BRUCE SPRINGSTEEN</B> - "Once Upon A Time In The West" <BR><B>STEVE VAI</B> - "The Attitude Song"</P>
+Автор: Vit Belov
+
+### 31.05.2011 news Ресторан от музыкантов IN FLAMES
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.05/19551.jpg" width=600 height=400> 
+<P></P>
+<P>Двое участников шведской группы&nbsp;<B itxtHarvested="0" itxtNodeId="393">IN FLAMES</B> — <B itxtHarvested="0" itxtNodeId="392">Peter Iwers</B> (бас) и <B itxtHarvested="0" itxtNodeId="391">Bj&#246;rn Gelotte</B> (гитара), стали партнёрами в ресторанном бизнесе, открыв в своём родном городе Готенбург заведение под названием "<STRONG>2112</STRONG>" (<A href="http://www.restaurant2112.com/">www.restaurant2112.com</A>).&nbsp;Ресторан получил название в честь одноимённого альбома группы <STRONG>RUSH</STRONG>,&nbsp;который вышел в 1976 году. &nbsp;Открытие "<STRONG>2112</STRONG>" состоялось 21 апреля. Немецкий журнал<STRONG> Metal Hammer</STRONG> снял репортаж с этого мероприятия, который можно посмотреть по ссылке: <A href="http://www.metal-hammer.de/magazin/features/article98512/Zu-Besuch-im-In-Flames-Restaurant-2112.html">http://www.metal-hammer.de/magazin/features/article98512/Zu-Besuch-im-In-Flames-Restaurant-2112.html</A></P></CENTER>
+Автор: Headcrusher
+
+### 24.08.2016 news ALLEGAEON переиграли RUSH
+
+<p>Ниже можно услышать кавер-версию песни<strong> RUSH "Subdivisions"</strong>, которая войдёт на новый альбом американской melodic death metal команды<strong> ALLEGAEON "Proponent For Sentience"</strong>, выходящий на <strong>Metal Blade</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/dvQ8Lcffw4s" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 24.08.2016 news ALLEGAEON cover RUSH
+
+<p>Below you can hear a cover version of the<strong> RUSH</strong> song "<strong>Subdivisions</strong>", which will be included on the new album by American melodic death metal band <strong>ALLEGAEON "Proponent For Sentience" </strong>coming out on<strong> Metal Blade records</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/dvQ8Lcffw4s" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Лучшие альбомы Rush

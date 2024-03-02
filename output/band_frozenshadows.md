@@ -12,6 +12,21 @@ black-metal from Canada
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.07.2000 reviews А вы знаете какие в Канаде зимы?
+
+<p>А вы знаете какие в Канаде зимы? Послушайте этот альбом. Он дает исчерпывающий ответ на этот вопрос. Они не менее суровые и морозные, чем в той же Норвегии. А начинается все так хорошо: тихая спокойная клавишная атмосфера чуть ли не погружает в сон. И вдруг, как гром среди ясного неба, тебя пробуждают скоростные зловещие пилеще-режущие риффы в духе Dark Throne, иногда похоже на Marduk или Immortal (более ранний). Но канадцы, в отличие от своих норвежских коллег, вовсю используют клавиши, что придает их музыке атмосферность и некоторый оттенок мелодичности. Но это не есть коммерческий элемент, а лишь небольшое музыкальное обогащение.</p>
+
+Автор: Dimas
+
+### 22.07.2000 reviews And you know what in Canada of winter?
+
+<p>And you know what in Canada of winter? Listen to this album. He gives the depleting answer to this problem. They not less severe and frosty, than in same Norway. And all starts so good: the quiet quiet keyboard atmosphere almost does not immerse in dream. And suddenly, as a thunder among a clear palate, thee awake fast-track evilness rhythms in spirit Dark Throne, is sometimes similar on Marduk or Immortal (earlier). But canadiens, as against the Norwegian colleagues, many will use keys, that gives to their music atmospheric and some tint melodic. But it not is a commercial member, and only musical enrichment.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

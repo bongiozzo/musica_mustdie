@@ -41,6 +41,50 @@ Epilogue
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.09.2000 reviews Совершенно не ожидал услышать такое от норвежцев
+
+<p>Новый проект с участием музыкантов таких групп, как Bloodthorn и Atrox. Совершенно не ожидал услышать такое от норвежцев. Нетипичная для них музыка, скорее американская. Довольно сложная, чрезвычайно психоделичная. При этом, общая музыкальная стилистика ближе к stoner-rock и классическому doom-metal, но без депрессивных и грустных моментов, с меланхоличным чистым вокалом. Иногда проскакивают довольно агрессивные angry-риффы. Надо отметить, чрезвычайную разнообразность материала, его многотемность. Временами довольно интересно, но в целом - альбом на любителя, не для широких металлических масс.</p>
+
+Автор: Dimas
+
+### 27.05.2002 reviews Интермедия с прологом и эпилогом
+
+<p>Второй альбом норвежской команды, музыканты которой - выходцы из таких известных коллективов, как BLOODTHORN и ATROX. Новый альбом на порядок лучше дебюта. С еще большим упором в сторону классического heavy metal, более гитарно соразмеренный и с выверенным звуком. Некоторые риффы и особенно бас с соло-гитарами звучат в духе IRON MAIDEN, а некоторые жесткие риффы и вокальные партии напоминают скорее PANTERA, такой же грозный и насыщенный звук, ну а некоторые моменты напоминают нам о лучших работах METALLICA. Мрачный и задумчивый heavy metal со своим собственным лицом. Интересный и разнобразный музыкальный материал альбома не даст вам особо скучать. Однако, хотелось бы большего...</p>
+<p> Диск выпущен по лицензии компанией CD-MAXIMUM</p>
+
+Автор: Dimas
+
+### 11.06.2002 reviews Intermedia with prologue and epilogue
+
+<p>The second album of the Norwegian band, which musicians - emigrants from such known collectives, as BLOODTHORN and ATROX. The new album on the order is better than a debut. With an even large emphasis in the party of classical heavy metal, more guitar in proportion to the verified sound. Some riffes and the bass with solo-guitars is sound in spirit of IRON MAIDEN, and some rigid riffes and the vocal parties remind faster PANTERA, same terrible and sated sound, well and some moments remind to us of the best works of METALLICA. Gloomy and thoughtful heavy metal with the own person. Interesting and different musical material of an album will not give you especially to miss. However, it would be desirable greater...</p>
+
+Автор: Vit Belov
+
+### 10.03.2003 news Новости от GRIFFIN
+
+<p>Норвежская группа GRIFFIN готова к записи своего третьего альбома под предварительным названием "Paranoia Overload". Запись альбома пройдет летом в норвежской студии Skansen Lydstudio. Один из продюссеров альбома - Alexi Laiho (CHILDREN OF BODOM). Выход альбома намечен на сентябрь 2003 года.</p>
+
+Автор: Dimas
+
+### 29.05.2003 news Новый альбом GRIFFIN
+
+<p>Норвежская команда GRIFFIN в июле начнет запись своего третьего альбома "No Holds Barred" в Skansen Lydstudio с Alexi Laiho (CHILDREN OF BODOM) в качестве продюсера. Выпуск альбома запланирован в сентябре на новом норвежском лэйбле FaceFront Records.</p>
+
+Автор: Dimas
+
+### 23.04.2004 news Вокалист GRIFFIN серьёзно заболел
+
+Вокалист норвежской группы <B>GRIFFIN</B> <B>Pete Beck </B>перенёс сердечный приступ&nbsp;и находится в больнице. В связис этим будущее группы находится под вопросом. В данный момент <B>GRIFFIN</B> рассматривают возможность выступлений на заявленных летних фестах в Европе.
+Автор: Vit Belov
+
+### 17.02.2005 news Новый альбом GRIFFIN
+
+<P>Норвежская группа&nbsp;<B>GRIFFIN</B> готовит к выпуску в начале лета свой четвертый полнометражный альбом <B>"Lifeforce".</B>&nbsp;Он выйдет на&nbsp;<B>FaceFront Records</B>. Запись его проходила в трондхеймской студии <B>Godt Selskap</B>, микшированием займется <B>Andy LaRoque</B> (<B>KING DIAMOND</B>) в его собственной <B>Los Angered Studio</B>. <A href="http://www.griffin.no/pages/Lifeforce_unm_samples.htm">Здесь</A> можно послушать сэмплы некоторых треков с нового альбома, таких как <B>"Utopia"</B>, <B>"Dungeon"</B>, <B>"Premonition"</B>, <B>"Moment of Madness"</B>, <B>"Building A Future"</B>&nbsp;и <B>"Accelerate"</B>.<BR></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### Griffin 'Wasteland Serenade'

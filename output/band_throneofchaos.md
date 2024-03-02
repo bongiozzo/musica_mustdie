@@ -34,6 +34,46 @@ Divanity
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.06.2000 reviews Очень интересный молодой финский коллектив
+
+<p>Очень интересный молодой финский коллектив. Правда, играет не совсем оригинальную музыку, но делает это настолько профессионально, технично и искренне, что все обвинения отпадают сами собой. Быстрый, чрезвычайно мелодичный, с обилием клавишных партий death-metal с характерным блэковым вокалом. Очень напоминает своих земляков CHILDREN OF BODOM. Так же зло и мелодично в одном флаконе. Слушается на одном дыхании совершенно не надоедая. Очень веселая (но в то же время злая по духу) музыка поднимающая настроения и создающая заряд бодрости на целый день.</p>
+
+Автор: Dimas
+
+### 13.06.2000 reviews Very interesting young Finnish collective
+
+<p>Very interesting young Finnish collective. The truth, plays not absolutely original music, but does it so professionally, technical and is sincere, that all charges pass by themselves. Fast, extremely melodious, with an abundance of keyboard consignments death-metal with characteristic black-voice. Very reminds finnish CHILDREN OF BODOM. As is angry and is melodious in one. Obeys on one breath at all boyer. Very cheerful (but at the same time malicious on spirit) music lifting moods and creating a charge of vivacity on all the day</p>
+
+Автор: Dimas
+
+### 20.08.2002 reviews Второй сезон - самый сложный
+
+<p>В применении к музыке - это второй альбом. После очень хорошего, пусть и не очень оригинального, Menace and Prayer все, кому понравился данный опус, с нетерпением ждали нового релиза. Ну, что же. Видимо первый альбом был не очень удачен в коммерческом плане, иначе, как объяснить то, что уже на втором альбоме группа пустилась во все тяжкие, и из одного из прочной когорты последователей Children Of Bodom превратилась в маловразумительную смесь этих самых COB и Stratovarius с чистым, каким-то готским вокалом. Кстати, по этой причине и перестал петь старый screaming-вокалист. Теперь поют два дяденьки, один похож на Тимо Котипелто (отсюда и сходство со Stratovarius), правда он не вытягивает высокие ноты, а второй перец предпочитает завывания в духе gothic-rock. От старого Throne Of Chaos остались лишь редкие melodic-death запилы с клавишами. Добавьте к этому обилие медляков, псевдо-прогрессивность и туповатую музыку (ориентированную на заезжанные риффы). Непонятно, что это. Вряд ли альбом ждёт какой-либо успех, так как смесь не очень вкусна ни в брутальном, ни в мелодическом смысле.</p>
+
+Автор: Vit Belov
+
+### 15.01.2003 reviews Несусветная чушь или непонятый шедевр непризнанных гениев?
+
+<p>Этому релизу уже "исполнилось" как минимум несколько месяцев, поэтому в Сети можно наткнуться на пугающе большое количество рецензий, авторы коих будто соревнуются друг с другом в том, кто больше выльет дерьма на "Pervertigo" и сбившихся с истинного пути финнов. Ну, если под "истинным путём" человек понимает уже порядком надоевшее подражание местным божкам из CHILDREN OF BODOM (которые сами по себе определённо не стоят и доли народного обожания), то таким горе-рецензентам (горе-критикам, горе-ценителям, горе-слушателям – нужное подчеркнуть) мне остаётся лишь посочувствовать. Признаться, я приступал к ознакомлению с этим диском с некоторой опаской ("а вдруг действительно несусветная чушь?") и… надеждой ("а вдруг это непонятый шедевр непризнанных гениев?"). Что ж, это непонятый шедевр непризнанных гениев. С натяжкой, конечно. С большой натяжкой. Потому как "Pervertigo" – всё-таки не тянет на шедевр, а THRONE OF CHAOS – на гениев. Просто это очень сильная работа, вышедшая из-под пера талантливой группы. "Ненужные эксперименты?" "Поиск собственного лица?" "Глупая и никому не нужная эклектика?" Спасибо, всё это мы уже слышали. И позвольте сказать, что у американцев есть хорошее словечко для ответа на подобные суждения: "bullshit". Нет здесь экспериментов. Нет эклектики. А собственное лицо – есть. Что это я слышу? "Меньше общих слов?" Не вопрос. "Pervertigo" представляет собой крайне интересный, разнообразный и абсолютно небанальный heavy metal с чередующимися партиями изумительного "чистого" вокала (за который отвечает Niklas Isfeldt @ DREAM EVIL) и ласкающего слух гроулинга. Это не melodic death, и тем паче не "просто дэт" – это хэви. Впрочем, нет. Не хэви. Это THRONE OF CHAOS. До безумия чарующая музыка – созданная группой, которая лично для меня стала настоящим открытием.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></p>
+
+Автор: Yermola
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></font></p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

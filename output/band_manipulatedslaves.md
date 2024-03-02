@@ -12,6 +12,21 @@ melodic death from Japan
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.01.2003 reviews Японский melodic-death metal
+
+<p>39 минуты мелодичной агрессии из Японии. Почему-то хочется начать с минусов... Главный из них, качество записи, для подобной музыки не хватает мощи, поэтому остаётся впечатления нехватки напора. В остальном же всё очень хорошо и самое главное довольно разнообразно. После длинного интро, где "запиливает" соло-гитарист, вступает мощная 'Obey the Moon', но безусловным хитом можно назвать 'Halfway To Heaven', где можно услышать женский вокал, фортепиано и даже скрипку. Сравнил бы я, по качеству и по направленности, данный коллектив с отечественными Seducer's Embrace, правда у японцев довольно большой уклон в thrash-metal, что для коллективов из страны восходящего солнца типично. Без явного цитирования, совсем неплохо...</p>
+
+Автор: Vit Belov
+
+### 25.02.2003 reviews Japanese melodic death-metal.
+
+<p>39 minutes of melodic aggessive from Japan. I'd like to begin from minuses... Main is quality of production. For similar music here is not powerness enough, that's why we have impression of shortage of pressure. There is very good and rather different in other parts. After long intro, where solo-guitarist is very good, fast 'Obey the Moon' begins. But i think best song on an album is 'Halfway To Heaven', where we can listen to female vocal, piano and even violin. I can equal MANIPULATED SLAVES with Russian SEDUCER'S EMBRACE, but Japanese band has slope to the thrash-metal, that for bands from country of rising sun is rather typical. Without quotations, not bad.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

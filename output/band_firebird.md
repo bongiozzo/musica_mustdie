@@ -11,6 +11,27 @@
 * C группой "Carcass" guitarist Bill Steer
 * C группой "Napalm Death" guitarist Bill Steer
 
+## Публикации
+
+### 27.08.2002 news Жар Птица от Билла Стира....
+
+<p>Ведомые бывшим гитаристом CARCASS/NAPALM DEATH - Биллом Стиром британцы "FIREBIRD" завершили работу над-пока-еще-не-названным альбомом в шведской Berno Studios. Всего записано 12 песен, причем на Европейский релиз войдут только 10 из них, а расширенный вариант выйдет (как всегда) в Японии. Трек-лист:<BR><BR> 01. End Of The Day<BR> 02. Hard Hearted <BR> 03. Tumbling Down <BR> 04. Off The Leash <BR> 05. Dream Ride <BR> 06. Cross The Line <BR> 07. Stoned Believer<BR> 08. Station <BR> 09. Long Gone <BR> 10. Friend <BR> 11. I Come Creepin <BR> 12. Mistaken Again</p>
+
+Автор: Yermola
+
+### 27.08.2002 news FIREBIRD Complete Work On New CD ...
+
+<p>Britain's FIREBIRD, led by former CARCASS/NAPALM DEATH guitarist Bill Steer, have completed work on their as-yet-untitled album at Berno Studios in Malmц, Sweden for a late 2002 release. <BR><BR> 12 tracks in total were recorded, with the European release likely to contain 10 cuts and the Japanese version (via JVC Records) to include a bonus song. <BR><BR> The complete list of tracks recorded for the effort is as follows:<BR><BR> 01. End Of The Day<BR> 02. Hard Hearted <BR> 03. Tumbling Down <BR> 04. Off The Leash <BR> 05. Dream Ride <BR> 06. Cross The Line <BR> 07. Stoned Believer<BR> 08. Station <BR> 09. Long Gone <BR> 10. Friend <BR> 11. I Come Creepin <BR> 12. Mistaken Again</p>
+
+Автор: Yermola
+
+### 18.05.2006 news FIREBIRD выпустят новый альбом в начале июля
+
+<P>Британцы<STRONG> FIREBIRD</STRONG>, возглавляет которых бывший гитарист <STRONG>CARCASS/NAPALM DEATH Билл Стир</STRONG>, выпустят свой новый альбом "<STRONG>Hot Wings</STRONG>" в Европе в начале июля на лейбле <STRONG>Rise Above Records</STRONG>. В Японии CD выйдет с эксклюзивным бонус-треком 31-го мая на <STRONG>Victor Entertainment</STRONG>.</P>
+<P>"<STRONG>Hot Wings</STRONG>" трек-лист:<BR>01. <STRONG>Carousel<BR></STRONG>02. <STRONG>Good Times</STRONG><BR>03. <STRONG>Misty Morning</STRONG><BR>04. <STRONG>Play The Fool</STRONG><BR>05. <STRONG>Horse Drawn Man</STRONG><BR>06. <STRONG>Overnight<BR></STRONG>07. <STRONG>Bow Bells<BR></STRONG>08. <STRONG>Flying Blind<BR></STRONG>09. <STRONG>I Wish You Well<BR></STRONG>10.<STRONG> Needle In The Groove</STRONG><BR>11. <STRONG>Last Days Of August</STRONG> (Japanese bonus track) </P>
+Автор: mcallen
+
+
 ## Обсуждения
 
 

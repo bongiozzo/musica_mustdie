@@ -44,6 +44,9 @@ Engineered & Mixed By Pauli Ruuskanen.
 
 * C группой "Black Crucifixion" Fornicator (Timo Iivari), Blacksoul (Esa Juuj&auml;rvi)
 
+## Публикации
+
+
 ## Обсуждения
 
 ### Promethean. Gazing the Ivisible

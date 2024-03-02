@@ -172,6 +172,63 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.06.2009 news CALIBAN На Century Media
+
+<P>Немецкий коллектив<STRONG>&nbsp;CALIBAN</STRONG> заключил&nbsp;соглашение с<STRONG> Century Media</STRONG>. Седьмой альбом группы <STRONG>"Say Hello To Tradegy" </STRONG>выйдет 24 августа.</P>
+Автор: Vit Belov
+
+### 28.08.2009 news Новое видео от CALIBAN
+
+<P>Видео <STRONG>CALIBAN</STRONG> на песню <STRONG>"Caliban's Revenge" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER><A href="http://vids.myspace.com/index.cfm?fuseaction=vids.individual&videoid=62443812">CALIBAN - "Caliban's Revenge"</A><BR>
+<OBJECT height=360 width=425><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="wmode" VALUE="transparent"><PARAM NAME="movie" VALUE="http://mediaservices.myspace.com/services/media/embed.aspx/m=62443812,t=1,mt=video">
+<embed src="http://mediaservices.myspace.com/services/media/embed.aspx/m=62443812,t=1,mt=video" width="425" height="360" allowFullScreen="true" type="application/x-shockwave-flash" wmode="transparent"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.10.2009 reviews Питомцы Lifeforce летят в чарты в Америке
+
+<P>Немцы CALIBAN – продукт качественной деятельности лэйбла Lifeforce Records. В конце 90-х его группы казались странными и непонятными, каковыми они в большинстве своём и являлись в той или иной степени. А сейчас они нарасхват у ведущих металл-конюшен, так как оказалось, что их можно запросто обзывать metalcore.</P>
+<P>Я имею в виду ещё и HEAVEN SHALL BURN, кроме всего прочего. С переходом на Roadrunner, а затем и на&nbsp;Century Media CALIBAN пришлось лишь чуть-чуть «облагородить» свою музыку, и у них появились все шансы попасть в чарты. Не с последним альбомом “Say Hello To Tragedy”, но со следующими. Их музыка представляет собой стандартный melo-death с чистыми вокалами, снабжённый современными ритмами, без которых, похоже, теперь уже никуда. Нельзя сказать, что этот альбом валит слушателя наповал, но он оставляет приятное впечатление. Мелодии не слишком просты, качество звука на уровне, да и в тяжести CALIBAN не откажешь.</P>
+<P>Стандартный хороший альбом для этого стиля. Не откровение, но как можно ждать откровения от группы, существующей уже больше 10 лет. Переход на Century Media лишь добавил ей «фирмовости», что и нужно было сделать уже давно.</P>
+Автор: Vit Belov
+
+### 09.02.2011 news CALIBAN готовят альбом с чужими песнями
+
+<P>Немецкие металкорщики <B itxtHarvested="1" itxtNodeId="378">CALIBAN</B> обнародовали следующее заявление:</P>
+<P><EM>"Пришло время для захватывающей новости:&nbsp;мы направляемся в студию на этой неделе, чтобы записать наши версии чужих песен.&nbsp;&nbsp;Наш друг и продюсер&nbsp;<B itxtHarvested="1" itxtNodeId="375">Benny Richter</B>, снова будет присматривать за нами и нам очень нетерпится услышать конечный результат его работы. </EM></P>
+<P><EM>Мы не раскроем секрет того, чьи песни мы собираемся записывать (пока!), но если вы посещали наши концерты зимой,&nbsp;во время последнего европейского тура, то должны были видеть песню <B itxtHarvested="1" itxtNodeId="372">RAMMSTEIN</B> <STRONG>"Sonne" </STRONG>в нашем исполнении, которая будет одной из десяти, что мы запишем.</EM></P>
+<P><EM>Что касается других десяти песен, то мы выбрали самые лучшие, классические треки, что повлияли на нас в юности.&nbsp;Мы, так же, приготовили сюрприз из нескольких песен современности.&nbsp;Мы обещаем вам, все песни будут взяты из разных жанров музыки!"</EM></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.02/18495.jpg" width=400 height=262>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 02.12.2011 news Новый альбом CALIBAN
+
+<P><IMG height=431 alt="" hspace=0 src="/images/news_rus/2011.12/22244.jpg" width=431 align=right border=0>Новая работа финнов <STRONG>CALIBAN</STRONG> <STRONG>"I Am Nemesis" </STRONG>выйдет 28 февраля на <STRONG>Century Media</STRONG>. При записи CD в студии отметились <STRONG>Marcus Bischoff</STRONG> (<B>HEAVEN SHALL BURN</B>)&nbsp;и <B>Mitch Lucker</B> (<B>SUICIDE SILENCE</B>). Трек-лист:</P>
+<P>01. <B>We Are The Many</B><BR>02. <B>The Bogeyman</B><BR>03. <B>Memorial</B><BR>04. <B>No Tomorrow</B><BR>05. <B>Edge Of Black</B><BR>06. <B>Davy Jones</B><BR>07. <B>Deadly Dream</B><BR>08. <B>Open Letter</B><BR>09. <B>Dein R3.ich</B><BR>10. <B>Broadcast To Damnation</B><BR>11. <B>This Oath</B><BR>12. <B>Modern Warfare</B></P>
+Автор: Vit Belov
+
+### 20.12.2011 news Новый ролик CALIBAN
+
+<P>Новый видео-клип <STRONG>CALIBAN</STRONG> на песню <STRONG>"Memorial" </STRONG>можно посмотреть ниже. Трек войдёт на новый альбом коллектива <STRONG>"I Am Nemesis"</STRONG>, который выйдет 6 февраля на <STRONG>Century Media</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT id=flashObj codeBase=http://download.macromedia.com/pub/shockwave/cabs/flash/swflash.cab#version=9,0,47,0 height=412 width=486 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000><PARAM NAME="movie" VALUE="http://c.brightcove.com/services/viewer/federated_f9?isVid=1"><PARAM NAME="bgcolor" VALUE="#FFFFFF"><PARAM NAME="flashVars" VALUE="videoId=1334835991001&playerID=17939753001&playerKey=AQ~~,AAAABC0qSJk~,7vFfEcRs5ltSgxlM9PUnkV9Ftq8SxdYy&domain=embed&dynamicStreaming=true"><PARAM NAME="base" VALUE="http://admin.brightcove.com"><PARAM NAME="seamlesstabbing" VALUE="false"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="swLiveConnect" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://c.brightcove.com/services/viewer/federated_f9?isVid=1" bgcolor="#FFFFFF" flashVars="videoId=1334835991001&playerID=17939753001&playerKey=AQ~~,AAAABC0qSJk~,7vFfEcRs5ltSgxlM9PUnkV9Ftq8SxdYy&domain=embed&dynamicStreaming=true" base="http://admin.brightcove.com" name="flashObj" width="486" height="412" seamlesstabbing="false" type="application/x-shockwave-flash" allowFullScreen="true" swLiveConnect="true" allowScriptAccess="always" pluginspage="http://www.macromedia.com/shockwave/download/index.cgi?P1_Prod_Version=ShockwaveFlash"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.01.2016 news Новый альбом CALIBAN
+
+<P><IMG border=0 hspace=0 alt="" src="/images/news_rus/2016.01/28665.png" width=480 align=right height=480>Новый альбом<STRONG> CALIBAN "Gravity"</STRONG> выйдет 25 марта на <STRONG>Century Media</STRONG>. Трек-лист:</P>
+<P>“Paralyzed”<BR>“Mein schwarzes Herz”<BR>“Who I Am”<BR>“Left For Dead”<BR>“Crystal Skies”<BR>“Walk Alone”<BR>“The Ocean’s Heart”<BR>“brOKen”<BR>“For We Are Forever”<BR>“Inferno”<BR>“No Dream Without A Sacrifice”<BR>“Hurricane”</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### CALIBAN заебашат metalcore в клубе &quot;Plan B&quot; 15 сентября 2012

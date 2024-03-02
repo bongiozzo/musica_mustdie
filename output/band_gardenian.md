@@ -51,6 +51,39 @@
 * C группой "Engel" Niclas Engelin (guitar)
 * C группой "Engel" Robert Hakemo (bass)
 
+## Публикации
+
+### 09.10.1999 reviews 
+
+<p> Эта группа из Швеции. Вряд ли поддаётся счёту количество шведских групп появившихся за последний десяток лет. Все они последовательно развивали собственный стиль, известный сейчас, как шведский death-metal. Сначала это были ENTOMBED, затем DISMEMBER, EDGE OF SANITY, AT THE GATES, DARK TRANQUILLITY, UNANIMATED, DISSECTION. Все они вносили что-то новое и обогащали этот стиль. Казалось, что больше уже ничего придумать нельзя. Дальше развиваться просто некуда. Всё, что можно было придумать - уже придумано. Ан нет! Нашлись герои нашего времени. Ими оказались музыканты из группы GARDENIAN. То, что они изобразили, я рискнул бы назвать progressive-death-black. Нечто похожее пытались изобразить на последнем альбоме и DARK TRANQUILLITY, но они оказались привязаны к своему фирменному звучанию. А GARDENIAN не боятся экспериментировать со своим звучанием. Поэтому некоторые песни звучат довольно мятко, а некоторые просто срывают башню чумовым вихрем гитарных атак. Используются различные вокалы. Вообще видно, что музыканты потрудились на славу. По музыке, это что-то среднее между EDGE OF SANITY и DARK TRANQUILLITY с массой пргрессивных и хэви-металлических фишек.(9)</p>
+
+Автор: Dimas
+
+### 09.08.2000 news Новый альбом Gardenian.
+
+<p>Шведская death-группа Gardenian выпускает новый альбом под названием "Sindustries". Альбом выйдет в свет 25 сентября и представит собой смесь Power и Death Metal. Треклист: "Self Proclaimed Messiah", "Doom & Gloom", "Long Snap To Zero", "Courageous", "Heartless", "The Suffering", "Scissorfight", "Sonic Death", "Monkey", Sindustries & Funeral".</p>
+
+Автор: Phantom Lord
+
+### 28.09.2000 reviews Gardenian продолжают развитие шведского death-metal
+
+<p>Gardenian продолжают развитие шведского death-metal с прилежностью грешников. Музыка стала более спокойной, выдержанной в среднем темпе, много чистого вокала, который, на мой взгляд, иногда только портит впечатление от материала. Музыка мощная, жесткая, гитарно ориентированная. Смесь Dark Tranquillity и Hypocrisy (медленных песенок из их материала. но сыгранных на чуть большей скорости). Иногда попадаются фишки из industrial и angry (особенно заметно на "The Suffering" и "Sindustries"). Это безусловно вносит огромное разнообразие в материал альбома, но может отпугнуть некоторых. Зато рычит вокалист (когда рычит, а не поет чистым голосом) просто классно. Душу греет. Своеобразный и оригинальный материал. Заключительная "Funeral" - очень верное окончание альбома. Но не по смыслу. Рано хороните такую музыку. Мы еще и не такое услышим.</p>
+
+Автор: Dimas
+
+### 23.10.2001 news Новости GARDENIAN...
+
+<p>Вопреки циркулирующим в сети слухам шведские мелодик-дэтстеры "GARDENIAN" после ухода с Nuclear Blast Records, не распались, а активно работают и сейчас пишут новый материал. Уже готовы следующие песни: 01. Drowning Empire 02. Heal All Wound 03. Smother Me</p>
+
+Автор: Yermola
+
+### 23.10.2001 news GARDENIAN are still seeking a new record deal following their split with Nuclear Blast...
+
+<p>Swedish melodic thrashers GARDENIAN are still seeking a new record deal following their split with Nuclear Blast Records and are continuing to write new material, which they hope to record early next year for a late 2002 release. Among the new song titles that are set to appear on the as-yet-untitled CD are the following: 01. Drowning Empire 02. Heal All Wound 03. Smother Me Source: BLABBERMOUTH</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 ### Распались Gardenian

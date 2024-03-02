@@ -283,6 +283,549 @@ Double vinyl version in gatefold sleeve includes the bonus tracks:
 * C группой "Entombed" Jorgen Sandstrom  (bass)
 * C группой "The Project Hate MCMXCIX" Jorgen Sandstrom  (bass)
 
+## Публикации
+
+### 12.09.2001 news Возрождение GRAVE ...
+
+<p>Шведская дэс-металлическая легенда "GRAVE" возродились в новом составе и уже начали работу над грядущим студийным альбомом, который будет записываться в Sunlight Studio с продюссером-ветераном Tomas Skogsberg (ENTOMBED, DISMEMBER, BACKYARD BABIES, etc.) и выйдет на Century Media Records в середине 2002 года. 14-го сентября пройдет живой дебют нового состава в Стокгольмском Рок-Кафе. На сегодняшний день в "GRAVE" входят: <br> Ola Lindgren – guitar/vocals <br> Jonas Torndal – guitar <br> Jensa Paulsson – drums <br> Fredda Isaksson – bass</p>
+
+Автор: Yermola
+
+### 12.09.2001 news GRAVE have reformed with a slightly altered new line-up...
+
+<p>Swedish death metal legends GRAVE have reformed with a slightly altered new line-up and have begun work on the material for a forthcoming studio album, which is tentatively scheduled to be recorded in two or more increments at Sunlight Studio with veteran producer Tomas Skogsberg (i.e. ENTOMBED, DISMEMBER, BACKYARD BABIES, etc.) for a mid-2002 release through Century Media Records. Due to make their live debut this Friday, September 14th at the Hard Rock Cafй in Stockholm, Sweden, the brand new GRAVE line-up consists of the following: <br> Ola Lindgren – guitar/vocals <br> Jonas Torndal – guitar <br> Jensa Paulsson – drums <br> Fredda Isaksson – bass<br> According to Torndal (who had previously played bass for the band in the group’s earliest incarnation), five new songs have thus far been completed towards the upcoming studio album, and if all goes well, a CD’s worth of material will be ready by the end of the year. Based on an instrumental demo version of one of the new tracks that this writer was privileged to hear, the GRAVE sound has remained firmly intact, with big, fat riffs and solid grooves making their presence felt as prominently as they did during the group’s heyday back in the early ‘90s. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 03.02.2002 news Возвращение из могилы
+
+<p>Шведы Grave в феврале отправляются в студию записывать come back - альбом. Он будет вероятно назван "Back From The Grave" и выйдет в июне на Century Media.</p>
+
+Автор: Morsus
+
+### 03.02.2002 news Come back from the Grave
+
+<p>Grave from Sweden will enter the studio in February in order to record their come back album. The album will probably be titled "Back From The Grave" and will be released in June through Century Media.</p>
+
+Автор: Morsus
+
+### 26.03.2002 news Возвращение из могилы
+
+<p>Легенда шведского death metal - группа GRAVE - 3 марта вошла в стокгольмскую Sunlight Studios с продюссером Tomas Skogsberg'ом для записи своего нового, давно ожидаемого, пятого полнометражного альбома "Back From The Grave". Планируется запись девяти песен. Выход альбома намечен на июнь 2002 года через Century Media Records.</p>
+
+Автор: Dimas
+
+### 26.03.2002 news Back From The GRAVE
+
+<p>Swedish death metal legends GRAVE entered Sunlight Studios in Stockholm on Sunday, March 3rd with producer Tomas Skogsberg to begin work on their long-awaited fifth full-lengh CD, entitled Back From The Grave. Nine tracks were reportedly laid down during the sessions, and are currently being finalized for a June release through Century Media Records.</p>
+
+Автор: Dimas
+
+### 21.08.2002 news Возвращение из могилы...
+
+<p>Шведы "Grave" завершили работу над новым альбомом "Back From The Grave". Трек-лист: <BR><BR> 1. Rise (5:25)<BR> 2. Behold The Flames (4:30)<BR> 3. Dead Is Better (3:47)<BR> 4. Four (5:02)<BR> 5. No Regrets (3:32) <BR> 6. Resurrection (4:15)<BR> 7. Below (4:26)<BR> 8. Bloodfed (4:48)<BR> 9. Thorn To Pieces (6:17)<BR><BR> Также издание будет содержать бонус-диск с редкими демо-треками:<BR><BR> 1. Into The Grave (6:14) <BR> 2. Annihilated Gods (5:04) <BR> 3. Infernal Massacre (6:11) <BR> 4. Deformed (5:58) <BR> 5. Reality Of Life (3:34) <BR> 6. Morbid Way To Die (4:37) <BR> 7. Sexual Mutilation (4:41) <BR> 8. Extremely Rotten Flesh (4:34) <BR> 9. Brutally Deceased (3:52) <BR> 10. Septic Excrements (3:05) <BR> 11. Reborn Miscarriage (3:57) <BR><BR> Треки 01-03 взяты с демо 1988 года ”Sick Disgust Eternal”. <BR> Треки 04-07 взяты с демо 1989 года ”Sexual Mutilation”. <BR> Треки 08-11 взяты с демо 1989 года ”Anatomia Corporis Humani”</p>
+
+Автор: Yermola
+
+### 21.08.2002 news Sweden&#39;s Grave have completed their new album....
+
+<p>Sweden's Grave have completed their new album, Back From The Grave - the tracklisting is as follows: <BR><BR> 1. Rise (5:25), 2. Behold The Flames (4:30), 3. Dead Is Better (3:47), 4. Four (5:02), 5. No Regrets (3:32), 6. Resurrection (4:15), 7. Below (4:26), 8. Bloodfed (4:48), 9. Thorn To Pieces (6:17).<BR><BR> The album will also feature a bonus disc - a compilation featuring the following rare Grave demo tracks:<BR><BR> 1. Into The Grave (6:14) <BR> 2. Annihilated Gods (5:04) <BR> 3. Infernal Massacre (6:11) <BR> 4. Deformed (5:58) <BR> 5. Reality Of Life (3:34) <BR> 6. Morbid Way To Die (4:37) <BR> 7. Sexual Mutilation (4:41) <BR> 8. Extremely Rotten Flesh (4:34) <BR> 9. Brutally Deceased (3:52) <BR> 10. Septic Excrements (3:05) <BR> 11. Reborn Miscarriage (3:57) <BR><BR> Tracks 01-03 are from the 1988 ”Sick Disgust Eternal” demo. <BR> Tracks 04-07 are from the 1989 ”Sexual Mutilation” demo. <BR> Tracks 08-11 are from the 1989 ”Anatomia Corporis Humani” demo. <BR><BR> A release date for Return To The Grave has not yet been set.</p>
+
+Автор: Yermola
+
+### 21.11.2002 reviews Триумфальное возвращение?!!!
+
+<p>Широко разрекламированное в андеграундной прессе возвращение одной из легенд шведского, да и мирового тоже, death-metal состоялось... Century Media видимо вложила немалые деньги, чтобы сдуть пыль и вернуть из могилы этих господ. Первым (и единственным?) достоинством альбома является его художественное и музыкальное оформление. Адский буклет, в котором музыканты изображены как до свое воскрешения (в гробиках), так и после (почти все лысые и в шортах), и великолепная запись, на которой в каждом риффе чувствуется Sunlight Studio и Томас Скогсберг. Этим, к сожалению, исчерпываются все плюсы. Творческое бессилие GRAVE поражает, весь диск прописан в одном среднем темпе и слушается, как одна большая занудная песня. И если бы не заигрывания со звуком за режисёрским пультом, слушать было бы совсем невозможно. Я не требую мелодий в death-metal, но дайте мне хотя бы brutal. Недоделанный Black Sabbath... Лучше бы ребятам было оставаться в гробах, как на первых семи страницах буклета, в качестве живых легенд. Удовлетворительно, но только за саунд.</p>
+
+Автор: Vit Belov
+
+### 22.11.2002 articles Новинки лицензионного рынка (15.11 - 22.11)
+
+<p>Эта неделя очень бедна на новинки. Особых хитов тоже незаметно, но читайте, может, что для себя и найдёте.</p>
+<p> AMG на этой неделе отдыхает, единственной новостью стало появление в продаже двух первых альбомов MESSIAH, которые были анонсированы ещё на прошлой.</p>
+<p> CD-MAXIMUM выступили на редкость слабо, разве что Tribute To Helloween, Part 2 может потянуть некоторые продажи, да и то, сказать по правде, увлечение Arise Records трибьютами ещё живой группе очень удивляет. Скоро они будут новые альбомы немцев переиздавать в своих версиях. Ну, и две новинки от Lucretia Records – Mantra и Wuthering Heights. Mantra исполняют традиционный hard rock, а Wuthering Heights speed-progressive (???), который контора очень хвалит, вот только так они хвалят практически всё.</p>
+<p> Fono продолжает удивлять нас отсутствием хронологических новинок. К таким можно отнести только Grave “Back From the Grave” – возвращение классиков death-metal. Первый же альбом Thyrfing и Notre Dame “Coming Soon To A Theatre Near You, The 2nd» сложно отнести к новинкам. Заявлено, что Notre Dame будет в формате DG-pack, надеюсь хотя бы с книжкой.</p>
+<p> Irond Records также представил нашему вниманию DG-pack - концертник THERION “Live In Midgard”. Чудесное оформление двойного диска, 12-страничный буклет и диски с золотым напылением. Переиздание дебютного диска группы Butterfly Temple «Велес» должно порадовать уже довольно большую армию поклонников этой российской группы. Первые диски легендарной польской группы Behemoth собраны на CD 'Storms To Unleash'. Также следует обратить внимание на диск OTYG 'Sagovindars Boning', одна из групп Vintersorg’a. The Gallery с лэйбла Hall Of Sermon уже не требуют рекомендаций. «Слабой» же новинкой следует признать Autumn Clan, gothic rock в духе HIM, ничего особенного.</p>
+<p> У Союза такие же проблемы, как и у Фоно. Выходят новинки, которые уже сделаны пиратами, и даже с книжками. Например, новый альбом Flower Kings только что вышел, а Союз издаёт StarOne Арьена Лукассена, при чём без бонус диска. Спрашивается зачем? Тоже относится к Impelitteri. А концертники Axel Rudi Pell и Blackmore’s Night должны заинтересовать покупателей.</p>
+
+Автор: Vit Belov
+
+### 23.11.2002 reviews Triumphal returning?!!!
+
+<p>Widely advertised in underground press the returning of one of legends Swedish, and world too, death-metal was held... Century Media probably has enclosed considerable money to blow off a dust and to return from a tomb of these misters. By first (and unique?) advantage of an album is its art and musical design. The infernal booklet, in which the musicians are represented before resurrection, and after (almost all bald and in shorts), and the magnificent record, on which in everyone riff is felt Sunlight Studio and Tomas Skogsberg. It, unfortunately, settles all pluss. The creative powerlessness of GRAVE amazes, all disk is written in one average rhytm and one obeys, as large tiresome song. And if not playing with a sound in engineer board it would be absolutely impossible to listen. I do not demand melodies in death-metal, but give me even brutal. Unfinished Black Sabbath.. .. It would be better to the guys to remain in coffins, as on first seven pages of the booklet, as alive legends. Average, but only for sound.</p>
+
+Автор: Vit Belov
+
+### 12.02.2003 news GRAVE Part Ways With Drummer, Announce Replacement ...
+
+<p>Drummer Jensa Paulsson, one of the founding members of legendary Swedish death metallers GRAVE, has left the band due to work- and family-related issues and has been replaced by KAAMOS pounder Cristofer Barkensjц. According to the group's official web site, Cristofer "is an excellent drummer and has been a friend of ours for a long time, so we are very happy to welcome him in the band. He's played two shows with the band already — in Еbo, Finland and Gothenburg, Sweden — filling the chair for Jensa. His first appearance as a member of GRAVE will be at the March Metal Meltdown in New Jersey. We would like to thank Jensa for all the good years and good times and wish him the best of luck in the future."</p>
+
+Автор: Yermola
+
+### 12.02.2003 news GRAVE поменяли барабанщика...
+
+<p>Один из основателей легендарных шведских дэс-металлеров "GRAVE" - барабанщик Jensa Paulsson покинул команду по семейным обстоятельствам. Заменой ему стал ударник "KAAMOS" - Cristofer Barkensjо. По сообщению официального сайта, Cristofer уже успел отыграть с группой несколько шоу в Финляндии и Швеции.</p>
+
+Автор: Yermola
+
+### 21.02.2003 news GRAVE news...
+
+<p>The band have returned from the grave after a six-year hiatus and are back with a vengeance. They will make their first appearance in the U.S. since their reunion at this year’s March Metal Meltdown in Irvington, NJ March 7-9, which should lead into a full U.S. tour later this spring. Drummer Jensa Paulsson, one of the founding members, has recently left the band due to work and family-related issues, he has been replaced by KAAMOS pounder Cristofer Barkensjц. According to the group's official web site, “Cristofer is an excellent drummer and has been a friend of ours for a long time, so we are very happy to welcome him in the band. He's played two shows with the band already in Еbo, Finland and Gothenburg, Sweden filling in for Jensa. His first appearance as a member of GRAVE will be at the March Metal Meltdown. We would like to thank Jensa for all the good years and good times and wish him the best of luck in the future." Back From the Grave is now available, and it proves that the pioneers of Swedish death metal have returned to show the newcomers how things should be done.</p>
+
+Автор: Yermola
+
+### 14.05.2003 news The Swedish death metal pioneers have returned after a six-year hiatus ...
+
+<p>The Swedish death metal pioneers have returned after a six-year hiatus with an uncompromising offering appropriately titled Back From The Grave. This album shows the quartet at their very best and they are currently preparing to embark on a national co-headlining U.S. tour with IMMOLATION, Goatwhore and Crematorium beginning May 27th in New York. The group recently performed at this year’s March Metal Meltdown to rave reviews proving that are back and stronger than ever. Back From the Grave is being heralded their best since the highly acclaimed Soulless release. Both Soulless and Hating Life have just been re-released together on one disc. Both albums were produced at the legendary Studio Sunlight (Entombed/At The Gates) and are also completely remastered with new liner notes. <BR><BR> “The whole album oozes thick, greasy sound, topped by Lindgren's lycanthropic vocals. He barks in the old-school style: clear and comprehensible. Grave have made a ferocious album, reinvigorating death metal by holding their ground.”<BR> --Village Voice; May 2003</p>
+
+Автор: Yermola
+
+### 18.06.2003 news GRAVE made their triumphant return ...
+
+<p>After a seven-year wait U.S. audiences are once again finally able to witness Sweden’s death metal titans. GRAVE made their triumphant return earlier this month alongside other genre leaders Immolation, Goatwhore and Crematorium. In September the group will embark on the Bonded By Metal Over Europe tour throughout Europe alongside labelmates CARNAL FORGE and the bill also features Behemoth, Exodus and Nuclear Assault. <BR><BR> Guitarist/vocalist Ola Lindgren recently checked in with the following update: <BR><BR> “First week of the tour has been completed, 4 more to go. We hooked up with our longtime friends from Immolation and also the great guys in Crematorium and Goatwhore. We had some really good shows this far with fans who waited 7 years or more to see us since our last visit. Since we have so much material to choose from it's impossible to play it all, so we mix the good old stuff with some of the songs from the new album. We want to thank all the fans who came out for the shows this far, be sure to check out the upcoming show dates for your chance to catch this killer package live in the U.S.<BR><BR> In Metal,<BR> Ola and GRAVE"<BR><BR> Back From The Grave continues to garner rave reviews from mainstream and underground press alike.<BR><BR> “Grave have made a ferocious album, reinvigorating death metal by holding their ground.”<BR> - Village Voice, April 2003</p>
+
+Автор: Yermola
+
+### 10.02.2004 news Grave Опять поменяли барабанщика
+
+<B>Pelle Liljenberg (Coercion)</B> стал новым барабанщиком <B>GRAVE</B>. Он сменил <B>Christofer Barkensj&ouml;</B>.
+Автор: Vit Belov
+
+### 17.04.2004 news GRAVE запишут новый альбом
+
+<P><B>GRAVE</B>&nbsp; в ближайшее время войдут в студию <B>Abyss</B>, где вместе с <B>Peter</B> и <B>Tommy Tagtgren</B> запишут новыый альбом <B>"Fiendish Regression"</B>. Пластинка увидит свет в августе-сентябре на <B>CENTURY MEDIA</B>.</P>
+Автор: Vit Belov
+
+### 13.07.2004 news Новый альбом GRAVE
+
+<P>Новый альбом <B>GRAVE</B> <B>"Fiendish Regression" </B>выйдет 23 августа на <B>Century Media</B>. Альбом был записан в Abyss Studio вместе с <B>Peter Tagtgren</B>. Трэк-лист:</P>
+<P><IMG height=303 alt="" hspace=0 src="/images/news_rus/2004.07/6707.jpg" width=300 align="right" border=0>01. <B>Last Journey</B><BR>02. <B>Reborn</B><BR>03. <B>Awakening</B><BR>04. <B>Breeder</B><BR>05. <B>Trial by Fire</B><BR>06. <B>Out of the Light</B><BR>07. <B>Inner Voice</B><BR>08. <B>Bloodfeast</B><BR>09. <B>Heretic</B><BR>Bonus Tracks:<BR>10. <B>Burial At Sea</B> (<B>SAINT VITUS</B> cover)<BR>11. <B>Autopsied</B> (re-recorded <B>GRAVE</B> classic)<BR></P>
+Автор: Vit Belov
+
+### 08.11.2004 articles TOP-50 лицензионных дисков по продажам за октябрь 2004 года*
+
+<TABLE cellSpacing=0 cellPadding=0 width=700 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 213pt; mso-width-source: userset; mso-width-alt: 10386" width=284>
+<COL style="WIDTH: 216pt; mso-width-source: userset; mso-width-alt: 10532" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 213pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=284><STRONG><FONT face=Arial size=2>RAMMSTEIN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 216pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=288><STRONG><FONT face=Arial size=2>REISE REISE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><STRONG><FONT face=Arial size=2>BMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>RHAPSODY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SYMPHONY OF ENCHANTED LANDS, PART II</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>WINTERSUN</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>WINTERSUN</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DARKTHRONE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SARDONIC WRATH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>STORMWARRIOR</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>NORTHERN RAGE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>FEINSTEIN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>THIRD WISH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>PUNGENT STENCH</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMPEAUTY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SHAPE OF DESPAIR</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ILLUSION'S PLAY</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>9 (19)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>THROES OF DAWN</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>QUICKSILVER CLOUDS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DOWN BELOW</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SILENT WINGS:ETERNITY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>11 (6)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="NIGHTWISH  "><FONT size=2><FONT face=Arial>NIGHTWISH<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ONCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MERCENARY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>11 DREAMS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WHITE SKULL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE XIII SKULL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SWALLOW THE SUN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE MOURNING NEVER CAME</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VICTOR SMOLSKI</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MAJESTY AND PASSION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BENEATH THE SHINING WATER</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>17 (3)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAKE OF TEARS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BLACK BRICK ROAD</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>18 (27)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LOVELORN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>19 (15)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DIO</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MASTER OF THE MOON</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>20 (17)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LA CHAMBRE D ECHO</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOWNSEND DEVIN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>OCEAN MACHINE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>22 (30)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA / SIRIUS B (2 CD +<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>slipcase)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CHAMBER</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MILES AWAY - A PREMONITION OF SOLITUDE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANGELZOOM</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANGELZOOM</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PAIN OF SALVATION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="BE "><FONT size=2><FONT face=Arial>BE<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SPASTIC INK</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>INK COMPATIBLE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>UNLEASHED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SWORN ALLEGIANCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HEART</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>JUPITER's DARLING</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>29 (29)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS ICH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAVA:GLUT</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>30 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRENIA (ex-TRISTANIA)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AN ELIXIR FOR EXISTENCE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>31 (Re)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LACUNA COIL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>COMALIES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>32 (7)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALTARIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DIVINITY</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>33 (2)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SAXON</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LIONHEART</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>34 (16)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ABYDOS</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE LITTLE BOY's …</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>35 (11)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TURISAS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BATTLE METAL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>UNHEILIG</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS 2 GEBOT</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>37 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MONSTERS OF METAL</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE ULTIMATEL METAL COMPILATION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>38 (8)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SONATA ARCTICA</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DON'T SAY A WORD (EP)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>39 (43)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EDGUY</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="NIGHTWISH  "><FONT size=2><FONT face=Arial>NIGHTWISH<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ONCE + WISH I HAD AN ANGEL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANOREXIA NEVROSA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRUDENHAUS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALAN PARSONS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>A VALID PATH</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DEAD SOUL TRIBE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE JANNUARY TREE</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOWNSEND DEVIN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PHYSICIST</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>GRAVE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FIENDISH REGRESSION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>46 (Re)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AYREON</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE HUMAN EQUATION (2 CD)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>47 (Re)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRACONIAN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WHERE LOVERS MOURN</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOKEN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PUNCH</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ESTAMPIE</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIGNUM</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>50 (32)</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRIUS B</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>*по результатам продаж в магазине 'Metal&Progressive' в Рубине</P>
+Автор: Vit Belov
+
+### 28.11.2004 reviews GRAVE продолжают гнуть своё
+
+<P>Всё-таки я понял (простите за тупость) шведы<STRONG> GRAVE</STRONG> настоящие легенды. По крайней мере, таковыми их считают мощные боссы с <STRONG>Century Media</STRONG>. Я же этим самым боссом не являюсь, поэтому продолжу своё «грязное» дело.</P>
+<P>Когда я узнал, что новый альбом<STRONG> ‘Fiendish Regression’</STRONG> группа будет записывать в<STRONG> Abyss Studio</STRONG>, мне стало обидно. Последний «плюс» предыдущего альбома испарялся на глазах. Напомню, что в предыдущей серии рассказывалось о чумовом звуке, который нарулил <STRONG>GRAVE Tomas Skogsberg</STRONG> в знаменитой <STRONG>Sunlight Studio</STRONG> на прошлом альбоме<STRONG> ‘Back From The Grave’</STRONG>. Нет, звук <STRONG>Abyss Studio</STRONG> тоже ничего, но только там совсем недавно писались чуть ли не все экстремальные группы из Европы, так что свежести ждать не приходилось. А уж в других компонентах свежести от <STRONG>GRAVE</STRONG> Вы не дождётесь, наверное, уже никогда.</P>
+<P>Альбом <STRONG>GRAVE</STRONG> вновь неинтересен. Совсем. Среднетемповый, тупой и совсем незабойный death-metal находится всё на том же уровне. Пожалуй, альбом немного более «серьёзный», более мрачный, но не ураган, совсем не ураган.</P>
+<P>Диск предоставлен <a href="http://www.fono.ru">Fono</a></P>
+Автор: Vit Belov
+
+### 06.05.2006 news Новый альбом GRAVE
+
+<P>Легендарные шведские дэтстеры <B>GRAVE</B> завершили работу над своим новым альбомом под названием <B>"As Rapture Comes"</B>, выход которого ожидается 25 июля на <B>Century Media Records</B>. Музыканты представят на наш суд девять треков, полных агрессии, зла и брутальности, в большем размере, чем когда-либо. Альбом был записан в <B>Studio Soulless,</B> а микширование выполнил <STRONG>Peter Tagtgren </STRONG>в <B>Abyss Studio</B>. Трек-лист: </P>
+<P><BR><IMG height=245 alt="" hspace=15 src="/images/news_rus/2006.05/10303.jpg" width=245 align=left border=0>1. <B>Intro - Day Of Reckoning</B> (0:49)<BR>2. <B>Burn</B> (6:24)<BR>3. <B>Through Eternity</B> (3:45)<BR>4. <B>By Demons Bred</B> (4:16)<BR>5. <B>Living The Dead Behind</B> (6:26)<BR>6. <B>Unholy Terror</B> (3:44)<BR>7. <B>Battle Of Eden</B> (3:38)<BR>8. <B>Epic Obliteration</B> (4:02)<BR>9. <B>Them Bones</B> (2:32) (<STRONG>ALICE IN CHAINS</STRONG> cover)<BR>10. <B>As Rapture Comes</B> (5:34)<BR></P>
+Автор: Dimas
+
+### 04.08.2006 news Новые двд от Metal Mind
+
+<P>Польский лейбл <STRONG>Metal Mind Productions</STRONG> анонсировал выпуск в ноябре четырех летних шоу состоявшихся в Кракове. Каждое из них выйдет отдельным изданием с дополнениями и прилагаемым аудиодиском. Список:</P>
+<P><STRONG>Obituary –&nbsp;пока не имеет названия&nbsp;</STRONG></P>
+<P><STRONG>Sinister - Prophecies Denied </STRONG></P>
+<P><STRONG>Grave – Enraptured </STRONG></P>
+<P><STRONG>Catamenia – Bringing The Cold To Poland</SPAN></STRONG> </P>
+<P></P>
+Автор: Dimas
+
+### 23.06.2007 news ROCK PALACE OPEN-AIR-2007 в Пушкине
+
+<P>"Пушкинская Медиа Группа" и "DeeP Promotion" (ПЦ Д. Бурмана) представляют:</P>
+<P>"ROCK PALACE OPEN-AIR-2007"<BR>Единственный в России open-air тяжелой рок-культуры.</P>
+<P>Дата: 22 июля (воскресенье)<BR>Место: Пушкин, Запасной (Владимирский) дворец, ул. Садовая, дом 22<BR>Время: 13.00-23.00</P>
+<P>Участники:</P>
+<P>GRAVE (Швеция, Death metal) - впервые в России!<BR>DISMEMBER (Швеция, Death metal)<BR>SWALLOW THE SUN (Финляндия, death/doom metal) - впервые в России!<BR>FALL OF THE LEAFE (Финляндия, gothic metal)<BR>МАСТЕР (Москва, heavy metal)<BR>STARDOWN (nu metal)<BR>PERIMETER (deathcore)<BR>ТРОЛЛЬ ГНЕТ ЕЛЬ (пивной folk)<BR>XE-NONE (Киров, industrial dance metal)<BR>VERGELTUNG (cyber industrial metal)<BR>MORAY EEL (Москва, thrashcore)<BR>О.Х. (Пушкин, heavy/thrash)<BR>CATTLE EXTERMINATION (grindcore)<BR>FROSTED GLASS (thrash/progressive)<BR>DEVILISH DISTANCE (death metal, Самара)</P>
+<P>Билеты: <BR>560 р. - предварительная продажа.<BR>650 р. - на входе в день фестиваля.</P>
+<P>Билеты в магазинах (с 20 июня): Castle Rock, PreeDooRock, Дохлая Рыб-ба, Фенька, OJR, Фаршмаг, Титаники, Айсберги, Десятки, театральные кассы СПБ.</P>
+<P>Проезд на фестиваль из Санкт-Петербурга:<BR>Ровно 15 минут от железнодорожной станции «Купчино» или 30 минут от Витебского вокзала (м. «Пушкинская») на ЛЮБОЙ электричке (направление «от Санкт-Петербурга») до вокзала г. Пушкина. Далее, от вокзала 10 минут пешком вверх по Софийскому бульвару или на маршрутных такси № 370,376,381,382 (УТОЧНИТЬ У ВОДИТЕЛЯ НАПРАВЛЕНИЕ: К ЦЕНТРУ!) до Любезных ворот (стоимость проезда 10-13 рублей). <BR>Либо 20 минут от «м. Московская» на маршрутных такси №№ 545, 342, 347, 299 до Любезных ворот (посадочная остановка за памятником Ленину; стоимость проезда - 25 рублей). <BR>И самый долгий вариант (минут 40) – автобусом № 187 от «м. Московская» до Пушкинского вокзала.</P>
+Автор: Vit Belov
+
+### 03.12.2007 news GRAVE на Regain
+
+<P><STRONG>GRAVE </STRONG>подписали контракт с <STRONG>Regain Records</STRONG> на выпуск своего восьмого альбома. Пластинка предрположительно выйдет весной следующего года.</P>
+Автор: Vit Belov
+
+### 27.12.2007 news GRAVE назвали альбом
+
+<P>Новый альбом <STRONG>GRAVE</STRONG> получил название <STRONG>"Dominion VIII". </STRONG>Альбом выйдет в апреле/мае на <STRONG>Regain Records</STRONG>. В наступающем 2008 году шведы отпразднуют своё 20-летие и в честь этого отправятся в юбилейный тур, в котором будут исполнять старые песни.</P>
+Автор: Vit Belov
+
+### 22.02.2008 news Новая песня GRAVE
+
+<P>Мы уже сообщали, что 21 апреля на <STRONG>Regain</STRONG> выходит новый альбом <STRONG>GRAVE</STRONG> "<STRONG>Dominion VIII</STRONG>". Лэйбл выложил одну новую песню "<STRONG>Bloodpath</STRONG>" на специальную <STRONG>MySpace</STRONG> страничку. Трэк-лист альбома:</P>
+<P>01. <B>A World In Darkness</B><BR>02. <B>Fallen (Angel Son)</B><BR>03. <B>Deathstorm</B><BR>04. <B>Stained By Hate</B><BR>05. <B>Bloodpath</B><BR>06. <B>Annihilated Gods</B><BR>07. <B>Sinners Lust</B><BR>08. <B>Dark Signs</B><BR>09. <B>8th Dominion</B></P>
+<P>Ссылка: <A href="http://www.myspace.com/gravepromo">http://www.myspace.com/gravepromo</A></P>
+Автор: Vit Belov
+
+### 14.03.2008 news GRAVE в туре по России!!!
+
+<P>После удачного тура по СНГ шведской death metal легенды<STRONG> DISMEMBER</STRONG> в 2006 году, очередной представитель шведского old school death metal <STRONG>GRAVE</STRONG> в России! Группа уже успела посетить северную столицу в 2007 году, отлично выступив на фестивале <STRONG>ROCK PALACE</STRONG>. А уже&nbsp; меньше чем через год <STRONG>GRAVE</STRONG> готовы ехать в тур, чтобы представить российским фэнам свой новый альбом "<STRONG>DOMINION VIII</STRONG>".</P>
+<P>05.04 - Москва "Город"<BR>06.04 - Воронеж "Сити"<BR>08.04 - Ростов-на-Дону "Подземка"<BR>10.04 - Тольятти "Генератор"<BR>11.04 - Уфа "Агава"<BR>12.04 - Екатеринбург "КЗ Лаврова"<BR>13.04 - Магнитогорск "Евразия"<BR>14.04 - Самара "Рок-подвал"</P>
+Автор: Vit Belov
+
+### 18.03.2008 articles GRAVE в России, пресс-релиз
+
+<P>The Flaming Arts представляет</P>
+<P>GRAVE</P>
+<P>Российский тур легенды Death Metal</P>
+<P>5 апреля – Москва, клуб Город<BR>6 апреля – Воронеж, клуб City<BR>&nbsp;8 апреля – Ростов-на-Дону, клуб Подземка<BR>10 апреля – Тольятти, клуб Генератор<BR>11 апреля – Уфа, клуб Агава<BR>12 апреля – Екатеринбург, КЗ Лаврова<BR>13 апреля – Магнитогорск, Евразия<BR>14 апреля – Самара, клуб Подвал</P>
+<P>Легендарных GRAVE по праву можно считать одними из отцов шведского death metal как направления наряду с такими коллективами как UNLEASHED, DISMEMBER, ENTOMBED, HYPOCRISY. Корни группы уходят в команду CORPSE, которую Ола Линдгрен, Йорген Сандстром и Йенса Пауллсон основали в 1986 году. Спустя два года они переименовались в GRAVE. Уже своим дебютником «Into the Grave» 1991 года&nbsp; музыканты заявили себя как один из наиболее перспективных коллективов в мире брутальной музыки, альбом был поддержан серией концертов в Европе и Америке.&nbsp; В следующем году вышел "You'll never see…". Он отличался более чистым звуком, был объективно рассчитан на более широкую аудиторию, а критики и вовсе приняли альбом на ура! Этот альбом, равно как и последующий “Soulless”, вышедший в 94-м, музыканты записывали втроем (басист Йонас Торндал ушел из группы после первого тура). После третьего диска басист и вокалист Йорген Сандстром решил покинуть коллектив (спустя пару лет он осядет в ENTOMBED&nbsp; в качестве басиста). Гитарист Ола Линдгрен и ударник Йенса Пауллсон остались вдвоем, но не стали предаваться унынию. Ола, ранее исполнявший вокальные бэки, решил взять на себя основные функции по этой части. В итоге четвертый полноформатник коллектива «Hating Life» был записан дуэтом, Ола записал все гитарные партии, бас и основной вокал. В туре басовые партии исполнил ненадолго вернувшийся Йонас Торндал. После чего группа замолчала на долгие 5 лет. В 2001-м году GRAVE отыграли концерт в стокгольмском Hard Rock Cafe, Йонас вновь оказался в группе, но уже в качестве второго гитариста, а басистом группы стал Фредерик Исакссон. Альбом «Back From the Grave» был записан в середине 2002 года, тогда же группу покинул один из её основателей – ударник Йенса.&nbsp; С сессионным драммером GRAVE едут в Америку и дают там концерты вместе с&nbsp; IMMOLATION, GOATWHORE и CREMATORIUM. Как бы компенсируя годы молчания, с тех пор GRAVE четко раз в два года выдают по пластинке. В 2004 году вышел «Fiendish Regression», а в 2006-м – «As Rapture Comes». В том же году группа сделала настоящий подарок своим фэнам, записав концерт в польской столице на DVD. В прошлом году из группы уже в третий раз ушел Йонас, группа вновь превратилась в трио, а годом раньше опять сменился драммер. Все эти годы, несмотря ни на что, в группе оставался Ола Линдгрен, совершенствовал технику, материал, открывал новые горизонты для группы, собственно, все это он с успехом продолжает делать и сейчас. 21&nbsp; апреля выйдет восьмой студийный альбом коллектива&nbsp; – “Dominion VIII”. Но перед этим у GRAVE запланировано ещё одно важнейшее мероприятие – тур по 8 российским городам, в которых эта легендарная шведская формация выступит впервые.</P>
+<P>Москвичей же ожидает двойной сюрприз. Вместе с GRAVE 5 апреля они также увидят лидеров норвежского Death Metal – коллектив BLOOD RED THRONE, возглавляемый знаменитым гитаристом Tchort, участником CARPATHIAN FOREST и в прошлом EMPEROR. Их последний, уже четвертый по счету альбом, «Come Death», произвел настоящий фурор. Группа сыграет только один концерт в России, так что у московской публики есть уникальный шанс увидеть одну из наиболее перспективных молодых европейских дэт-металлических команд.</P>
+<P>Пресс-релиз подготовил Алан Ахметов (TheMetalList.com)</P>
+Автор: Vit Belov
+
+### 29.03.2008 news GRAVE и BLOOD RED THRONE в Москве
+
+<CENTER><IMG height=300 src="/images/shows_rus/2008.03/12388.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 22.04.2008 reviews Из могилы да на ДВД
+
+<P>Похоже, 24 августа 2006-го года в варшавском клубе Stodola проходил какой-то death metal festival, ибо поляки Metal Mind выпустили по крайней мере три DVD с записями с этого концерта: Obituary, Sinister и вот Grave - "Enraptured", первый&nbsp;DVD этих шведских мясников. Съемки с семи камер, хорошие картинка и звук (2.0 или 5.1), сет-лист из 16 вещей, не считая 'Intro' и&nbsp;'Outro', с альбомов "Into The Grave", "You'll Never See...", "Soulless", "Back&nbsp;From The Grave", "Fiendish Regression" и "As Rapture Comes" плюс 'Reborn Miscarriage', которая, если не ошибаюсь, была только на demo или EP. Так что тем, кто не смог побывать на недавних российских концертах группы, представляется прекрасная возможность восполнить этот пробел. Grave показывают себя в прекрасной форме, хотя после прослушивания нескольких номеров их музыка кажется довольно однообразной,&nbsp;но любителям жанра этого только, собственно, и надо. Польская публика это вам не немцы какие-нибудь, рубятся и трясут хаером не хуже наших соотечественников. Так что полный угар. На DVD вы также можете увидеть интервью с двумя участниками коллектива, Ola Lindgren (вокал, гитара) и Jonas Torndal (гитара), почитать биографию группы (в том числе по каждому участнику в отдельности), ознакомиться с дискографией Grave, посмотреть фотогалерею и скачать "обои" для рабочего стола; в качестве бонус-видео вы увидите два концертных клипа ('Rise' и&nbsp;'Into The Grave') и "нормальный" клип&nbsp;'Soulless'. Вполне успешный результат для дебютного DVD. Поклонники Grave (которые могут поискать лимитированное издание, включающее CD с записью концерта в Варшаве) да и вообще любители шведского мясца, думаю, не будут разочарованы.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 23.04.2010 news Новый альбом GRAVE
+
+<P>Шведы <STRONG>GRAVE</STRONG> заканчивают работу над новым альбомом <B>"Burial Ground"</B>, который выйдет 14 июня на <STRONG>Regain Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>Liberation</B><BR>02. <B>Semblance In Black</B><BR>03. <B>Dismembered Mind</B> <BR>04. <B>Ridden With Belief</B> <BR>05. <B>Conquerer</B> <BR>06. <B>Outcast</B> <BR>07. <B>Sexual Mutilation</B><BR>08. <B>Bloodtrail</B><BR>09. <B>Burial Ground</B></P>
+Автор: Vit Belov
+
+### 27.04.2010 news Новый альбом GRAVE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.04/16624.jpg" width=400 height=396>Щведские культовы детстеры <STRONG>GRAVE</STRONG> выпустят свой новый альбом <STRONG>"Burial Ground"</STRONG> 14 июня на <STRONG>Regain Records</STRONG>. Обложку&nbsp;для&nbsp;альбома нарисовал <STRONG>Costin Chioreanu</STRONG> (<STRONG>"Twilight13 Media"</STRONG>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист альбома: </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B itxtvisited="1">Liberation</B><BR itxtvisited="1">02. <B itxtvisited="1">Semblance In Black</B><BR itxtvisited="1">03. <B itxtvisited="1">Dismembered Mind</B> <BR itxtvisited="1">04. <B itxtvisited="1">Ridden With Belief</B> <BR itxtvisited="1">05. <B itxtvisited="1">Conquerer</B> <BR itxtvisited="1">06. <B itxtvisited="1">Outcast</B> <BR itxtvisited="1">07. <B itxtvisited="1">Sexual Mutilation</B><BR itxtvisited="1">08. <B itxtvisited="1">Bloodtrail</B><BR itxtvisited="1">09. <B itxtvisited="1">Burial Ground</B><BR itxtvisited="1"></P></FONT>
+Автор: Headcrusher
+
+### 20.05.2010 news Новая песня GRAVE
+
+<P><IMG height=396 alt="" hspace=0 src="/images/news_rus/2010.05/16740.jpg" width=400 align=right border=5>Новый альбом шведских классиков death-metal <STRONG>GRAVE</STRONG> <STRONG>"Burial Ground" </STRONG>выходит 14 июня на <STRONG>Regain Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>Liberation</B><BR>02. <B>Semblance In Black</B><BR>03. <B>Dismembered Mind</B> <BR>04. <B>Ridden With Belief</B> <BR>05. <B>Conquerer</B> <BR>06. <B>Outcast</B> <BR>07. <B>Sexual Mutilation</B><BR>08. <B>Bloodtrail</B><BR>09. <B>Burial Ground</B></P>
+<P>Песню <STRONG>"Liberation" </STRONG>можно послушать на<STRONG> MySpace</STRONG>: <A href="http://www.myspace.com/regainrecords">http://www.myspace.com/regainrecords</A></P>
+<P>Обложку для этого альбома нарисовал <STRONG>Costin Chioreanu. </STRONG>Предыдущий альбом шведов <STRONG>"Dominion VIII" </STRONG>вышел в апреле 2008 года. К сожалению, в России он не издавался.</P>
+Автор: Vit Belov
+
+### 08.07.2011 news GRAVE вернулись на Century Media
+
+<P><STRONG>GRAVE</STRONG> заключили новую сделку с <STRONG>Century Media</STRONG>. Их дебютный альбом <STRONG>"Into The Grave"</STRONG>, который вышел 20 лет назад, стал десятым номером каталога начинающего тогда лэйбла. Первый раз пути конторы и шведской группы разошлись после релиза пластинки <STRONG>"As Rapture Comes" </STRONG>в 2006 году. Два альбома <STRONG>GRAVE</STRONG> <STRONG>"Dominium VIII"</STRONG> (2008)&nbsp;и <B>"Burial Ground"</B> (2010) выпустили на <STRONG>Regain Records</STRONG>. </P>
+<P>Фотографию с радостными лицами воссоединившихся можно посмотреть ниже.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.07/19992.jpg" width=475 height=312> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.08.2011 news Новый проект музыкантов GRAVE и Ralph Santola
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=314 alt="" hspace=0 src="/images/news_rus/2011.08/20593.jpg" width=475 align=right border=0>Три члена легендарной шведской группы<STRONG> GRAVE</STRONG> объединили свои усилия с гитаристом <STRONG>Ralph Santolla</STRONG> (<B>OBITUARY</B>, <B>DEICIDE</B>) в новой группе, названной<STRONG> REDSCREAM</STRONG>. В настоящее время проект репетирует в Стокгольме. При сочинении материала музыканты вдохновлялись музыкой <STRONG>IMMORTAL</STRONG>, <B>DEF LEPPARD</B>, <B>DIMMU BORGIR</B>, <B>KATY PERRY</B>, <B>SCORPIONS</B>, <B>KISS</B>, <B>RAINBOW</B> и <B>TRIPTYKON.</B></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Состав:</FONT></P>
+<P><STRONG>Ralph Santolla</STRONG> (OBITUARY, DEICIDE) - Guitar<BR><B>Ola Lindgren</B> (GRAVE) - Guitar<BR><B>Tobias Cristiansson</B> (GRAVE) - Bass<BR><B>Ronnie Bergerstal</B> (GRAVE) - Drums<BR>[To Be Announced] - Lead Vocals</P>
+<P><STRONG>Facebook</STRONG>: <A href="http://www.facebook.com/redscreamofficial">http://www.facebook.com/redscreamofficial</A></P>
+Автор: Vit Belov
+
+### 02.09.2011 news Новый проект гитариста&#x2F;вокалиста GRAVE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Один из основателей шведской death-metal группы <STRONG>GRAVE</STRONG> гитарист/вокалист <STRONG>Ola Lindgren </STRONG>создал новый проект под названием <STRONG>GREY HEAVENS</STRONG>. В записях новой формации музыкант хочет использовать идеи, которые не подходят для его основной группы, творчество <STRONG>Ola </STRONG>в рамках <STRONG>GREY HEAVENS </STRONG>носит более экспериментальный и мрачный характер.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Lindgren</STRONG> начинает набирать музыкантов для проекта, уже объявлено, что партии барабанов на будущем альбоме исполнит <STRONG>Norman Lonhard </STRONG>из <STRONG>TRIPTYKON. </STRONG>Три демо-записи этого проекта можно послушать ниже.</FONT></P>
+<P>
+<CENTER>
+<DIV><EMBED id=FlashDiv style="DISPLAY: inline" src=http://www.myspace.com/music/song-embed?songid=49634035&getSwf=true width=400 height=77 type=application/x-shockwave-flash quality="high" wmode="transparent" FlashVars="songId=49634035&pid=-4225979648361514276" AllowScriptAccess="always">&nbsp;</DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 07.06.2012 news Дата релиза GRAVE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> GRAVE</STRONG> <STRONG>"Endless Procession Of Souls" </STRONG>выйдет 27 августа на <STRONG>Century Media</STRONG>. Группа записала 12 песен в собственной <STRONG>Studio Soulless. </STRONG>По словам музыкантов, новый альбом комбинирует тяжесть двух последних релизов, драйв "<STRONG>Soulless</STRONG>" и небольшую долю мрачности "<STRONG>Into The Grave</STRONG>".</FONT></P>
+<P><center><IMG border=0 src="/images/news_rus/2012.06/24131.jpg" width=475 height=291></P>
+Автор: Vit Belov
+
+### 22.06.2012 news GRAVE: трек-лист и обложка альбома &quot;Endless Procession Of Souls&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.06/24228.jpg" width=400 height=400>Шведские death metal ветераны группа <STRONG>GRAVE</STRONG>, опубликовали трек-лист и обложку альбома "<STRONG>Endless Procession Of Souls</STRONG>", который выходит 27 августа (в Европе)&nbsp;на лейбле <STRONG>Century Media</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Автор обложки: <STRONG>Costin Chioreanu</STRONG> (<STRONG>"Twilight13 Media"</STRONG>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>01. <STRONG>Dystopia</STRONG><BR>02. <STRONG>Amongst Marble And The Dead<BR></STRONG>03. <STRONG>Disembodied Steps<BR></STRONG>04. <STRONG>Flesh Epistle<BR></STRONG>05. <STRONG>Passion Of The Weak<BR></STRONG>06. <STRONG>Winds Of Chains<BR></STRONG>07. <STRONG>Encountering The Divine<BR></STRONG>08. <STRONG>Perimortem</STRONG><BR>09. <STRONG>Plague Of Nations<BR></STRONG>10. <STRONG>Epos</STRONG></P>
+Автор: Headcrusher
+
+### 07.09.2015 news Обложка нового GRAVE
+
+<P><STRONG>GRAVE</STRONG> опубликовали обложку нового альбома "<STRONG>Out Of Respect For The Dead</STRONG>", который выйдет 16 октября на <STRONG>Century Media</STRONG>. Работу выполнил <STRONG>Costin Chioreanu,</STRONG> который уже работал с шведами на прошлом альбоме.</P>
+<P><center><IMG border=0 src="/images/news_rus/2015.09/28293.jpg" width=640 height=640></P>
+Автор: Vit Belov
+
+### 14.11.2015 news Бокс-сет от GRAVE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>GRAVE "Out Of Respect For The Dead"</STRONG> вышел 16 октября на <STRONG>Century Media</STRONG>. Работа доступна в формате лимитированного бокса, на который также попал мини-альбом "<STRONG>Morbid Ascent</STRONG>", до этого выходивший только на виниле, а так же значки и магнит. Приобретайте здесь: <A href="http://escapemind.ru/goods/GRAVE-Out-of-Respect-for-the-Dead-LTD-BOX-SET">http://escapemind.ru/goods/GRAVE-Out-of-Respect-for-the-Dead-LTD-BOX-SET</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CD 1 <BR>01. Intro / Mass Grave Mass (05:32) <BR>02. Flesh Before My Eyes (05:16) <BR>03. Plain Pine Box (04:20) <BR>04. Out Of Respect For The Dead (04:11) <BR>05. The Ominous "They" (05:26) <BR>06. Redeemed Through Hate (04:43) <BR>07. Deified (04:26) <BR>08. Trail Of Ungodly Trades (04:38) <BR>09. Grotesque Glory (09:48) </STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CD 2 <BR>01. Venial Sin (05:06) <BR>02. Morbid Ascent (05:30) <BR>03. Possessed (originally by Satyricon) (05:26) <BR>04. Epos (Risen From The Tomb remix) (06:11) <BR>05. Reality Of Life (new version) (03:51)</STRONG></FONT></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/RbAyWFbFmW0" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Кто что посоветует из Grave Digger?

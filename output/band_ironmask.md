@@ -87,6 +87,59 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.08.2005 reviews Магические мелодии, явившиеся Душану Петросси во сне
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Неоклассический проект <STRONG>Dushan Petrossi</STRONG> из группы <STRONG>MAGIC KINGDOM</STRONG> типичный представитель конструктора в тяжёлой музыке. Нет, это хороший конструктор. Скажем, LEGO. Не "Самоделкин", нет, хотя на эту мысль может навести наличие в составе двух наших соотечественников <STRONG>Василия Молчанова</STRONG> и <STRONG>Антона Архипова</STRONG>. "Это нога, у кого надо нога", - скажем мы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ведь кроме <STRONG>Петросси</STRONG> и двух наших, в составе <STRONG>Richard Andersson</STRONG> (нео-классик Всея Вселенной), а также бывший вокалист <STRONG>AT VANCE Oliver Hartmann</STRONG>. Реализация на высочайшем уровне, мелодии... Конфетка. В буклете написано, что <STRONG>Душан</STRONG> сочинил их сам, <STRONG>Ричард</STRONG> ему не помогал... Что ж. Их, эти мелодии, сочинили ни<STRONG> Душан</STRONG>, и ни <STRONG>Ричард</STRONG>, а Господь Бог, или Моцарт с Бахом, уже не помню. Эти мелодии являлись всем им, должно быть, во сне. Это своего рода Лаура Петрарки, или&nbsp;Трилогия Мальмстина, у них множество имён. На нашем этапе&nbsp;имя им неоклассика. Ещё одним чудесным качеством&nbsp;этих мелодий является то, что, услышав их, человек немедленно покупает диск. Вот так, шёл не о чём не думал, а потом смотришь уже купил. Вставил в дискман и думаешь, ничего ведь особенного, а цепляет...</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В общем, вы поняли.</FONT></P>
+Автор: Vit Belov
+
+### 26.11.2009 news Новый альбом IRON MASK
+
+<P>15 января на<B> Lion Music</B> выходит новый альбом<B> IRON MASK "Shadow Of The Red Baron"</B>.&nbsp;Ниже&nbsp;можно посмотреть видео на первый сингл с альбома <B>"Forever In The Dark"</B>.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/1SGuA-UTSHk&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/1SGuA-UTSHk&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 03.10.2011 news IRON MASK на AFM
+
+<P><STRONG>IRON MASK</STRONG> заключили соглашение с<STRONG> AFM</STRONG>. Группа, в которой место у микрофона сейчас занимает <STRONG>Mark Boals (YNGWIE MALMSTEEN, ROYAL HUNT)</STRONG>, выпустит свй новый альбом "<STRONG>Black As Death</STRONG>" в декабре этого года. </P>
+<P><center><IMG height=570 src="/images/news_rus/2011.10/21343.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 28.11.2011 news Новый альбом IRON MASK
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.11/22136.jpg" width=400 align=right border=0>16 декабря на <STRONG>AFM</STRONG> выходит новый альбом неоклассиков <STRONG>IRON MASK "Black As Death"</STRONG>. Трек-лист:</P>
+<P>01. <STRONG>From Light Into The Dark</STRONG><BR>02. <STRONG>Black As Death<BR></STRONG>03. <STRONG>Broken Hero<BR></STRONG>04. <STRONG>Feel The Fire<BR></STRONG>05. <STRONG>Genghis Khan</STRONG><BR>06. <STRONG>God Punishes, I Kill</STRONG><BR>07. <STRONG>Rebel Kid<BR></STRONG>08. <STRONG>Blizzard Of Doom<BR></STRONG>09. <STRONG>The Absence<BR></STRONG>10. <STRONG>Magic Sky Requiem<BR></STRONG>11. <STRONG>Nosferatu<BR></STRONG>12. <STRONG>When All Braves Fall</STRONG></P>
+Автор: Vit Belov
+
+### 30.05.2012 news Новое видео IRON MASK
+
+<P>Новый клип<STRONG> IRON MASK</STRONG> на песню <STRONG>"God Punishes, I Kill" </STRONG>можно посмотреть ниже. Трек взят с последнего альбома коллектива <STRONG>"Black As Death"</STRONG>, который вышел в декабре на <STRONG>AFM/Фоно</STRONG>.</P>
+<P>Лицензионную версию альбома можно приобрести в нашем магазине: <A href="/ru/shop">http://musica.mustdie.ru/ru/shop</A></P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/3872eYI1AaQ?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 15.08.2016 news Новый альбом IRON MASK
+
+<p>Новый альбом <strong>IRON MASK "Diabolica"</strong> выйдет 30 сентября на<strong> AFM</strong>. Работа стала дебютом для нового вокалиста коллектива <strong>Diego Valdez</strong> (HELKER), голос которого заслуженно сравнивают с Dio. </p><p>Трек лист:</p><p>01. I Don't Forget, I Don't Forgive<br>02. Doctor Faust<br>03. Galileo<br>04. Oliver Twist<br>05. March 666<br>06. All For Metal<br>07. The Rebellion Of Lucifer<br>08. Diabolica<br>09. The First And The Last<br>10. Ararat<br>11. Flying Fortress<br>12. Cursed In The Devil's Mill</p><p><center><img width="500" height="500" src="/images/news_rus/2016.08/29811.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 15.08.2016 news New album by IRON MASK
+
+<p>The new<strong> IRON MASK</strong> album <strong>"Diabolica"</strong> will be released September 30 via <strong>AFM</strong>. CD was the debut for new vocalist of the band <strong>Diego Valdez</strong> (HELKER), whose voice is deservedly compared to Dio.</p><p>Track list:</p><p>01. I Don't Forget, I Don't Forgive<br>02. Doctor Faust<br>03. Galileo<br>04. Oliver Twist<br>05. March 666<br>06. All For Metal<br>07. The Rebellion Of Lucifer<br>08. Diabolica<br>09. The First And The Last<br>10. Ararat<br>11. Flying Fortress<br>12. Cursed In The Devil's Mill</p><p><center><img width="500" height="500" src="/images/news_rus/2016.08/29811.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 22.10.2016 reviews Хороший предсказуемый альбом
+
+<p>Iron Mask — проект гитариста Dushan Petrossi. Этот подвижник от гитары предлагает нашему вниманию две группы, ещё одним его детищем является MAGIC KINGDOM. В каждой группе постоянно меняется состав, включая вокалистов, и под каждой вывеской&nbsp; гитарист сочиняет идентичную музыку, поэтому целесообразность существования сразу двух проектов от Dushan Petrossi вызывает сомнение. </p><p>У IRON MASK выходит уже шестой альбом. В этот раз после лихорадочной смены вокалистов с группой записался отличный певец Diego Valdez (HELKER), заслуженно носящий титул латиноамериканского Dio. При всей предсказуемости звучания и некоторой однотипности композиции IRON MASK всегда оставляли приятное впечатление. В этот раз Petrossi ничем не удивляет, его музыка всё тот же неоклассический power metal с обучающей лирикой для детей из начальной школы. Группа рассказывает о Галилее, Гитлере, Докторе Фаусте, Оливере Твисте, так что если Вы плохо учились в школе, Вам будет полезно почитать и тексты. Я до конца не смог разобраться, то ли сама неоклассика вызывает столь тёплые ассоциации в мозгу, то ли Dushan умеет её играть как-то по-особому, но альбом IRON MASK мне снова понравился. И даже запредельно длинное его звучание (75 минут) не вызывает скуки.</p><p>Недостатки этого альбома, да и всех альбомов IRON MASK на поверхности. Музыка группы проста до неприличия, все ходы когда-то кем-то уже были сыграны, но прослушивание новых работ это встреча со старым другом. Всегда знаешь, что он тебе скажет, но общаться всё равно приятно. Так и с IRON MASK, всегда знаешь, что они запишут для нового альбома, но всегда слушаешь это с удовольствием.</p><p>Покупайте на Escapemind.ru: <a href="http://escapemind.ru/goods/IRON-MASK-Diabolica">http://escapemind.ru/goods/IRON-MASK-Diabolica</a></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

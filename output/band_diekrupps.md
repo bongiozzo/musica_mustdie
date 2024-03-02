@@ -225,6 +225,40 @@ CD2 (ltd. edition):
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.10.2002 news Новое посвящение METALLICA
+
+<p>2 декабря 2002 года на Nuclear Blast Records выходит очередной альбом из серии трибьютов группе METALLICA "A Tribute To The Four Horseman". В альбом войдут следующие вещи от известных групп:</p>
+<p> <IMG SRC="/images/news_rus/2002.10/3292.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> 01. PRIMAL FEAR - Seek & Destroy* <BR> 02. THERION - Fight Fire With Fire* <BR> 03. DESTRUCTION - Whiplash<BR> 04. ANTHRAX - Phantom Lord<BR> 05. SONATA ARCTICA - Fade To Black* <BR> 06. BURDEN OF GRIEF - Master Of Puppets<BR> 07. DARK TRANQUILLITY - My Friend Of Misery<BR> 08. CREMATORY – One* <BR> 09. IN FLAMES - Eye Of The Beholder <BR> 10. PRIMUS - The Thing That Should Not Be <BR> 11. APOCALYPTICA - Harvester Of Sorrow <BR> 12. DIE KRUPPS - Battery <BR> 13. SINNER - Wherever I May Roam* <BR> 14. RAGE – Motorbreath</p>
+<p> Знаком * помечены эксклюзивные трэки записанные только для этой компиляции и нигде больше нереализованные.</p>
+
+Автор: Dimas
+
+### 20.07.2015 news DIE KRUPPS выпускают альбом &quot;V - Metal Machine Music&quot;
+
+<P>Легенда индастриала, группа <STRONG>DIE KRUPPS</STRONG>, объявила о выпуске нового альбома под названием <STRONG>"V - Metal Machine Music"</STRONG>. Дата выхода назначена на 28 августа этого года. Выпускающая компания, пока, не известна. Обложку альбома можно увидеть ниже.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.07/28182.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 17.10.2015 news DIE KRUPPS: клип &quot;Kaltes Herz&quot;
+
+<P>Индустриальщики <STRONG>DIE KRUPPS</STRONG> представили клип на песню <STRONG>"Kaltes Herz"</STRONG> со своего свежего альбома <STRONG>"V - Metal Machine Music"</STRONG>.</P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/-0MIJ2p_ztk" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 07.04.2016 news DIE KRUPPS выпускают первый &quot;живой&quot; релиз
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Industrial группа <STRONG>DIE KRUPPS</STRONG> впервые за свою карьеру выпускает концертный релиз. Диск получил название <STRONG>"Live Im Schatten Der Ringe</STRONG>" в двух форматах: DVD+2CD и Blu-Ray+2CD. Дата выхода: 13 мая 2016.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предзаказ доступен по ссылке: <A href="http://shop.afm-records.de/en/die-krupps-en">http://shop.afm-records.de/en/die-krupps-en</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.04/29091.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Rammstein vs KMFDM/Die Krupps

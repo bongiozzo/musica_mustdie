@@ -60,6 +60,27 @@ Booklet Layout by Redblack
 
 * C группой "Root" Peter "Blackie" Hosek
 
+## Публикации
+
+### 14.02.2002 reviews Наследники давних традиций
+
+<p>Наследники давних традиций. Второй альбом сольного проекта чешского музыканта по имени Peter "Blackie" Hosek (ROOT). Вышел он спустя пять лет после дебюта и содержит материал написанный с 1993 по 2000 года. Материал альбома выдержан в лучших традициях BATHORY времен "Hammerheart" и "Twilight Of The Gods", но на более современном и совершенном уровне. Сыроватый выверенный звук гитар, эпичность и мрачность помноженная на меланхоличность и особую мелодичность. Много акустических фрагментов и разнообразие вокалов, от чистого низкого до фирменного "квортоновского". Атмосферная и очень эмоциональная музыка, с интересными и разнообразными песнями, но иногда чуть затянутая, и, от того, моментами скучноватая. Местами, это смахивает на viking metal, а иногда на языческий doom metal с фолковыми мотивами. Большинство волияний заметно от BATHORY, ANATHEMA и TYPE O'NEGATIVE, а также от кельтской музыки. Влияния многочисленные, и не только музыкальные. Но идеи других групп обогащены, упорядоченны, и к ним добавлены новые идеи. Неплохой альбом, способный скрасить час одиночества и бездействия. Однако, перенасыщение подобной музыкой недопустимо.</p>
+
+Автор: Dimas
+
+### 25.01.2003 news Готовится третий альбом Cales
+
+<p>Практически закончена запись третьего альбома Cales, сольного проекта Blackie из культовой чешской группы Root. Называться он будет "Uncommon Excursion". Сейчас записываются вокальные партии, которые все будут на совести шоумена Skunny из Sad Harmony. Внесли свой вклад в альбом и другие приглашённые музыканты известных чешских команд: Zuzana Lipova (Dying Passion), барабанщик Radoss (Endless), Alesh (ex-Root, The Squirm), а также барабанщик Evil из Root, отстучавший в большинстве песен на "Uncommon Excursion". Микширование альбома состоится в марте. Готовый продукт из 15 композиций общей продолжительностью около 70 минут выйдет в апреле на Redblack Productions. Материал в значительной степени отличается от того, что было на "The Pass In Time". Теперь это спокойная расслабляющая музыка, не содержащая каких-либо депрессивных моментов. Как говорит Blackie, последнее время он вёл праздный богемный образ жизни, и это нашло своё отражение в музыке.</p>
+
+Автор: Morsus
+
+### 25.01.2003 news The third album of Cales
+
+<p>Cales, project of Blackie from Root, have recorded bases for their third album called "Uncommon Excursion". Band are currently recording solo vocals which will be completely sung by showman Skunny from Sad Harmony Band. Band finished the cooperation with De Sed but may be it will be renovated in a future again. There will be featured a few guest musicians on the new album: Zuzana Lipova (Dying Passion), drummer Radoss (Endless), Alesh (ex-ROOT member, The Squirm band actually) and, of course, the drummer Evil of ROOT who drummed most of "Uncommon Excursion". The mix of the album will be done during March. 15 songs to be recorded. CD will show about 70 minutes and will be released in April on Redblack Productions. New album will be deflected pretty much from the style of the previous album "The Pass In Time". As say Blackie, He lived very bohemian life through the last a few years so it must be approved on the album. The result is relaxing and supler music that doesn't contain any depressive moment. But nevertheless it's still fuckin' ravenous and rebel.</p>
+
+Автор: Morsus
+
+
 ## Обсуждения
 
 

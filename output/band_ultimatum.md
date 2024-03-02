@@ -42,6 +42,16 @@ Thrash Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 27.06.2009 news Альбом каверов от ULTIMATUM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.06/14243.jpg" width=400 align=right vspace=5 border=0>Группа <STRONG>ULTIMATUM </STRONG>назвала свой пятый альбом - <STRONG>"Lex Metalis"</STRONG>. В диск войдут кавер версии на&nbsp;известные металлические песни. Ответственная за выпуск <STRONG>Retroactive</STRONG> <STRONG>Records</STRONG> обещает выпустить <STRONG>"Lex Metalis"</STRONG> в течении лета (предположительная дата - 21 июля).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>01.&nbsp;<STRONG>Ton Of Bricks</STRONG> (Metal Church)&nbsp;<BR>02.&nbsp;<STRONG>Locked In Chains</STRONG> (The Moshketeers)&nbsp;<BR>03.&nbsp;<STRONG>Sin After Sin</STRONG> (Twisted Sister)&nbsp;&nbsp;<BR>04.&nbsp;<STRONG>Creeping Death</STRONG> (Metallica)&nbsp;&nbsp;<BR>05.&nbsp;<STRONG>Denim And Leather</STRONG> (Saxon)&nbsp;<BR>06.&nbsp;<STRONG>Gut Wrench</STRONG> (Mortification)&nbsp;<BR>07.&nbsp;<STRONG>Motopsycho</STRONG> (Megadeth)&nbsp;<BR>08.&nbsp;<STRONG>Metal Health</STRONG> (Quiet Riot)&nbsp;<BR>09.&nbsp;<STRONG>Steeler</STRONG> (Judas Priest)<BR>10.&nbsp;<STRONG>Iron Fist</STRONG> (Motorhead)&nbsp;&nbsp;<BR>11.&nbsp;<STRONG>Can't Get Out</STRONG> (Vengeance Rising)&nbsp;&nbsp;<BR>12.&nbsp;<STRONG>Wrathchild</STRONG> (Iron Maiden)&nbsp;&nbsp;<BR>13.&nbsp;<STRONG>Powersurge</STRONG> (Overkill)</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -230,6 +230,1272 @@ Japanese bonus track:
 * C группой "Testament" Steve 'Zetro' Souza (vocal)
 * C группой "Tenet" Steve 'Zetro' Souza (vocal)
 
+## Публикации
+
+### 14.09.2000 news Новый альбом Six Feet Under
+
+<p> Новый альбом Six Feet Under будет называться "Graveyard Classics", и это будет сборник кавер-версий песен таких групп, как: Savatage, Black Sabbath, AC/DC, Accept, Exodus, Sex Pistols, Angelwitch, Dead Kennedys, Deep Purple, Scorpions, Hendrix и Venom.</p>
+
+Автор: Nybras
+
+### 14.09.2000 news New album of Six Feet Under
+
+<p> The new album of Six Feet Under will be titled "Graveyard Classics" and it will be a covers album with the band paying tribute to the bands that influenced them. The album will feature songs from Savatage, Black Sabbath, AC/DC, Accept, Exodus, Sex Pistols, Angelwitch, Dead Kennedys, Deep Purple, Scorpions, Hendrix and Venom.</p>
+
+Автор: Nybras
+
+### 06.02.2002 news Исход продолжается
+
+<p>Калифорнийские трэшеры EXODUS, потерявшие на прошлой неделе Пола Бэллофа, погибшего в автокатастрофе, намерены продолжать свою деятельность. Новым вокалистом группы станет Стив "Зетро" Суза, который проработал в группе с 1986 по 1992 годы и участвовал в записи нескольких альбомов, в том числе и классических "Fabulous Disaster" и "Impact is Imminent".<br> Пока речь идет о том, что Стив примет участие в уже запланированных концертах группы - более далекое будущее пока еще не осбуждается. Правда, группа отменила часть запланированых шоу, но никаких официальных заявлений на этот счет пока нет. Возможно, совместные концерты подтолкнут музыкантов к необходимости продолжения совместной работы - во всяком случае, очень хочется на это надеятся.</p>
+
+Автор: Tornado
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 29.08.2002 news Former METALLICA Bassist To Release Much-Circulated Demos ...
+
+<p>Former METALLICA bassist Jason Newsted will be releasing a six-song split CD from two of his long-running projects — IR8 and SEXOTURICA — through his own Chophouse imprint, according to the label's web site. IR8's three-tracker, which was recorded in 1994, features Newsted, Tom Hunting of the Bay Area thrash band EXODUS and Canadian STRAPPING YOUNG LAD mastermind Devin Townsend, while SEXOTURICA's portion of the CD was laid down in early 1995 and includes Hunting and SEPULTURA guitarist Andreas Kisser. <BR><BR> "[These recordings] been traded in the underground a little bit here and there, but now it's time to unleash it to everybody properly," stated Newsted about the upcoming release.<BR><BR> For more information on how to order a copy, send an e-mail to sales@chophouserecords.com.</p>
+
+Автор: Yermola
+
+### 30.08.2002 news Jason Newsted выпускает два демо...
+
+<p>Бывший участник "METALLICA" бассист Jason Newsted на своем лэйбле Chophouse выпускает сплит-CD двух проектов IR8 и SEXOTURICA. <BR><BR> Три песни от "IR8" были записаны в 1994 году в составе самого Ньюстеда, Tom Hunting (EXODUS) и участника "STRAPPING YOUNG LAD" - Devin Townsend. А "SEXOTURICA" демо было записано в 1995 в составе Ньюстеда, Hunting'а и гитариста "SEPULTURA" - Andreas Kisser. Заказать CD можно по e-mail: sales@chophouserecords.com.</p>
+
+Автор: Yermola
+
+### 28.04.2003 news EXODUS готовы к записи
+
+<p>Ветераны американского трэша EXODUS готовятся к записи в мае-июне своего нового альбома под названием "Tempo Of The Damned" в Sonic Ranch studios. Альбом выйдет осенью на новом лэйбле CCC Records</p>
+
+Автор: Dimas
+
+### 05.06.2003 news Еще немного об EXODUS
+
+<p>Стал известен трэк-лист нового альбома воссоединившихся трэшеров из Сан-Франциско. В новый альбом EXODUS "Tempo Of The Damned", войдут следующие вещи:</p>
+<p> 1. Tempo of the Damned <BR> 2. Culling the Herd <BR> 3. Scar Spangled Banner <BR> 4. Blacklist <BR> 5. Sealed With a Fist <BR> 6. Shroud of Urine <BR> 7. C.O.T.C. (Crime Of The Century) <BR> 8. War Is My Shepherd <BR> 9. Forward March <BR> 10. Throwing Down <BR> 11. Impaler <BR> 12. Death Row</p>
+<p> Ранее сообщалось, что альбом выйдет на новом собственном лэйбле группы CCC Records, но по последним данным, альбом выйдет на Century Media Records.</p>
+
+Автор: Dimas
+
+### 31.08.2003 news Exodus подписались на NUCLEAR BLAST
+
+<p>Легендарный thrash-metal коллектив EXODUS подписали контракт с NUCLEAR BLAST. Группа готовится выпустить свой долгожданный альбом "Tempo Of The Damned", записанный в Калифорнии вместе с продюсером Andy Sneap (MACHINE HEAD, SKINLAB, ARCH ENEMY), 2 февраля 2004 года на двухлетнию годовщину смерти бывшего фронтмэна Paul Baloff.</p>
+
+Автор: Vit Belov
+
+### 28.09.2003 news Exodus in Europe
+
+10.10.2003 EINDHOVEN - Effenaar ( NL) <BR>11.10.2003 ANTWERPEN - Hof ter Loo ( B) <BR>12.10.2003 PARIS - La Locomotive ( F) <BR>13.10.2003 ESSEN - Zeche Carl ( D) <BR>14.10.2003 BERLIN - Columbia Halle Fritz ( D) <BR>15.10.2003 HAMBURG - Markthalle ( D) <BR>16.10.2003 M&uuml;NSTER - Live Arena ( D) <BR>17.10.2003 BISCHOFSWERDA - Hangar ( D) <BR>18.10.2003 M&uuml;NCHEN - Backstage ( D) <BR>19.10.2003 BRNO - Babylon ( CZ) <BR>20.10.2003 INNSBRUCK - Hafen ( A) <BR>21.10.2003 PRATTELN - Z7 ( CH) <BR>22.10.2003 MILANO - Alcatraz ( I) <BR>24.10.2003 BARCELONA - La Capsa ( ES) <BR>25.10.2003 MADRID - Aqualing ( ES) <BR>26.10.2003 PORTO - Hard Club ( PT) <BR>27.10.2003 IRUN - Tunk ( ES)
+Автор: Vit Belov
+
+### 02.03.2004 reviews Добрый старый Bay-Area thrash-metal
+
+<DIV><I><B>EXODUS</B> - великолепный пример того, что Bay Area thrash образца 80-х годов вполне может завоёвывать новых фэнов уже в XXI веке.</I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV><B>'Tempo Of The Damned'</B> - просто великолепный альбом. Триумфальное возвращение группы состоялось. Великолепный звук, великолепные песни... После прослушивания этого альбома понимаешь, что есть настоящий метал. Всё-таки thrash - это квинтессенция тяжёлого звучания. Качовые риффы, гитара, которая убивает вас наповал, барабаны, забивающие гвозди в гроб Вашей благовоспитанности. Большинство, кто слушал <B>EXODUS</B> 20 лет назад сидят сейчас в офисах за компьютерами, но только поставьте им эту пластинку. Вы всё увидите сами!!! Ещё этот альбом очень хорошо послушать в машине, попробуйте. Да, его везде хорошо слушать. Подобное удовольствие последний раз я получил, послушав переигранные старые вещи <B>TESTAMENT</B> на альбоме <B>'First Strike Still Deadly'</B>. Такую музыку сейчас не играют.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Советую этот альбом всем, кто любит metal. Особенно тем, кто любит nu-metal :). У thrash-metal есть будущее, достаточно даже перезаписать старый материал в новых студиях. А уж новый материал от <B>EXODUS</B> просто must have.</DIV>
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 13.09.2004 news Вокалист EXODUS приболел, найдена замена
+
+<P>Фронтмэн <STRONG>EXODUS</STRONG> <STRONG>Steve "Zetro" Souza</STRONG>&nbsp;не сможет отправиться с группой в тур по Южной Америке. Временной заменой ему стал вокалист <STRONG>EXHUMED</STRONG> <STRONG>Matt Harvey.</STRONG></P>
+<P>Однако, он не сможет закончить тур вместе с группой, за него это сделает <STRONG>John Miller, </STRONG>игравший с <STRONG>Gary Holt</STRONG> в локальной группе <STRONG>WARDANCE.</STRONG></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 13.09.2004 news EXODUS took session singer
+
+<P><STRONG>EXODUS</STRONG> frontman <B>Steve "Zetro" Souza</B> was forced to sit out the band's South American tour after falling ill during the group's Japanese trek. Filling in for <B>Zetro</B> in South America is <B>EXHUMED</B> frontman <B>Matt Harvey</B>. </P>
+Автор: Vit Belov
+
+### 15.09.2004 articles Хроника: DIMMU BORGIR берут отпуск – Phil Mogg не бил Michael Schenker – Десятка лучших женщин-вокалисток в роке – Исламские фундаменталисты против SCORPIONS – DORO хочет Tarja – EXODUS лишились вокалиста
+
+<P><EM>Хроника: DIMMU BORGIR берут отпуск – Phil Mogg не бил Michael Schenker – Десятка лучших женщин-вокалисток в роке – Исламские фундаменталисты против SCORPIONS – DORO хочет Tarja – EXODUS лишились вокалиста</EM></P>
+<P>DIMMU BORGIR только что закончили тур по Америке в рамках Ozzfest. Это большой прорыв для норвежской black-metal команды. Вот отрывки из интервью, которое дал Shagrath журналу Metal-Exiles.com:<BR>Q: Почему группу покинул Nick Barker? <BR>Огромное количество времени у нас были проблемы на личном уровне. Нам было необходимо разойтись, чтобы не произошло чего-нибудь более плохого. Он очень отличался от остальных членов группы, но это нисколько не умаляет его профессионализма. Я очень уважаю его и желаю ему всего наилучшего, но он больше не DIMMU.<BR>Q: Он сам ушёл или его уволили?<BR>Он был уволен.<BR>Q: Что дальше после Ozzfest?<BR>Мы собираемся отправиться домой, где отдохнём несколько месяцев. Побудем с семьями, и быть может, начнём сочинять новый материал. Некоторое время ничего происходить не будет, мы не будем давать концертов в течение двух лет. Мы просто выжжены сейчас, нам нужен перерыв.<BR>Q: Вы были в туре около года?<BR>Да, и это время для нового альбома и более расслабленного времяпрепровождения.</P>
+<P>Classic Rock Revisited недавно взяли интервью у фронтмэна UFO Phil Mogg, который рассказал о будущем группы и своих размолвках с бывшим товарищем Michael Schenker:<BR>Q: Michael Schenker недавно рассказал нашему журналу о разладе в UFO. “Phil всегда был драчуном. Он всё время устраивал стычки, и я сказал ему, что если он меня хоть пальцем тронет, я уйду из группы. Он ударил, и я ушёл”. Что Вы можете на это ответить?<BR>Я слышал нечто такое, и это уже не новость для меня. Он покидал группу пол дюжины раз, он уходил из SCORPIONS дважды, и даже умудрился покинуть свою собственную группу. Поэтому причины этого неважны, всегда кто-то был виноват. В основном все наши проблемы возникали, из-за финансовых вопросов. Мы вкладывали все деньги в группу, а он был этим недоволен.<BR>Q: Писал ли он письмо в Kerrang! В начале 80-х, где протестовал против возрождения группы?<BR>Честно говоря, я не знаю ничего про это, но столько сумасшедших историй связано с ним, что нам не хватит и дня, чтобы всё обсудить. Это продолжалось всегда. Мне очень нравится, как Michael играет, и я принимаю 80% его натуры.<BR>Q: Вы делали хорошую музыку вместе. Вы сожалели когда-нибудь, что не смогли сохранить деловые отношения?<BR>Самым большим разочарованием стало наше воссоединение в 1995 году. У меня были такие ожидания! У нас был менеджмент, а я хотел только петь, играть и сочинять музыку. Мы поехали в тур, и он умудрился покинуть группу три раза. Первый раз в Modesto, Калифорния, второй раз в Токио, где он ушёл в середине шоу, а аудитория просто осталась стоять в тишине, а третий раз -&nbsp; в Манчестере. Мы собирались творить вместе, а он просто нас кинул. </P>
+<P>Американский сайт InsidePulse.com определил список&nbsp; десяти лучших вокалисток в современном металле:<BR>01. Cristina Scabbia (LACUNA COIL)<BR>02. Angela Gossow (ARCH ENEMY)<BR>03. Anneke van Giersbergen (THE GATHERING )<BR>04. Tanja Lainio (LULLACRY)<BR>05. Anita Auglend (SINS OF THY BELOVED)<BR>06. Candace Kucsulain (WALLS OF JERICHO)<BR>07. Otep Shamaya (OTEP)<BR>08. Morgan Lander (KITTIE)<BR>09. Jonna Enckell (THE PROJECT HATE)<BR>10. Amy Lee (EVANESCENCE)<BR>Любопытно, что Amy Lee только на десятом месте, а возглавляет список Европейская девушка. Кроме этого, в списке нет, сами знаете кого.</P>
+<P>Малазийские исламские фундаменталисты выступили в правительстве страны против концерта SCORPIONS, которые, по их мнению, развращают молодёжь. «Подобные концерты – катализаторы гедонизма и зла в обществе», - заявил Salahuddin Haji Ayub, молодёжный лидер Пан-Малазийской исламской партии. «Исследования показали, что падает собственное достоинство и самооценка от подобных вызывающих программ», - говорится в заявлении. Сообщается также, что эти активисты протестовали по поводу концертов Michael Jackson, Mariah Carey и LINKIN PARK, но не один концерт так и не был запрещён.</P>
+<P>Doro Pesch дала интервью греческому журналу Metal-Temple.com, в котором рассказала о первом альбоме для AFM ‘Classic Diamonds’, на котором она перепевает классику из творчества DORO, а также исполняет некоторые новые песни. В записи альбома Doro помогали Blaze Bayley (BLAZE, ex-IRON MAIDEN), Kai Hansen (GAMMA RAY, ex-HELLOWEEN) и Udo Dirkschneider (U.D.O., ex-ACCEPT).<BR>«Мне предложили поработать с Metal Classic Night Orchestra, на предмет переработки нескольких моих старых хитов. У меня уже был подобный опыт с Dusseldorf Symphony Orchestra, и это было очень интересно. Мы дали концерт, на котором исполнили многие вещи из классики heavy-metal. Например, с Blaze Bayley мы исполняли ‘Fear Of The dark’, и это получилось так хорошо, что мы решили это записать. В январе мы уже записали много песен: 'All We Are', 'Fur Immer' and 'Breaking the Law' JUDAS PRIEST. На вопрос, с кем бы Doro хотела ещё поработать, она ответила: «Да. Я хотела бы поработать с Tarja из NIGHTWISH. В ближайшее время мы начинаем работу над новой пластинкой, и было бы здорово спеть дуэтом с другой певицей. Я уже джэмовала с Sabina Classen (HOLY MOSES) на Wacken, где мы исполнили 'Too Drunk To Fuck', что всех впечатлило.</P>
+<P>Буквально на днях стало известно, что из EXODUS уволен вокалист Steve "Zetro" Souza. Вот, что сказал Gary Holt на официальном форуме группы: «Он (Souza) отказался лететь в Мексику всего лишь за 24 часа до концерта. Сказал, что не полетит с нами в Мексику, а присоединится к группе уже в туре по Южной Америке. Он наврал нашему менеджеру, что сказал мне об этом раньше – это откровенная ложь. После этого Steve пропал и не отвечал на телефонные звонки, а промоутер в Мексике уже заплатил 8 тысяч долларов!!! Организатор разорился бы, но его это не волновало, этот кусок дерьма думает только о себе и о своих деньгах. Слышали бы Вы, что он говорил последние два года. «Почему басист Jack Gibson получает столько же, сколько я? Кто он такой? Давайте наймём телохранителей в Южной Америке. Если фэны хотят услышать больше 12 песен, они должны заплатить больше. Почему Gary находится спереди на наших промо-фотографиях, там должен быть я. Видели бы Вы, как этот motherfucker сидел за кулисами на одном фесте в Финляндии и орал, как котёнок. Теперь он может оставить свою толстую задницу дома!!! EXODUS продолжают существовать, это моя группа!!!»&nbsp;&nbsp; <BR></P>
+Автор: Vit Belov
+
+### 17.09.2004 reviews Проклятие Рокового Кукиша.
+
+<P>Creedence Clearwater Revival, Badfinger и Exodus – три самые невезучие группы в истории рок-музыки. Естественно, применительно к мэтрам и корифеям, а не к группам-однодневкам. А Exodus, безусловно, и мэтры, и корифеи, и где-то даже титаны: фактически, они породили явление, известное сегодня как Bay Area Thrash Metal, написали его Библию – Bonded By Blood, и ухитрились побывать в шкуре не только предтеч и апостолов, но и мучеников стиля. </P>
+<P>Но вернёмся к странному соседству неудачников. Что может быть общего у групп, одна из которых баюкала рок во младенчестве, другая – вела его за руку мимо беспечного детства, а третья – тащила пить пиво, драться со сверстниками и упражняться с девицами на заднем сиденье папиного автомобиля в пору горячей юности? </P>
+<P>Судьба. Каждой из этих групп она подмигнула в начале карьеры, каждой сулила златые горы, и над каждой впоследствии цинично поглумилась. Но, в качестве компенсации, каждой из этих групп Судьба подарила бессмертие. Партизанские засады, подстерегавших отцов Bay Area Thrash Metal на пути к славе, не помешали появлению шести студийных альбомов, каждый из которых, несомненно, занял место в пантеоне славы тяжёлой музыки. </P>
+<P>Группа сформировалась в 1981 году. На что могли в столь лохматое время ориентироваться её создатели Пол Балофф, Гэри Холт и Кирк Хэммет? Конечно же, на самых экстремальных в ту пору англичан – Motorhead и особенно Raven. Братья Галлахеры одними из первых просекли, что жертвовать мелодикой в пользу скорости не только можно, но и нужно, и музыканты Exodus решили воспользоваться их нехитрым рецептом. Скорость увеличили, агрессии добавили. Петь – в буквальном понимании – на фоне этой молотилки было даже как-то несерьёзно, впрочем, Балофф и не пытался. Самым уместным, как выяснилось в ходе репетиций, было орать речитативом, слегка при этом подвывая мартовским котиком. </P>
+<P>В 1982 году Exodus записали своё первое демо Whipping Queen And Death And Domination, растиражировали его на кассетах, и местные металлеры, отведав, молвили: да, это круто. Бесконечная череда концертов принесла группе признание и культовый статус, но, к сожалению, пробила первую брешь в составе – ушёл Кирк Хэммет, соблазнённый поимевшей к тому времени рекорд-дил Металликой. Судьба-злодейка впервые продемонстрировала музыкантам Роковой Кукиш. </P>
+<P>Без основной креативной единицы процесс написания песен для дебютного альбома застопорился на целый год. Тем не менее, музыканты продолжали активно концертировать, популярность росла, и в конце 1983 года фирма Torrid Records предложила группе контракт на выпуск альбома. В начале весны 84-го дебютник был записан. И вот тут-то Судьба вновь продемонстрировала личному составу Exodus комбинацию из трёх пальцев. Менеджеров Torrid Records не устроило сведение, альбом стали доводить до ума. Доводили полгода. За это время большинство конкурентов записали пластинки и обскакали фаворитов Bay Area Thrash вчистую. Затем маялись с названием – фирма отвергла вариант музыкантов (изначально пластинку планировали назвать «A Lesson in Violence» - «Урок жестокости»). А тут ещё проблемы с обложкой: сросшиеся в виде новорожденных сиамских близнецов Добро и Зло, предложенные музыкантами группы, видите ли, не устроили толерантную к чувствам верующих фирму. Обложку пришлось заменить (правда, только в США; в Европе и в Канаде, а теперь и в России, альбом издали, как положено). </P>
+<P>Пластинка Bonded By Blood пользовалась неслыханной популярностью, диск объявили эталоном Bay Area Thrash. Действительно, материал слушался свежо и был по тем временам экстремальным. Но, на мой взгляд, немного подкачала мелодика, и очень сильно – звук. Да и на фоне Ride The Lightning, Hell Awaits и Spreading The Disease музыка воспринималась всё же менее ярко. Дитё родилось переношенным, факт. </P>
+<P>Диск выпущен по лицензии компанией Фоно</P>
+Автор: Ruslan
+
+### 17.09.2004 reviews Роковой Кукиш-2.
+
+<P>Bonded By Blood имел значительный успех, но Судьба-злодейка не прекратила накручивать кукиши – накануне планового похода в студию для записи второго альбома группу покинул Пол Балофф. Ушёл не просто франтмэн-вокалист, ушёл второй после Хэммета креативщик. Правда, часть материала, соавтором которой выступил Пол, была готова к записи, и проблемы с правами удалось урегулировать, ибо «ушелец» не капризничал. </P>
+<P>Замену Балоффу искали недолго. В составе группы Legacy, частенько разогревавшей Exodus на концертах, пел некто Zetro, откликавшийся также на имя Стив. Голосище у парня был покруче, чем у Пола, и, что самое важное, он назубок знал весь репертуар Exodus. У Legacy не ладилось с контрактом, и Стив решил, что для его профессионального роста смена состава будет полезна. Откуда было ему знать, что через пару месяцев после его ухода группа переименуется в Testament и сделает завидную карьеру? </P>
+<P>Певцом Стив был неплохим, но на Pleasures Of The Flesh отпел он, надо сказать, неважно. То и дело взвизгивал, будто кто-то щипал его за задницу, голосу не хватало колорита, которым в избытке располагал Балофф – эдакий Бон Скотт от трэша. Но хуже всего было то, что и креативщиком Zetro был никудышным. Материал, который группа наваяла в соавторстве с новым вокалистом, не вселял никакого оптимизма. Невразумительные, какие-то задавленные в зародыше мелодии, архаичный кашеобразный звук и атмосфера непобедимой скуки – ничего больше. Спасали дело четыре песни, доставшиеся в наследство от Пола, и позволившие, спустя несколько лет, причислить альбом к классике трэша. Это людоедская плясовая Pleasures Of The Flesh, неторопливая Brain Dead, интенсивная, с прекрасной мелодикой Seeds Of Hate и, конечно же, Til Death Do Us Part (Балофф не выступал соавтором этой песни, но написана она была ещё в его времена). Банальный инструментал «30 секунд», втюханный на альбом маэстро Холтом, можно было назвать «И почему я не Стив Хоу?». Остальные песни были настолько пресными и тусклыми, что напрочь смазывали общее впечатление. В целом второй альбом, на который возлагалась задача скрасить неприятное послевкусие, оставшееся от первенца, с треском провалился. </P>
+<P>Судьба продемонстрировала Exodus очередной шиш.</P>
+<P>Диск выпущен по лицензии компанией Фоно</P>
+Автор: Ruslan
+
+### 17.09.2004 reviews Невероятное Бедствие в преддверии Неизбежного Удара.
+
+<P>Несмотря на постоянные творческие нескладухи, воли и решимости музыкантам Exodus было не занимать. Неудачи, к счастью, не отразились на их боевом духе: стиснув зубы, концертная бригада калифорнийской песни и пляски под руководством Гэри Холта продолжала активно гастролировать. И Судьба решила дать им передышку. </P>
+<P>Удивительно, как за два года смогла эволюционировать группа! Музыканты сыгрались, что называется, намертво. Откуда ни возьмись, вновь появилась давно утраченная свежесть, я бы даже сказал, кристальная чистота гармоний. Стив распелся, его голос обрёл неслыханный доселе колорит, в нём зазвучала уверенная мощь, и он, наконец-то, перестал повизгивать разгневанным поросёнком. «Невероятное Бедствие» стало лучшей записью группы. Эталонной записью. Монументом. А кавер-версия песни AC/DC Overdose (присутствовавшая, правда, лишь на компакт-диске и кассете, на виниле её не было) стала настоящим украшением альбома, красной ягодкой, венчающей монументальный праздничный торт. </P>
+<P>После такого успеха группу не могли обойти вниманием мажорные лэйблы. Так и вышло, Capitol сделали Exodus предложение, от которого невозможно было отказаться: контракт на запись альбома с дистрибуцией по всему миру. </P>
+<P>К сожалению, в этот самый момент на сцене вновь появилась Судьба с неизменным кукишем: пластинка Impact Is Imminent (провидческое название – Удар Неизбежен – увы, оправдало себя) стала очередным ударом по репутации группы. Записывали альбом впопыхах, пожертвовав продюсерской работой. В результате – сыроватый звук, явно незавершённые, «не вылизанные» песни. Очередной диск Force Of Habit (Сила Привычки) стал кодой раннего творчества Exodus. В 1992 году группа распалась. </P>
+<P>Усилиями Пола Балоффа пять лет спустя возрожденный Exodus записал концертник Another Lesson In Violence, но оказался совершенно несостоятельным в студии, и продолжения в виде очередного альбома не последовало. Группа снова исчезла с горизонта. Пять лет спустя, в феврале 2002 года, Балоффа разбил инсульт, и после трёхдневного пребывания в коме отец-основатель Exodus скончался. </P>
+<P>Впрочем, Судьба в очередной раз смилостивилась над музыкантами, дав им шанс на воссоединение. В этом году классический состав группы с Zetro у микрофонной стойки записал свой лучший альбом - Tempo Of The Damned. Под контракт группу взял вполне респектабельный Nuclear Blast, и, как знать, может быть, группе ещё улыбнётся удача. </P>
+<P>Диск выпущен по лицензии компанией Фоно</P>
+Автор: Ruslan
+
+### 19.09.2004 news С EXODUS будет петь Steev Esquivel
+
+<P><STRONG>Steev Esquivel</STRONG> из<STRONG> SKINLAB</STRONG> будет петь на концертах <STRONG>EXODUS</STRONG> во время их тура по Южной Америке. Ранне сообщалось, о других кандидатурах.</P>
+Автор: Vit Belov
+
+### 21.12.2004 news EXODUS начали активный поиск
+
+<P><STRONG>EXODUS </STRONG>начали активный поиск нового вокалиста вместо покинувшего коллектив <STRONG>Steve 'Zetro' Souza</STRONG>. "<EM>Кандидат должен обладать собственным стилем и справляться со старым материалом группы. Мы не ищем святого, но человек не должен употреблять тяжёлые наркотики</EM>", - пишет группа на своём сайте.</P>
+Автор: Vit Belov
+
+### 24.12.2004 news Nuclear Blast выпускает soundtrack к Alone In The Dark
+
+<P>Как уже сообщалось, новый голивудский фильм&nbsp;<STRONG>'Alone In The Dark'</STRONG>, основанный на одноимённой компьютерной игре, содержит полностью металлический soundtrack, который выйдет в скором времени на <STRONG>Nuclear Blast</STRONG>. В фильме снялись <STRONG>Christian Slater</STRONG>, <STRONG>Tara Reid</STRONG>, <STRONG>Stephen Dorff</STRONG>. Трэк-лист:</P>
+<P>Disc 1</P>
+<P><STRONG>Nightwish 'Wish I Had An Angel' <BR>Dimmu Borgir 'Progenies Of The Great Apocalypse'<BR>Lacuna Coil 'Daylight Dancer' <BR>Deathstars 'Synthetic Generation' <BR>Soilwork 'Stabbing The Drama' <BR>The Haunted 'All Against All' <BR>In Flames 'The Quiet Place' <BR>Strapping Young Lad 'Devour' <BR>Agnostic Front 'Peace'<BR>Chimaira 'Down Again' <BR>Shadows Fall 'What Drives The Weak' <BR>Exodus 'Blacklist' <BR>Machine Head 'Imperium' <BR>Death Angel 'The Devil Incarnate' <BR>Apocalyptica 'Cohkka' <BR>Cradle Of Filth 'Mother Of Abominations' <BR>Hypocrisy 'Deathrow (No Regrets)' </STRONG></P>
+<P>Disc 2</P>
+<P><STRONG>Mnemic 'Ghost'</STRONG> (Radio Edit) <BR><STRONG>Agathodaimon 'Alone In The Dark'</STRONG> (Exclusive track) <BR><STRONG>Anthrax 'What Doesn’t Die' <BR>Nevermore 'Enemies Of Reality' <BR>Disbelief 'Floating On High' <BR>Arch Enemy 'Dead Eyes (See No Future)' <BR>Dark Tranquillity 'Lost To Apathy' <BR>Meshuggah 'Rational Gaze' <BR>Napalm Death 'Troops Of Doom' <BR>Misery Index 'The Great Depression' <BR>Heaven Shall Burn 'They Weapon They Fear' <BR>God Forbid 'Gone Forever' <BR>Bleed The Sky 'Killtank' <BR>Diecast 'Medieval'<BR>All Shall Perish 'Deconstruction' <BR>Into Eternity 'Spiraling Into Depression' <BR>Bloodbath 'Outnumbering The Day' <BR>Kataklysm 'As I Slither' <BR>Dew-Scented 'Cities Of The Dead' <BR>Angelzoom 'Piece Of Mind'</STRONG> (Edit Version) <BR></P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 27.01.2005 news EXODUS объявили имя нового вокалиста
+
+<P>Новым вокалистом <STRONG>EXODUS</STRONG> стал некто <STRONG>Rob Dukes</STRONG>. По сообщению <STRONG>Gary Holt</STRONG>, <STRONG>Rob</STRONG> не пел&nbsp;до этого в сколько-нибудь известных группах, но является пределом мечтаний для <STRONG>EXODUS</STRONG>.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 28.01.2005 news К VILE присоединился басист EXODUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>VILE</STRONG> объявили о появлении в группе нового басиста. Им стал <STRONG>Jack Gibson</STRONG> из <STRONG>EXODUS</STRONG>. <STRONG>Jack</STRONG> не ушёл из своей прежней группы, но будет записывать с <STRONG>VILE</STRONG> их новый альбом <STRONG>'The New Age Of Chaos'</STRONG> и поедет в тур, если графики не будут накладываться с основной группой. Новая работа <STRONG>VILE</STRONG> выйдет в мае-июне на <STRONG>Listenable</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 28.01.2005 news VILE : THE NEW AGE OF CHAOS !!
+
+<P><STRONG>Colin Davis</STRONG> (guitars) has announced a line up change in California's most brutal outfit<STRONG> VILE's</STRONG> line up :<BR>"<EM>New VILE line up addition! VILE are proud to announce the entrance of bassist Jack Gibson of the Bay Area thrash band EXODUS. Jack has agreed to be the bass player on the upcoming VILE release "The New Age of Chaos". He will also do some touring with us as long as it does not interfere with his schedule with Exodus. Jack is a phenominal player and VILE is perfect for showcasing his talents."<BR>"The New Age of Chaos" is slated for a May/june release on Listenable Records.<BR>Full U.S. and European tours will be planned for fall / Winter 2005</EM>."</P>
+Автор: Vit Belov
+
+### 21.02.2005 news EXODUS начинают запись нового альбома
+
+<P><STRONG>EXODUS</STRONG> войдут в студию в начале апреля для записи нового альбома. <STRONG>Andy Sneap</STRONG> снова выступит в качестве продюсера.</P>
+Автор: Vit Belov
+
+### 11.05.2005 news Новый барабанщик EXODUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Барабанщик <STRONG>Tom Hunting</STRONG> не сможет продолжать играть в <STRONG>EXODUS</STRONG>. Сообщается, что он очень болен и был госпитализирован несколько раз за последний месяц. Группа опровергает слухи, что болезнь <STRONG>Tom</STRONG> связана с наркотиками, зависимость <STRONG>Hunting</STRONG> победил год назад. Из-за его новой болезни, запись нового альбома была задержана.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новым членом коллектива стал знаменитый барабанщик <STRONG>Paul Bostaph</STRONG>, в своё время поучаствовавший в <STRONG>SLAYER </STRONG>и <STRONG>TESTAMENT</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 15.06.2005 news EXODUS покинул гитарист
+
+<P>По сообщению <STRONG>BLABBERMOUTH.NET EXODUS </STRONG>покинул гитарист <STRONG>Rick Hunolt.</STRONG></P>
+Автор: Vit Belov
+
+### 27.07.2005 news Новый альбом EXODUS в октябре
+
+<P>Новый альбом <STRONG>EXODUS "Shovel Headed Kill Machine"</STRONG> выйдет 4 октября. Некоторые названия песен: <STRONG>'Raze', 'Deathamphetamine','I Am Abomination', 'Going, Going, Gone' and '.44 Magnum Opus'</STRONG>.</P>
+Автор: Vit Belov
+
+### 16.08.2005 news Подробности о новом альбоме EXODUS
+
+<P>Thrash metal ветераны&nbsp;<B>EXODUS</B>&nbsp;готовят к выпуску 4 октября на <STRONG>Nuclear Blast Records </STRONG>свой новый альбом под названием&nbsp;<B>"Shovel Headed Kill Machine"</B>. Записанный в калифорнийской <B>Trident</B> studios и смикшированный под руководством <B>Andy Sneap</B> (<B>MACHINE HEAD</B>, <B>ARCH ENEMY</B>), он станет дебютом для новых участников группы - гитариста <B>Lee Altus</B> (<B>HEATHEN</B>, ex-<B>DIE KRUPPS</B>), ударника <B>Paul Bostaph</B> (ex-<B>SLAYER</B>, <B>FORBIDDEN</B>)&nbsp;и вокалиста&nbsp;<B>Rob Dukes</B>. Трек-лист альбома:</P>
+<P><BR><IMG height=248 alt="" hspace=15 src="/images/news_rus/2005.08/9108.jpg" width=250 align=left border=0>1. <B>Raze</B><BR>2. <B>Deathamphetamine</B><BR>3. <B>Kharma's Messenger</B><BR>4. <B>Shudder To Think</B><BR>5. <B>I Am Abomination</B><BR>6. <B>Altered Boy</B><BR>7. <B>Going Going Gone</B><BR>8. <B>Now Thy Death Day Come</B><BR>9. <B>44 Magnum Opus</B><BR>10. <B>Shoevel Headed Kill Machine</B><BR></P>
+Автор: Dimas
+
+### 03.11.2005 reviews Быстро сдувшийся EXODUS
+
+<P><STRONG>EXODUS</STRONG> продолжили своё повторное восхождение. "<STRONG>Shovel Headed Kill Machine</STRONG>" вышел быстрее, чем можно было бы предположить. Несмотря на появление троих новых музыкантов, <STRONG>Gary Holt</STRONG> не заставил ждать своих верных фэнов. <STRONG>"Tempo Of The Damned</STRONG>" мне понравился очень сильно, а вот "последыш" уже показался скучным...</P>
+<P>Дело тут не новых музыкантах - это точно. И <STRONG>Bostaph</STRONG>, и новый певец <STRONG>Dukes </STRONG>работают, как минимум, не хуже своих предшественников, но не цепляет чего-то. Какие-то песни кажутся чересчур затяннутыми, какие-то чересчур однообразными, какие-то чересчур среднетемповыми, и ничего с этим я поделать не могу. Пытался слушать десятки раз, но не продвинулся в своём мнении ни на метр выше.</P>
+<P>С объективной точки зрения альбом очень профессионален и качественен, но хитов подобных открывашке с предыдущего шедевра здесь нет и в помине. Ровный такой, где-то даже рафинированный thrash, а это уже совсем никуда не годится.</P>
+<P>Фанатам <STRONG>EXODUS</STRONG> рекомендую ознакомиться, но не ждите фейерверка, подобного "<STRONG>Tempo Of The Damned</STRONG>". Тогда<STRONG> EXODUS</STRONG> скучали по трэшу, а сейчас только делают свою работу.</P>
+<P>Диск предоставлен Irond</P>
+Автор: Vit Belov
+
+### 07.11.2005 news EXODUS и HYPOCRISY выступят в Латвии и Эстонии
+
+<P><STRONG>EXODUS </STRONG>и <STRONG>HYPOCRISY</STRONG> дадут совместные концерты в&nbsp;Таллине и Риге соответственно 25 и 26 ноября.</P>
+Автор: Vit Belov
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 02.06.2007 news EXODUS написали новый альбом
+
+<P><STRONG>EXODUS </STRONG>закончили написание 11 песен для нового альбома, который начнёт записываться 3 июня с продюсером <STRONG>Andy Sneap</STRONG>. Лидер коллектива <STRONG>Gary Holt</STRONG> обещает самый тяжёлый альбом в истории группы.</P>
+Автор: Vit Belov
+
+### 10.08.2007 news Новые песни EXODUS
+
+<P>8 августа в рамках своего тура по США в одном из городков Калифорнии <STRONG>EXODUS</STRONG> сыграли две новых песни "<STRONG>Bedlam 123</STRONG>" и "<STRONG>Funeral Hymn</STRONG>". Ознакомиться с любительским видео этих двух композиций можно по этому адресу: <A href="http://www.roadrunnerrecords.com/blabbermouth.net/news.aspx?mode=Article&newsitemID=78467">http://www.roadrunnerrecords.com/blabbermouth.net/news.aspx?mode=Article&newsitemID=78467</A></P>
+Автор: Vit Belov
+
+### 22.08.2007 news Новый EXODUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>EXODUS</STRONG> <STRONG>"The Atrocity Exhibition... Exhibit A" </STRONG>выходит в октябре на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>A Call To Arms</B><BR>02. <B>Riot Act</B> <BR>03. <B>Funeral Hymn</B> <BR>04. <B>Children Of A Worthless God</B> <BR>05. <B>As It Was, As It Soon Shall Be</B> <BR>06. <B>The Atrocity Exhibition</B> <BR>07. <B>Iconoclasm</B> <BR>08. <B>The Garden Of Bleeding</B> <BR>09. <B>Bedlam 123</B> </P>
+Автор: Vit Belov
+
+### 06.01.2008 articles TOP 50 продаж в магазине Metal&amp;Progressive на Горбушке
+
+<P>Мы возвращаем "в эфир" нашу рубрику TOP продаж. Её спонсором является магазин "<STRONG>Metal&Progressive</STRONG>" (B2-074 в торговом центре "<STRONG>Горбушкин Двор</STRONG>" на метро Багратионовская). В рейтинг попадают альбомы,&nbsp;лидеры&nbsp;продаж за последние два месяца. Сегодня представляем ноябрь и декабрь прошедшего года. Голосуйте рублём за свои любимые альбомы на точке <STRONG>'Metal&Progressive'</STRONG> на Горбушке.</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=686 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 193pt; mso-width-source: userset; mso-width-alt: 9398" width=257>
+<COL style="WIDTH: 226pt; mso-width-source: userset; mso-width-alt: 11008" width=301>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17 x:num><FONT face="Times New Roman" size=2>1</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257 x:str="HELLOWEEN "><FONT size=2><STRONG><FONT face="Times New Roman">HELLOWEEN<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 226pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=301><FONT face="Times New Roman" size=2><STRONG>GAMBLING WITH THE DEVIL</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>2</FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2><STRONG>GAMMA RAY</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>LAND OF THE FREE 2</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>3</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>ЭПИДЕМИЯ</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>ЭЛЬФИЙСКАЯ РУКОПИСЬ 2</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>4</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>TARJA TURUNEN</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>MY WINTER STORM</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>5</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>NIGHTWISH</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>DARK PASSION PLAY</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>6</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>DIARY OF DREAMS</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>NEKROLOG 43</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>7</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>PRIMAL FEAR</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>NEW RELIGION</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>8</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>EXODUS</STRONG></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>THE ATROCITY EXHIBITION</STRONG></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>9</FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>PAIN</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>PSALMS OF EXTINCTION</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>10</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>AVANTASIA</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2><STRONG>LOST IN SPACE pt.1</STRONG></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><STRONG><FONT face="Times New Roman" size=2>2007</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>11</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AT VANCE</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VII</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>12</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EMPIRE</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>CHASING SHADOWS</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>13</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AVANTASIA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>LOST IN SPACE pt.2</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>14</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>АРКОНА</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ОТ СЕРДЦА К НЕБУ</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>15</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>XANDRIA</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SALOME<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>THE SEVENTH VEIL</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>16</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ARCH ENEMY</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>RISE OF THE TYRANT</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>17</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SHAKRA</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>INFECTED</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>18</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>КРУИЗ</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>КРУИЗ-1</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>19</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>AMORPHIS</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SILENT WATERS</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>20</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SAMSAS TRAUM</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>HELLIGES HERZ - DAS SCHWERT DEINER SONNE</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>21</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SUBWAY TO SALLY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>BASTARD</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>22</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>КРУИЗ</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KRUIZ</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>23</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>DARKTHRONE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>F.O.A.D.</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>24</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SVARTSOT</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>HEAVENS SAGA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>25</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EPICA</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>THE DIVINE CONSPIRACY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>26</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>AXEL RUDI PELL</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 226pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=301><FONT face="Times New Roman" size=2>DIAMONDS UNLOCKED</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>27</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>PARADISE LOST</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IN REQUIEM</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>28</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>OVERKILL</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IMMORTALIS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>29</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>RIDE THE SKY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>NEW PROTECTION</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>30</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VESANIA</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DISTRACTIVE KILLUSIONS</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>31</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SYBREED</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ANTARES</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>32</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KORPIKLAANI</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>TERVASKANTO</FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>33</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SHAMAN</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:str="IMMORTAL  "><FONT size=2><FONT face="Times New Roman">IMMORTAL<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>34</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>JADED HEART</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SINISTER MIND</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>35</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>EMIGRATE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>EMIGRATE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>36</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DAVID READMAN</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DAVID READMAN</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>37</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SOILWORK</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SWORN TO A GREAT DIVIDE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>38</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MAYHEM</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ORDO AD CHAO</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>39</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MARDUK</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ROM 5:12</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>40</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>GARY HUGHES</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>VERITAS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>41</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>HANOI ROCKS</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>STREET POETRY</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>42</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>U.D.O.</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MASTERCUTOR</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>43</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 193pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=257><FONT face="Times New Roman" size=2>RAINTIME</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>FLIES & LIES</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>44</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>ONSLAUGHT</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>KILLING PEACE</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>45</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>HELLRAISER</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>WE'LL BURY YOU</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>46</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>GAINA</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>СНОВА ТВОЙ</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2006</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>47</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MACBETH</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>SUPERANGELIC HATE BRINGER</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>48</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>DIMMU BORGIR</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>IN SORTE DIABOLI</FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>49</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>СЕРГЕЙ МАВРИН</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>MADE IN ПИТЕР [DVD]</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17 x:num><FONT face="Times New Roman" size=2>50</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>JORDAN RUDESS</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face="Times New Roman" size=2>THE ROAD HOME</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 29.02.2008 news Классика EXODUS будет переиздана
+
+<P>11 марта <STRONG>Caroline Records </STRONG>переиздаст ремастированные версии двух альбомов<STRONG> EXODUS</STRONG> <STRONG>"Impact Is Imminent" (1990) </STRONG>и <STRONG>"Force Of Habit" (1992)</STRONG>. Пластинки выйдут в формате "стилизированных под японский винил" CD. Альбом <STRONG>"Force Of Habit" </STRONG>будет содержать два бонус-трэка: <STRONG>"Crawl Before You Walk"</STRONG>&nbsp;и <B>"Telepathetic"</B>.</P>
+Автор: Vit Belov
+
+### 20.06.2008 news EXODUS переписывают &quot;Bonded by Blood&quot;
+
+<P><STRONG>EXODUS</STRONG> заняты перезаписью своего классического альбома "<STRONG>Bonded By Blood</STRONG>". Пластника выйдет в ближайшем будущем и будет приурочена к 25-летию группы.</P>
+Автор: Vit Belov
+
+### 30.08.2008 news EXODUS перезаписали альбом
+
+<P>
+<CENTER><STRONG>EXODUS</STRONG> готовят к выпуску новый альбом <STRONG>"Let There Be Blood". </STRONG>Пластинка, которая является ни чем иным, как перезаписанным дебютником американцев <STRONG>"Bonded By Blood</STRONG>", увидит свет 28 октября. Группа опубликовала обложку этой работы.</CENTER>
+<CENTER><IMG height=400 src="/images/news_rus/2008.08/12791.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 30.08.2008 news Фоторепортаж с фестиваля Brutal Assault Vol. 13
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Наши корреспонденты вернулись с фестиваля <STRONG>Brutal Assault Vol. 13</STRONG> в Чехии. Наша сплочённая команда фоторепортёров подготовила отчёт об этом событии, который можно увидеть в соотвтетствующем разделе нашего сайта. Уже&nbsp;"висят" эксклюзивные фото <STRONG>EXODUS</STRONG>, <STRONG>SEPTICFLESH</STRONG>, <STRONG>SAMAEL</STRONG>, <STRONG>SADIST</STRONG>, <STRONG>GENERAL SURGERY</STRONG>, <STRONG>HOLLENTHON</STRONG>. Обновления последуют.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="/ru/galleries/">http://musica.mustdie.ru/ru/galleries/</A></FONT></P>
+Автор: Vit Belov
+
+### 24.03.2009 news EXODUS готовят DVD
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>EXODUS </STRONG>планируют выпустить DVD летом этого года. На него войдёт 65-минутное выступление легендарных трэшеров на фестивале<STRONG> Wacken</STRONG> в Германии, все видеоклипы коллектива и 90-минутный документальный фильм.</FONT></P>
+Автор: Vit Belov
+
+### 11.09.2009 news EXODUS в комиксах
+
+<P><STRONG><IMG height=322 alt="" hspace=5 src="/images/news_rus/2009.09/15036.jpg" width=400 align=right vspace=5 border=0>Terminal Press</STRONG> и <STRONG>Nuclear Blast Records</STRONG> объединили силы в создании комикса, основанного на творчестве группы <STRONG>EXODUS</STRONG>. Комикс получил название - <STRONG>"Exodus: Death Begets Death"</STRONG>. Используя лирические, артистические и музыкальные идеи, позаимствованные у легенд <STRONG>Bay Area</STRONG>&nbsp;трэша, <STRONG>Terminal Press</STRONG> планирует принести мир <STRONG>EXODUS</STRONG> в каждый дом.</P>
+<P><EM><STRONG>"Exodus: Death Begets Death"</STRONG> -&nbsp;апокалиптический комикс ужасов под завязку наполненный насилием и чёрным юмором. Являясь слиянием тем и образов со всех альбомов <STRONG>EXODUS</STRONG>, но особо фокусируя внимание на&nbsp;<STRONG>"Bonded By Blood"</STRONG>, <STRONG>"Tempo of the Damned"</STRONG>, <STRONG>"Shovel Headed Kill Machine"&nbsp;</STRONG>и <STRONG>"The Atrocity Exhibition - Exhibit A"</STRONG>, эта книга обещает преподать тебе моральный урок — пиная&nbsp;тебя в&nbsp;задницу."</EM></P>
+<P>Книга увидит свет в начале 2010 года. Больше подробностей доступно по адресу: <A href="http://www.terminalpress.com/">www.terminalpress.com</A></P>
+Автор: Headcrusher
+
+### 08.10.2009 news Новый релиз EXODUS
+
+<P><STRONG><IMG height=571 alt="" hspace=5 src="/images/news_rus/2009.10/15228.jpg" width=400 align=right vspace=5 border=0>Nuclear Blast Records</STRONG> подготовили к выпуску новый релиз калифорнийцев <STRONG>EXODUS</STRONG>. Чудо зовётся <STRONG>"Shovel Headed Tour Machine (Live At Wacken And Other Assorted Atrocities)" </STRONG>и будет содержать выступление группы на фестивале <STRONG>Wacken Open Air</STRONG> в июле 2008 года. Плюс документальный фильм, который освещает последние пять лет гастрольной деятельности группы и бонус материал, содержащий фото галереи, а так же, все видеоклипы группы.</P>
+<P>Лимитированое трёхдисковое издание в диджипаке будет содержать:</P>
+<P><STRONG>Disc 1</STRONG>: Концертный DVD / <STRONG>Disc 2</STRONG>: Концертный CD </P>
+<P>01. <STRONG>Bonded By Blood<BR></STRONG>02. <STRONG>Iconoclasm</STRONG><BR>03. <STRONG>Funeral Hymn<BR></STRONG>04. <STRONG>A Lesson In Violence</STRONG><BR>05. <STRONG>Children Of A Worthless God</STRONG><BR>06. <STRONG>Piranha</STRONG><BR>07. <STRONG>Deathamphetamine<BR></STRONG>08. <STRONG>Blacklist</STRONG><BR>09. <STRONG>War Is My Shepherd<BR></STRONG>10. <STRONG>Strike Of The Beast</STRONG><BR>11. <STRONG>Shovel Headed Kill Machine</STRONG></P>
+<P>Общее время: 68 мин.</P>
+<P><STRONG>Disc 3</STRONG>:&nbsp;Документальный DVD</P>
+<P>Общее время: 188 мин.</P>
+<P><U>Так же будут доступны</U>:</P>
+<P>* 2 DVD in amaray case (с содержанием дисков 1 и 3 лимитированого издания)</P>
+<P>* Двойной лимитированый винил&nbsp;(gatefold) с концертом</P>
+Автор: Headcrusher
+
+### 17.12.2009 news EXODUS назвали альбом
+
+<P>Новый альбом <STRONG>EXODUS</STRONG> будет называться <STRONG>"Exhibit B: The Human Condition"</STRONG>. В настоящий момент группа записывается с продюсером <STRONG>Andy Sneap</STRONG> (<B>MEGADETH</B>, <B>ARCH ENEMY</B>, <B>KREATOR</B>), а пластинка выйдет весной на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 26.02.2010 news Обложка нового альбома EXODUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.02/16296.jpg" width=400 height=400>EXODUS</STRONG> опубликовали обложку к своему девятому студийному альбому под названием <STRONG>"Exhibit B: The Human Condition"</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Приблизительная дата выпуска&nbsp;которого&nbsp;в Европе, назначена&nbsp;на 12 мая.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Напомним, что <STRONG>"Exhibit B: The Human Condition"</STRONG> был записан в декабре прошлого года в Северной Калифорнии с известным продюсером <STRONG>Andy Sneap</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><A href="http://www.exodusattack.com/">www.exodusattack.com</A></FONT></P>
+Автор: Headcrusher
+
+### 12.03.2010 news Новая песня EXODUS
+
+<P>Новую песню<STRONG> EXODUS</STRONG> <STRONG>"Hammer And Life" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/exodus">http://www.myspace.com/exodus</A></P>
+<P>Трэк попадёт на новую пластинку группы <STRONG>"Exhibit B: The Human Condition"</STRONG>,&nbsp;выходящую на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.05.2010 news EXODUS на MySpace
+
+<P>Новый альбом<STRONG> EXODUS</STRONG> <STRONG>"Exhibit B: The Human Condition" </STRONG>можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/exodus">http://www.myspace.com/exodus</A></P>
+<P>Пластинка вышла на этой неделе в России на<STRONG> Irond Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.05.2010 news Продажи нового EXODUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> EXODUS</STRONG> <STRONG>"Exhibit B: The Human Condition" </STRONG>был продан в количестве 4600 экземпляров в первую неделю в США. Пластинка попала на 114 место в чарты <STRONG>Billboard</STRONG>.&nbsp;Прошлый альбом был продан&nbsp;в количестве на 1000 штук меньшем в 2007 году. Вот другие позиции новейшего альбома:</FONT></P>
+<P>&nbsp;#32: Germany<BR>#49: Austria<BR>#53: Switzerland<BR>#22: Netherlands (Top 30 Alternative)<BR>#35: U.K. Top 50 (Indie chart)<BR>#23: U.K. Top 40 (Rock chart)<BR>#114: U.S.</P>
+<P><STRONG>EXODUS </STRONG>выступят в Москве 6 июля.</P>
+Автор: Vit Belov
+
+### 10.06.2010 reviews Потенциальные лидеры «Большой Четвёрки»
+
+<P>«Мы тоже там были!», - восклицает гитарист EXODUS Gary Holt с расстроенным видом. Этим летом в Европе пройдёт тур ‘Big Four’, в котором примут участие METALLICA, MEGADETH, ANTHRAX и SLAYER. Так вот Gary Holt расстроен именно этим событием. Вернее не самим событием, а фактом того, что EXODUS не пригласили в нём участвовать. Не волнуйся, Gary, важно ведь не только являться формальным участником «Большой Четвёрки thrash-metal», важно на самом деле принадлежать к лучшим коллективам в этом стиле.</P>
+<P>EXODUS – одна из немногих ветеранских групп, которые, не отвлекаясь на новые веяния и, что самое главное, не старея душой, продолжают выжигать настоящий метал с истовостью и преданностью настоящих маньяков. Музыка EXODUS всегда однообразно хороша. Агрегат бесперебойной работы, который разогревшись уже не остановиться не перед чем. Мощные риффы, великолепные соло, убийственно тошнотворный вокал. Новая пластинка американцев “Exhibit B: The Human Condition” звучит 74 минуты, и эти минуты капитально снесут крышу любому поклоннику стиля. Естественно из этого следует и главный недостаток этого альбома. Чтобы не растерять задор и не растрачивать энергию на различные выкрутасы, EXODUS играют музыку в одном определённом крышесрывающем ритме. Но кому есть дело до этого недостатка, если именно такая музыка заставляет слушателя забыть о том, что со времён образования пресловутой ‘Big Four’ прошло уже четверть века. EXODUS играют именно ту музыку, которая заставила обратить внимание слушателей на тяжёлый метал в те годы. <BR>Стоит отметить, что новый альбом EXODUS мелодичнее своего предшественника. На нём, кроме всего прочего, нашлось место и соло-гитаре, и даже акустике. В этом смысле коллектив приближается и к идеалам современного thrash-metal, заданными KREATOR. Тяжёлый и мелодичный с великолепным звучанием, таким он должен быть в XXI веке. </P>
+<P>Коммерческие интересы крупных промоутеров никогда не позволят EXODUS ездить в широкомасштабные туры вместе с монстрами современной тяжёлой музыки даже в качестве младших партнёров, не то что в качестве ко-хэдлайнеров. METALLICA, MEGADETH, SLAYER и даже ANTHRAX находятся гораздо выше в сознании обывателей, но не они сейчас являются лидерами thrash-metal. EXODUS, TESTAMENT и OVERKILL с примкнувшими к ним KREATOR действительно могли бы составить «Большую Четвёрку современного трэша», и именно эти группы по-прежнему «изготавливают» лучшие альбомы в некогда самом популярном стиле тяжёлой музыки.</P>
+Автор: Vit Belov
+
+### 10.08.2010 news Новый клип EXODUS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>EXODUS</STRONG> на песню <STRONG>"Downfall" </STRONG>можно посмотреть ниже. Создал ролик <STRONG>Jon Schnepp</STRONG> из <STRONG>"Metalocalypse".</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Внимание!!! Видео не рекомендуется к просмотру лицам больным эпилепсией.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/u95JTXzyHyA&hl=en_US&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/u95JTXzyHyA&hl=en_US&fs=1" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.02.2011 news Gary Holt в SLAYER!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>Gary Holt</STRONG> из <STRONG>EXODUS</STRONG> присоединится к <STRONG>SLAYER</STRONG> в качестве временной замены заболевшему <STRONG>Jeff Hanneman. </STRONG>Музыкант поедет вместе с группой в тур по Австралии.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мы уже сообщали, что <STRONG>Jeff Hanneman </STRONG>поправляется после инфекции и присоединится к<STRONG> SLAYER</STRONG> как только выздоровит. Таким образом, пока неизвестно, кто сыграет со <STRONG>SLAYER</STRONG> в Москве 15 марта.</FONT></P>
+<P><center><IMG height=429 src="/images/news_rus/2011.02/18604.jpg" width=294 border=0></P>
+Автор: Vit Belov
+
+### 21.02.2011 news Steve Souza снова поёт thrash-metal
+
+<P>Бывший вокалист<STRONG> EXODUS</STRONG> и <STRONG>TESTAMENT</STRONG> <STRONG>Steve "Zetro" Souza </STRONG>основал новую thrash-metal группу<STRONG> HATRIOT</STRONG>. Песню этого проекта, подозрительно напоминающую современное творчество<STRONG> EXODUS</STRONG>, можно послушать чуть ниже.</P>
+<P>
+<CENTER>
+<SCRIPT language=JavaScript src="http://www.roa<br>drunnerrecords.com/blabbermouth.net/reviewpics/audio/audio-player.js"></SCRIPT>
+
+<OBJECT id=audioplayer1 type=application/x-shockwave-flash height=24 width=290 data=http://www.roadrunnerrecords.com/blabbermouth.net/reviewpics/audio/player.swf></OBJECT>
+<P></P>
+<P>В составе коллектива:</P>
+<P><STRONG>Steve "Zetro" Souza</STRONG> - Vocals<BR><B>Andrew Gage</B> - Guitar<BR><B>Kosta Varvatakis</B> - Guitar<BR><B>Cody Souza</B> (Сын вокалиста) - Bass<BR><B>Alex Bent</B> - Drums</P></CENTER>
+Автор: Vit Belov
+
+### 30.03.2011 news  Pat O&#39;Brien (CANNIBAL CORPSE), тоже, поиграет в SLAYER
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18984.jpg" width=250 height=377>Гитарист группы<STRONG> CANNIBAL CORPSE</STRONG> Пэт О' Браен (<B itxtHarvested="1" itxtNodeId="407">Pat O'Brien</B>, на фото) заменит на боевом посту гитариста <B itxtHarvested="1" itxtNodeId="406">EXODUS</B> Гэри Холта (который, в свою очередь, заменяет<STRONG> Джеффа Хэннемана</STRONG>), когда тот покинет европейский тур <B itxtHarvested="1" itxtNodeId="403">SLAYER</B>, чтобы&nbsp;сыграть 10 апреля со своей группой <B itxtHarvested="1" itxtNodeId="402">EXODUS</B> перед <STRONG>IRON MAIDEN</STRONG>. Концерт пройдёт на стадионе "<STRONG>Estadio Nacional</STRONG>"&nbsp;города Сантьяго (Чили).&nbsp;<B itxtHarvested="1" itxtNodeId="401">Холт </B>заменял <STRONG>Хэннемана</STRONG> начиная с концерта в Австралии, 26 февраля. </P>
+<P>Последнее выступление с <STRONG>Холтом</STRONG> группа <B itxtHarvested="1" itxtNodeId="395">SLAYER</B> отыграет 4 апреля в городе Падова (Италия). <B itxtHarvested="1" itxtNodeId="394">O'Brien</B> присоединиться к <STRONG>SLAYER</STRONG> на концерте 6 апреля в Хорватии и продолжит играть до конца европейского тура, который закончится 14 апреля в Голландии.</P>
+Автор: Headcrusher
+
+### 14.09.2011 news Концерт в честь бракосочетания Гэри Холта (EXODUS) и Лизы Пертикон
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.09/21075.jpg" width=450 height=259> 
+<P></P>
+<P>В честь предстоящего бракосочетания Гэри Холта (<STRONG>Gary Holt</STRONG>)&nbsp;и Лизы Пертикон (<STRONG>Lisa Perticone</STRONG>), компании <STRONG>Iron Fist Circle Productions</STRONG> и <STRONG>Mandown Productions</STRONG> представляют вечеринку, получившую название <STRONG>"Holty Matrimony"</STRONG>. На данном мероприятии молодожёнов поздравят: <STRONG>HEATHEN</STRONG>, <STRONG>SKINLAB</STRONG>, <STRONG>ATTITUDE ADJUSTMENT</STRONG>, <STRONG>MIDNIGHT CHASER</STRONG>,<STRONG> SEVERED FIFTH</STRONG>, <STRONG>COFFIN HUNTER</STRONG>, <STRONG>MAD AT SAM</STRONG>, <STRONG>DEADLANDS</STRONG> и <STRONG>ANTI-MORTEM</STRONG>. А главной группой вечера станут сами <STRONG>EXODUS</STRONG> во главе с Гэри Холтом.</P>
+<P>Мероприятие пройдёт в субботу, 24 сентября в 18:00 в клубе <STRONG>The Avalon</STRONG> города&nbsp;Santa Clara (Калифорния, С.Ш.А.). Стоимость билетов: $25 в предварительной продаже и&nbsp;$30 в день концерта.</P>
+<P>Информация на сайте клуба: <A href="http://nightclubavalon.inticketing.com/events/160606">http://nightclubavalon.inticketing.com/events/160606</A></P>
+<P>На&nbsp;данный момент&nbsp;<STRONG>Gary Holt</STRONG> воспитывает двух дочерей от предыдущих связей, а&nbsp;<STRONG>Perticone </STRONG>- дочь-подростка. Сейчас пара проживает в городе Pinole, штат Калифорния.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.09/21074.jpg" width=400 height=618> 
+<P></P></CENTER></CENTER>
+Автор: Headcrusher
+
+### 24.09.2013 news GENERATION KILL: второй альбом в ноябре
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.09/26194.jpg" width=400 height=400>Проект <STRONG>GENERATION KILL</STRONG>, включающий в себя среди прочих вокалиста Роба Дьюкса (<STRONG>Rob Dukes</STRONG>, также в <STRONG>EXODUS</STRONG>) и басиста Роба Мошетти (<STRONG>Rob Moschetti</STRONG>, ex-<STRONG>PRO-PAIN</STRONG>, ex-<STRONG>M.O.D.</STRONG>), готовит к выпуску свой второй альбом.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стали доступны его трек-лист, название, обложка,&nbsp;а&nbsp;также дата выхода.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск получил жизнерадостное название <STRONG>"We're All Gonna Die"</STRONG> и выйдет 15 ноября на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1.<STRONG> Born To Serve</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>2. <STRONG>Prophets Of War</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>3. <STRONG>Self Destruction</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>4. <STRONG>Friendly Fire</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>5. <STRONG>Carny Love</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>6. <STRONG>Vegas</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>7. <STRONG>There Is No Hope</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>8. <STRONG>We're All Gonna Die<BR></P></STRONG></FONT>
+Автор: Headcrusher
+
+### 24.12.2013 news EXODUS: трусы для прекрасной половины человечества
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В интернет магазине лейбла<STRONG> Nuclear Blast</STRONG> появились в продаже&nbsp;женские трусы с символикой группы <STRONG>EXODUS</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Данный&nbsp;экземпляр текстильной продукции может стать оригинальным подарком&nbsp;для любимой девушки ко Дню Святого Валентина или же, тому, кому чужды иностранные праздники, к Восьмому Марта.</FONT></P>
+<P>Заказать можно по ссылке: <A href="http://www.nuclearblast.de/en/products/bandmerch/girlie/groesse-s/exodus-pleasures-of-the-flesh-tanga.html">http://www.nuclearblast.de/en/products/</A></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>К сожалению, на данный момент доступен только размер "S".</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.12/26438.jpg" width=400 height=386> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 09.06.2014 news Steve Souza вернулся в EXODUS
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.06/27052.jpg" width=352 height=467>Легендарная трэш-метал банда <STRONG>EXODUS</STRONG>&nbsp;анонсировала измениение в своём составе.&nbsp;Группа рассталась с вокалистом Робом Дьюксом (<STRONG>Rob Dukes</STRONG>) и вернула на прежнее место&nbsp;Стива Сузу (<STRONG>Steve "Zetro" Souza</STRONG>, на фото).</P>
+<P><STRONG>Rob Dukes</STRONG> был вокалистом в <STRONG>EXODUS</STRONG> начиная с 2005 года, заменив на этом посту&nbsp;<STRONG>"Zetro"</STRONG>&nbsp;и записал с группой четыре студийных альбома.</P>
+<P>Гитарист и лидер коллектива,<STRONG> Gary Holt</STRONG>, опубликовал следующее заявление по этому поводу: </P>
+<P><EM>"Как группа, мы все должны были сделать очень сложный выбор, чтобы принять решение о расставании с Робом Дьюксом (<STRONG>Rob Dukes</STRONG>).&nbsp;Мы не испытываем к нему ничего кроме любви, восхищения&nbsp;и признательности за его тяжёлый труд и великолепную работу, которую он проделал на записях. Но сейчас, <STRONG>Tom</STRONG> (<STRONG>Hunting</STRONG>, барабаны), <STRONG>Lee</STRONG> (<STRONG>Altus</STRONG>, гитара), <STRONG>Jack</STRONG> (<STRONG>Gibson</STRONG>, бас) и я думаем, что перемена необходима и наш единодушный выбор был сделан в пользу того, чтобы вернуть&nbsp;Стива Сузу&nbsp;(<STRONG>Steve Souza</STRONG>)!"</EM></P>
+<P>Добавляет <STRONG>Souza</STRONG>: </P>
+<P><EM>"Я провёл замечательную часть своей жизни&nbsp;с группой&nbsp;<STRONG>EXODUS</STRONG>.&nbsp;Её&nbsp;кровь течёт по мне и даже не&nbsp;являясь участником&nbsp;группы на протяжении последних 10 лет, ты не можешь избавиться от всей этой химии. Я в восторге!"</EM></P>
+Автор: Headcrusher
+
+### 01.08.2014 news EXODUS: подробности десятого студийного альбома
+
+<P>Легендарная thrash metal группа <STRONG>EXODUS</STRONG> опубликовала некоторые подробности о своём новом альбоме. Диск получил название <STRONG>"Blood In, Blood Out" </STRONG>и увидит свет 14 октября 2014 г. на&nbsp;лейбле <STRONG>Nuclear Blast</STRONG>.&nbsp;Обложку для него выполнил шведский художник <STRONG>Par Olofsson</STRONG> (<A href="http://www.parolofsson.se/">www.parolofsson.se</A>), прежде уже работавший с группой над оформлением диска&nbsp;<STRONG>"Let There Be Blood"</STRONG>.&nbsp;<STRONG>Par</STRONG> также известен своими работами для таких групп, как <STRONG>ONSLAUGHT</STRONG>, <STRONG>ABORTED</STRONG>, <STRONG>REVOCATION</STRONG>, <STRONG>ABYSMAL DAWN</STRONG> и др.</P>
+<P>Рассказывает&nbsp;лидер и гитарист коллектива,&nbsp;<STRONG>Gary Holt</STRONG>:&nbsp;<EM>“Концепция оформления принадлежит Пару Олоффсону. Я сказал ему название нового альбома&nbsp;и он тут же придумал, что будет изображено на обложке и это было круто! Одна из моих любимых обложек, которая когда-либо была у нас и она превосходна подходит к названию!”</EM></P>
+<P><STRONG>"Blood In, Blood Out"</STRONG> станет&nbsp;десятым по счёту студийным альбомом <STRONG>EXODUS</STRONG>. Он ознаменует&nbsp;возвращение в группу вокалиста&nbsp;Стива Сузы&nbsp;(<STRONG>Steve “Zetro” Souza</STRONG>), которого в последний раз можно было услышать на&nbsp;альбоме-возвращении&nbsp;<STRONG>"Tempo Of The Damned"</STRONG> (2004). Также стало известно, что в качестве гостя на альбоме принял участие <STRONG>Kirk Hammett</STRONG>, он исполнил гостевое гитарное соло на одной из песен альбома.&nbsp;</P>
+<P><center><IMG border=0 src="/images/news_rus/2014.08/27203.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+### 09.09.2014 news EXODUS: премьера песни
+
+<P>Американские трэшеры <STRONG>EXODUS</STRONG> опубликовали лирик-видео на трек <STRONG>"Salt The Wound"</STRONG> с готовящегося к выходу альбома "<STRONG>Blood In Blood Out"</STRONG>. Гостевое соло на этой песне исполнил <STRONG>Kirk Hammet</STRONG> из ансамбля <STRONG>METALLICA</STRONG>.</P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/CMs9yNlBp4c" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 20.07.2015 articles EXODUS, Москва, &quot;Volta&quot;,  07.06.15
+
+<P><STRONG>EXODUS</STRONG>, <STRONG>EXISTER</STRONG>, Москва, "Volta", 07.06.2015</P>
+<P><IMG border=0 src="/images/articles_rus/2015.07/28175.jpg" width=300 height=420></P>
+<P>Трудно поверить, что с момента предыдущего шедеврального концерта Exodus в Москве (первого в истории) минуло уже почти 5 лет! Но сколько событий произошло за это время, даже в рамках данной группы – Gary Holt уже довольно комфортно обосновался в обойме культовейших Slayer, в связи с чем с тех пор Exodus выпустили всего один альбом Blood In, Blood Out – зато какой! Он не только занял 38-ю строчку в Billboard, невзирая на стремительно усугубляющийся кризис CD-продаж, но также показал в музыкальном плане всё лучшее, что представляет из себя группа после возрождения, включая тепло встреченное фэнами триумфальное возвращение «оригинального» (в какой-то степени) фронтмена Steve “Zetro” Souza, произошедшее прямо во время записи вышеупомянутого альбома. Бессменный «босс» группы Gary Holt, уже пропускавший в связи с «левой» занятостью выступления и даже целые туры Exodus, и в этот раз выпал из обоймы – и на смену ему был избран участник второй основной группы Ли Алтуса Heathen по имени Kragen Lum, уже приходивший на выручку в данном амплуа в 2013-м году. Blood in, blood out – и никак иначе!</P>
+<P>В прочем, если отсутствие Gary Holt’a никак нельзя назвать приятным сюрпризом, то, в любом случае, это был отличный шанс для Крэйгена показать себя во всей красе перед битком набитым клубом Volta, да и сам по себе факт делает шоу в своём роде особенным – ведь такое повторится, мне кажется, с очень малой вероятностью, как и, например, выступление Paradise Lost без Gregor’a Mackintosh’а, что тоже как-то удалось лицезреть москвичам и гостям столицы в здании культовой «Горбушки». Но зато возвращение Zetro наверняка восприняло с восторгом подавляющее большинство фэнов Exodus, ведь его мощнейшим харизматичным голосом были украшены, пожалуй, самые сильные работы группы, которую в своё время просто невозможно было представить без его участия. И вот, свершилось! После 10-летнего отсутствия Стива и не до конца понятными, но весьма неожиданными&nbsp; обстоятельствами, связанными с уходом предыдущего фронтмена Rob’а Dukes’а посреди записи альбома, как говорится, звёзды сошлись и почва для феерического камбэка была подготовлена.</P>
+<P>Впрочем, хвалебных слов заслуживают не только хэдлайнеры, но и разогревающий ярославский трэшевый состав Exister, который уже многократно открывает шоу звёзд мирового уровня в данном жанре и делает это настолько успешно, что я смело могу назвать их лучшей живой российской группой в стиле thrash metal, на зависть другим, более именитым коллективам! Конечно, группа молодая, на её счету лишь короткий самиздатовский EP, но достаточно неплохой материал, местами напоминающий Sepultura образца 91-93 годов, и, конечно же, весьма энергичная подача музыки показывает серьёзный потенциал коллектива и заявку на успех на российской сцене. При том, что это не было самым лучшим концертом группы, Exister держатся на сцене всё более уверенно и, как могли убедиться все пришедшие на Exodus в это лето, получают весьма достойную поддержку публики. Особенно понравился всем, по понятным причинам, кавер на Pantera’вскую Yesterday Don’t Mean Shit, но и сам по себе бэнд показал себя полноценной творческой единицей, а не просто «абы каким» разогревом, который, увы, не всегда достоин делить сцену с именитыми хедлайнерами.</P>
+<P>Зато хэдлайнеры устроили в этот раз абсолютно безупручное thrash-металлическое шоу, о котором очень ёмко на чисто русском языке высказался со сцены гитарист Exodus, а также бывший одессит Ли Алтус: «В прошлый раз было круто, но сейчас полный п**дец, right»? И трудно с этим не согласиться – переполненная Volta просто стояла на ушах в бесконечном угаре, сёркл-пит сотрясал пол, на руках публики постоянно появлялись краудсёрферы, в том числе и женского пола, что отметил и сам фронтмен. Как и на любом настоящем концерте, очевидно, удовольствие было обоюдным – видя сходящую с ума от радости толпу, и сами музыканты то и дело норовили похвалить фэнскую активность. «В последнее время мы исколесили весь мир, но вы лучшие», заверил Стив, и в его словах нет никакого сомнения, потому что концерт может смело претендовать как на титул лучшего металлического шоу года, так и на громогласное звание одного из самых впечатляющих перформансов в стиле thrash metal вообще! Несмотря на недавний отличный концерт Overkill, герои данного шоу всё-таки доказали «кто есть кто» в металлической иерархии, а также в очередной раз продемонстрировали, что Exodus как никто другой может конкурировать с одиозной четвёркой, назвавшейся The Big 4!</P>
+<P>Во всех отношениях концерт заслуживает самых бурных похвал и уже заезженных восторженных эпитетов, которыми обычно пестрят отчёты о металлических концертах, но в данном случае это более чем оправданно. Вменяемый звук, хороший свет, сильный сетлист и великолепная музыка, остающаяся актуальной не одно, и даже не два десятилетия – вот скромный, но успешный рецепт творческого долголетия Exodus, которые пережили не один кризис в своей истории, чтобы снова возвращаться сильными и, конечно же, желанными публикой. И если «самовольная отлучка» харизматичного Гэри Холта и была воспринята кем-то в штыки, всё же, уверен, недовольных среди посетителей концерта не было, потому что музыканты выложились на все сто. Гитарный дуэт Ли и Крэйга, сработавшийся вместе в составе Heathen, отжигал по полной – с точки зрения как активности на сцене, так и гитарной работы. Зажигательный хэдбэнгинг, как все видели, практически не мешал успешному исполнению, а некоторые соло Гэри в исполнении Крэйга звучали даже более мелодично, чем в оригинале, что тоже не могло не радовать.</P>
+<P>Также довольно интересно было послушать не только классические боевики группы, но также и песни времён Роба Дюкса в исполнении Зетро – а таковых было две: сложная, но весьма угарная Iconoclasm и не самая удачная среднетемповая Children Of A Worthless God. Отмечу, что хотя местами Стив неплохо интерпретировал вокальные партии под себя, но всё же, как мне показалось, особого энтузиазма по поводу исполнения «чужих» песен он не испытывал, чего нельзя сказать об остальном содержимом сетлиста, который был более близок по духу фронтмену-«возвращенцу». А там было, опять же, достаточно приятных сюрпризов – мало того, все четыре песни с нового альбома Blood In, Blood Out (а именно первые две – супер-качовые вступительная Black 13 и Salt The Wound, залихватская одноимённая, а также самый агрессивный трэк авторства Алтуса и мой личный фаворит Body Harvest) звучали живьём просто «на ура», 5 трэков с дебютника Bonded By Blood были просто обречены на успех и взрывы активности в сёркл-пите, но также порадовал и эксклюзив «из старенького» - Pleasures Of The Flesh с одноимённого альбома 87-го года и феерически-убийственная The Last Act of Defiance, которую легко можно поставить в десятку лучших трэшевых композиций за всю историю стиля!</P>
+<P>И снова возвращаясь к Стиву Сузе и отмечая, что снова увидеть его в рядах Exodus ещё недавно было желанной мечтой многих фэнов, ведь он, по сути, и является «голосом группы», придающим ей неповторимый драйв и оригинальность, и уже поэтому само его присутствие на сцене было лучшим подарком публике, особенно после долгого ожидания очередного (всего лишь второго) приезда в Россию. И хотя его попытки рубиться на сцене были смелы и искренни, по сравнению с периодом его первого возвращения в группу после записи Tempo Of The Damned, когда он выглядел довольно лениво, но… Роб Дюкс как фронтмен всё же сильнее! Да, вокал Дюкса более одномерный, менее яркий и типично хардкоровый, но харизматичность и сценическая подача у него была на весьма достойном уровне! Не буду вдаваться в научно-фантастические размышления о том, что было бы при совмещении вокала одного и перформанса другого, а также как бы они выглядели на сцене вдвоём, лишь скажу, что данное шоу было истинным праздником для любого thrash-маньяка, триумфом скоростного тяжмета 80-х и обязательным поводом прийти посмотреть на группу ещё, уже с Гэри в составе – а, судя по аншлагу на данном гиге, количество желающих лицезреть Exodus ещё и ещё не должно уменьшится ни в какое кризисное время – лишь бы был повод это доказать и желательно поскорее!</P>
+<P>Текст: Дмитрий Dimebag Дасов</P>
+<P>Фотографии: <A href="/ru/galleries/21/1619">http://musica.mustdie.ru/ru/galleries/21/1619</A></P>
+<P>Setlist:</P>
+<P>Black 13 <BR>Blood In, Blood Out <BR>Iconoclasm <BR>Children of a Worthless God <BR>Piranha <BR>Salt the Wound <BR>Pleasures of the Flesh <BR>Body Harvest <BR>Metal Command <BR>The Last Act of Defiance <BR>Blacklist <BR>A Lesson in Violence <BR>Bonded by Blood </P>
+<P>Encore:<BR>War Is My Shepherd <BR>The Toxic Waltz <BR>Strike of the Beast</P>
+Автор: Headcrusher
+
+### 06.08.2015 news KING DIAMOND сыграют &quot;Abigail&quot; полностью
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>KING DIAMOND</STRONG> анонсировала северо-американский тур, в котором будет исполнять свой альбом <STRONG>"Abigail"</STRONG> (1987) целиком.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В качестве команды, открывающей их выступления, выступят трэшеры <STRONG>EXODUS</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первый концерт этого тура состоится 29 октября в городе Денвер.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.08/28210.jpg" width=400 height=533>&nbsp;</CENTER>
+Автор: Headcrusher
+
+### 24.02.2016 news Шлёпанцы от EXODUS
+
+<P>Готовь сани летом, а шлёпанцы зимой!</P>
+<P>Вот такие "вьетнамки" группы <STRONG>EXODUS</STRONG> доступны для заказа на сайте одного из самых крупных интернет магазинов по продаже мерчендайзинга в Северной Америке.</P>
+<P>Купить: <A href="http://www.jsrdirect.com/merch/exodus/exodus-logo-sandals">http://www.jsrdirect.com/merch/exodus/exodus-logo-sandals</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.02/28880.jpg" width=500 height=389>&nbsp;</CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Видел тут фэна Exodus...

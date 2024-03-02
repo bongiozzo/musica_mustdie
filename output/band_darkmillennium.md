@@ -66,6 +66,17 @@ In July 1993.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.06.2013 news Marek Grzeszek: 25.10.1967 - 15.05.2013
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.06/25782.jpg" width=298 height=359>На днях стало известно, что 15 мая 2013 г. покончил жизнь самоубийством <STRONG>Marek Grzeszek</STRONG><EM> (на фото)</EM>, гитарист давно распавшейся немецкой thrash metal банды <STRONG>DESPAIR</STRONG>. Причины, сподвигшие 45 летнего&nbsp;Марека на подобный шаг, не известны.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>DESPAIR</STRONG> за время своего существования выпустила три альбома:</FONT></P>
+<P>1. <STRONG>History Of Hate</STRONG> (1988)<BR>2. <STRONG>Decay Of Humanity</STRONG> (1990)<BR>3. <STRONG>Beyond All Reason</STRONG> (1992)</P>
+<P>После развала коллектива, пути музыкантов разошлись. Первый вокалист группы, <STRONG>Robert Kampf</STRONG>, покинувший её вскоре после записи дебютного альбома, стал главой лейбла <STRONG>Century Media</STRONG>, который он, собственно, и создал, чтобы выпустить тот самый дебютный альбом. Гитарист <STRONG>Waldemar Sorychta</STRONG> стал известным продюсером, а участником многих проектов, среди них <STRONG>ENEMY OF THE SUN</STRONG>,<STRONG> EYES OF EDEN</STRONG>, <STRONG>GRIP INC.</STRONG> и другие. Барабанщик <STRONG>Markus Freiwald</STRONG>, так же, известен за свою&nbsp;множественную&nbsp;сессионную работу.&nbsp;C&nbsp;2010&nbsp;года&nbsp;является постоянным участником легендарной группы <STRONG>SODOM</STRONG>. Второй вокалист, <STRONG>Andreas Henschel</STRONG>, работает татуировщиком в салоне <STRONG>"Taka Tiki"</STRONG> (<A href="http://www.takatiki.de/">www.takatiki.de</A>) немецкого города Лейпциг. Бас-гитарист <STRONG>Klaus Pachura</STRONG> лишь однажды, после роспуска <STRONG>DESPAIR</STRONG>,&nbsp;был замечен в создании музыки -&nbsp;он&nbsp;записал второй&nbsp;альбома группы <STRONG>DARK MILLENNIUM</STRONG> под названием <STRONG>"Diana Read Peace" </STRONG>(1993). Чем занимается сейчас неизвестно.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

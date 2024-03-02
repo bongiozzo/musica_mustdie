@@ -36,6 +36,18 @@ German hardcore
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.11.2015 news Новый клип RYKER&#39;S
+
+<P>Немецкие ветераны hardcore движения<STRONG> RYKER'S</STRONG> выпустили в 2015 году новый альбом "<STRONG>Never Meant to Last</STRONG>". Новый клип коллектива на трек с этой работы "<STRONG>The Outcast's Voice</STRONG>" можно посмотреть ниже.</P>
+<P>Приобрести диск в формате digi-pak можно по ссылке: <A href="http://escapemind.ru/goods/RYKERS-Never-Meant-To-Last-CD-digi">http://escapemind.ru/goods/RYKERS-Never-Meant-To-Last-CD-digi</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/vxAC98UiGu4" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -20,6 +20,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.06.2016 news DECREPIT BIRTH подписались на Agonia
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Калифорнийская techno death metal команда <strong>DECREPIT BIRTH</strong> подписала контракт с <strong>Agonia Records</strong>. Группа сейчас работает над четвёртым альбомом, который выйдет до конца года.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Предыдущие альбомы коллектива выходили на <strong>Nuclear Blast</strong>. Подробности о новом CD последуют.</font></p><p>&nbsp;<center><img width="645" height="363" src="/images/news_rus/2016.06/29472.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 25.06.2016 news DECREPIT BIRTH signed with Agonia
+
+<p>California techno death metal band<strong> DECREPIT BIRTH</strong> signed a contract with <strong>Agonia Records</strong>. The group is now working on a fourth album which will be released before the end of the year.</p><p>Previous albums of the band was released on <strong>Nuclear Blast</strong> records. Details about the new CD will follow.</p><p>&nbsp;<center><img width="645" height="363" src="/images/news_rus/2016.06/29472.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

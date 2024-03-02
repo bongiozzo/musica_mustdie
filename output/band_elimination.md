@@ -23,6 +23,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.10.2011 news Новый альбом ELIMINATION
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2011.10/21624.jpg" width=400 height=400>Британские трешеры<STRONG> ELIMINATION</STRONG> выпускают новый альбом "<STRONG>The Bloof Of Titans</STRONG>" 28 ноября на <STRONG>Transcend Music</STRONG>. Новая работа группы ознаменует новую эру в её истории, музыканты обратили свой взор на более мелодичный метал. </P>
+<P>Дебютная работа <STRONG>ELIMINATION "Destroyed By Creation"</STRONG> вышла в 2010 году.</P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/eliminationband">www.myspace.com/eliminationband</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

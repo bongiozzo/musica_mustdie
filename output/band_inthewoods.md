@@ -122,6 +122,71 @@ CD Two
 * C группой "Chain Collector" Kobro
 * C группой "Green Carnation" Jan Kenneth Transit
 
+## Публикации
+
+### 16.02.1999 reviews 
+
+<p>Даже не верится, что когда-то эта норвежская группа играла в стиле black-metal. Дело было в 1995 году, когда вышел дебютный альбом группы. Уже на следующем альбоме группа стала больше внимания уделять doom-пассажам. А на третьем альбоме 1997 года, группа окончательно всех удивила выдав потрясающий материал в стиле progressive-gothic-doom. На нём же произошёл окончательный отказ от брутального вокала в пользу простого мужского и женского вокалов. Новый альбом является логическим продолжением предыдущего. Музыку представленную на нём уже трудно назвать metal'ом. Скорей, это прогрессивная форма арт-рока. Это очень серьёзная музыка с использованием классических фрагментов. Альбом сделан в меланхоличном ключе, поэтому не предназначен для широкого круга слушателей. Исключительно для любителей подобной музыки.</p>
+
+Автор: Dimas
+
+### 11.04.1999 news 
+
+<p>In The Woods веернулись в студию и записывают новый EP. Он будет содержать одну новую песни и кавер на песню King Crimson (предположительно).</p>
+
+Автор: Vit Belov
+
+### 07.09.2000 news Группа In The Woods распадается
+
+<p>Группа In The Woods распадается. Но перед этим In The Woods отыграют большой концерт, продолжительностью около четырех часов, в котором примут участие все бывшие и настоящие члены группы, и будут исполнены все песни из репертуара группы. In The Woods... - The Final Gig пройдет в Caledonian Hall, самой большой гостинице в Норвегии, 29-го ноября этого года.</p>
+
+Автор: Nybras
+
+### 07.09.2000 news In The Woods is about to split up
+
+<p>In The Woods will be splitting up. But at least they will play a gig with four hours duration, with all In The Woods members from the past and present and almost all songs ever written by this formation. In The Woods... - The Final Gig will take place in Kristiansand?s biggest hotel, Caledonian Hall, in Norway, which is situated right opposite from the port, on 29. December.</p>
+
+Автор: Nybras
+
+### 19.03.2003 reviews Ранние записи IN THE WOODS...
+
+<p>Достаточно древний релиз. В оригинале – _ещё более_ древний. Дело в том, что "A Return to the Isle of Men" – ни что иное, как переиздание демо этой замечательной норвежской группы, добитое несколькими вещами эпохи "HEart of the Ages", а также одной песней, записанной специально для этого переиздания. Что ж, IN THE WOODS… - он и в Африке IN THE WOODS… Правда, в данном случае – на порядок хуже. Это не шедевр уровня "HEart of the Ages", "Omnio" или "Strange in Stereo". Это раннее творчество группы, когда стиль ещё не был отшлифован, а вокалист периодически "мазал" мимо нот, когда чересчур увлекался чистым вокалом. И да, конечно же здесь есть тот милый уху душераздирающий скриминг а-ля тов.Викернес. Любопытный, по-настоящему достойный и… сырой материал. Если вы не знакомы с IN THE WOODS…, то мой вам совет: начните лучше с любого из трёх упомянутых выше альбомов. А этот оставьте на десерт.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 03.10.2003 reviews Финальная глава
+
+<TABLE id=HB_Mail_Container height="100%" cellSpacing=0 cellPadding=0 width="100%" border=0 UNSELECTABLE="on">
+<TBODY>
+<TR height="100%" width="100%" UNSELECTABLE="on"></TR>
+<TR UNSELECTABLE="on" hb_tag="1"></TR></TBODY></TABLE>
+<BLOCKQUOTE id=b091bf2c>
+<P>Группа In The Woods уже не существует. Но перед распадом они отыграли большой концерт продолжительностью около трех часов, в котором приняли участие все бывшие участники группы, и были исполнены все песни из репертуара группы. Концерт прошел в Caledonian Hall,&nbsp;самой дорогой и фешенебельной гостинице&nbsp;в Норвегии, 29-го декабря 2000 года. Именно этот концерт и предложили нам владельцы нового лэйбла Karmakosmetix, являющегося подразделением Prophecy Productions. Работа над этим концертникам велась в течение двух лет. Здесь, конечно, не все песни группы, но все самые лучшие хиты с самых разных альбомов, в том числе весь альбом "Omnio". Когда я узнал три года назад о распаде группы, лично мне было очень жаль, что это случилось. Группа прошла нелегкий путь от сырого и задумчивого black metal через progressive gothic metal к art music. После первых же звуков альбома впадаешь в грусть-тоску и меланхолию. Высокохудожественный психоделический материал, звучащий, как тяжелая версия PINK FLOYD. Материал был отыгран мастерски, не ожидал настолько хорошей реализации этого концерта. &nbsp;Целых 146 минут грандиозной музыки и непередаваемой атмосферики. Достойный эпилог в истории группы, оставившей значительный след не только в норвежском андерграунде, но и в мировом. Очень многое хочется сказать про этот альбом, так как он оказал на меня сильнейшее впечатление. Но слова - ничто... Лучше послушайте сами!</P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P></BLOCKQUOTE>
+Автор: Dimas
+
+### 24.06.2016 news IN THE WOODS... выпускают альбом
+
+<p>Легендарная группа <strong>IN THE WOODS... </strong>выпускает новый альбом "<strong>Pure</strong>" 16 сентября на<strong> Debemour Morti</strong>. Группа не выпускала новой музыки 17 лет!</p><p>Трек лист:</p><p>“Pure”<br> “Blue Oceans Rise (Like A War)”<br> “Devil's At The Door”<br> “The Recalcitrant Protagonist”<br> “The Cave Of Dreams”<br> “Cult Of Shining Stars”<br> “Towards The Black Surreal”<br> “Transmission KRS”<br> “This Dark Dream”<br> “Mystery Of The Constellations”</p><p>&nbsp;<center><img width="640" height="640" src="/images/news_rus/2016.06/29458.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 24.06.2016 news IN THE WOODS... will release new album
+
+<p>A legendary band<strong> IN THE WOODS...</strong> releasing a new album "<strong>Pure</strong>" on September 16 via<strong> Debemour Morti</strong>. The group has not released new music for over 17 years!</p><p>Track list:</p><p>“Pure”<br> “Blue Oceans Rise (Like A War)”<br> “Devil's At The Door”<br> “The Recalcitrant Protagonist”<br> “The Cave Of Dreams”<br> “Cult Of Shining Stars”<br> “Towards The Black Surreal”<br> “Transmission KRS”<br> “This Dark Dream”<br> “Mystery Of The Constellations”</p><p>&nbsp;<center><img width="640" height="640" src="/images/news_rus/2016.06/29458.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 29.06.2016 news Новая музыка IN THE WOODS
+
+<p>Мы уже сообщали, что новый альбом<strong> IN THE WOODS "Pure"</strong> выйдет 16 сентября на <strong>Debemur Morti Productions</strong>. На официальном bandcamp лэйбла можно послушать трек "<strong>Cult Of Shining Stars</strong>".</p><p><center><iframe src="https://bandcamp.com/EmbeddedPlayer/album=2894499501/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/transparent=true/" style="border: 0px currentColor; width: 60%; height: 120px;" seamless="">&lt;a href="http://dmp666.bandcamp.com/album/pure"&gt;Pure by IN THE WOODS...&lt;/a&gt;</iframe><p></p></center>
+Автор: Vit Belov
+
+### 29.06.2016 news New music by IN THE WOODS
+
+<p>We have already reported that the new album<strong> IN THE WOODS "Pure"</strong> will be released September 16 on <strong>Debemur Morti Productions</strong>. On the official bandcamp of the label, you can hear the track "<strong>Cult Of Shining Stars</strong>".</p><p><center><iframe src="https://bandcamp.com/EmbeddedPlayer/album=2894499501/size=large/bgcol=ffffff/linkcol=0687f5/tracklist=false/artwork=small/transparent=true/" style="border: 0px currentColor; width: 60%; height: 120px;" seamless="">&amp;amp;amp;lt;a href="http://dmp666.bandcamp.com/album/pure"&amp;amp;amp;gt;Pure by IN THE WOODS...&amp;amp;amp;lt;/a&amp;amp;amp;gt;</iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

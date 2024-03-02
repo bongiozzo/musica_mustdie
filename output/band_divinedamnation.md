@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.10.2011 news Новая песня DIVINE DAMNATION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый трек венгерской death-metal <STRONG>группы DIVINE DAMNATION "Blood Of Christ"</STRONG> можно послушать ниже. Группа работает над дебютным альбомом, который выйдет в скором времени.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/p8KypvV-Ftk?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/p8KypvV-Ftk?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

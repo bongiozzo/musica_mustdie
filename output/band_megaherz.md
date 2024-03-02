@@ -88,6 +88,35 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.04.2005 reviews Любителям RAMMSTEIN!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Немцы MEGAHERZ довольно быстро нашли свою нишу на современной сцене. Даже не так. Они быстро поняли, какая музыка обеспечит им успех на долгие годы. Вот уже 8 лет они шагают вногу с RAMMSTEIN и снимают плоды с дерева, которое посадили их коллеги.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На лаконично названном альбоме "5" вы услышите всё тот же коммерческий мелодичный industrial-metal, продолжающий пользоваться недюжинной популярностью. Музыке MEGAHERZ не хватает ни напористости прошлых альбомов RAMMSTEIN, ни танцевальности проектов, типа UNHEILIG, граничащей с synth-pop.&nbsp;Пожалуй, только открывашка&nbsp;"Komm Ruber" достаточно энергична, и мы понимаем, почему подобная музыка часто появляется в фильмах жанра action. Моим фаворитом является "Dein Herz Schlagt", которая&nbsp;в припеве&nbsp;прекрасно сочетает апоклептический мелодизм и агрессивность, но, как и на всём альбоме, во время куплетов кажется немного занудной и переполненной текстами.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Безусловно, новый альбом MEGAHERZ можно адресовать всем любителям RAMMSTEIN. Именно так. Не обращая внимания на стили и.т.п. Любителям RAMMSTEIN!!!</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск предоставлен <A href="http://www.artmusic-group.ru/">Art-Music</A></FONT></P>
+Автор: Vit Belov
+
+### 07.09.2005 news MEGAHERZ в Москве
+
+<CENTER><IMG height=240 alt="" hspace=0 src="/images/shows_rus/2005.08/9110.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 27.09.2005 news MEGAHERZ отменяют концерты
+
+<P><STRONG>MEGAHERZ</STRONG> объявили на своём официальном сайте, что ещё 1 сентября вокалист Матиас покинул группу. Известие стало совершенно неожиданным как для лейбла, менеджмента,&nbsp;так и для&nbsp;всех музыкантов, к тому же совершенно не ясны причины подобного поступка. <STRONG>MEGAHERZ</STRONG> титаническими усилиями искали нового певца, пытаясь спасти надвигающийся тур по Германии, но сделать это за столь короткий промежуток времени не удалось. По этой причине группа скрепя сердце&nbsp;объявляет&nbsp;об отмене всех концертов до конца года.</P>
+<P>И только в Москве коллектив выступит с приглашённым вокалистом <STRONG>Alexander "Lex" Wohnhaas</STRONG>. <STRONG>Lex</STRONG> - опытный фронтмен, за плечами которого десятилетний опыт живых выступлений и студийной работы в Германии, Швейцарии и Австрии. Настоящую известность в Германии в 2004-м году ему принесла титульная песня "<STRONG>Alles was du willst</STRONG>" к пятому сезону немецкой версии реалити-шоу "Большой Брат". Эта песня была на ведущих позициях в чартах Германии на протяжении целого года и клип на нее крутился по пяти телеканалам. Сейчас он занят студийной работой со своей группой Seelenbrand. На московском концерте&nbsp;<STRONG>MEGAHERZ</STRONG> в качестве вокалиста будет именно он! </P>
+Автор: Morsus
+
+### 21.07.2008 news Новый альбом MEGAHERZ
+
+<P>25&nbsp;июля выходит новый альбом&nbsp;<STRONG>MEGAHERZ</STRONG> <STRONG>"Heuchler". </STRONG>Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Heuchler</B><BR itxtvisited="1">02. <B itxtvisited="1">Das Tier</B><BR itxtvisited="1">03. <B itxtvisited="1">Ebenbild</B><BR itxtvisited="1">04. <B itxtvisited="1">Mann Von Welt</B><BR itxtvisited="1">05. <B itxtvisited="1">Fauler Fauber</B><BR itxtvisited="1">06. <B itxtvisited="1">Mein Gral</B><BR itxtvisited="1">07. <B itxtvisited="1">L'Aventure</B><BR itxtvisited="1">08. <B itxtvisited="1">Schau In Mein Herz</B><BR itxtvisited="1">09. <B itxtvisited="1">Kaltes Grab</B><BR itxtvisited="1">10. <B itxtvisited="1">Alles Nur Lenge</B><BR itxtvisited="1">11. <B itxtvisited="1">Morgenrot</B><BR itxtvisited="1">Bonus tracks (digipack):<BR itxtvisited="1">12. <B itxtvisited="1">Das Tier</B> (Orchestra Version)<BR itxtvisited="1">13. <B itxtvisited="1">Das Tier</B> (Orchestra Only)</P>
+<P>Песню с этой пластинки можно послушать по ссылке: <A href="http://www.myspace.com/megaherz">http://www.myspace.com/megaherz</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

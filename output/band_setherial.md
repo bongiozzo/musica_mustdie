@@ -119,6 +119,30 @@ Official compliation with rare & demo-tracks.
 
 * C группой "In Battle" Sjdin (a.k.a. Mysteriis)
 
+## Публикации
+
+### 22.04.2003 news Новости от SETHERIAL
+
+<p>Шведская группа SETHERIAL закончила работы над своим новым студийным альбомом под названием "Endtime Divine". Релиз увидит свет 2 июня 2003 года на Regain Records.</p>
+
+Автор: Dimas
+
+### 19.11.2007 news SETHERIAL представили нового гитариста
+
+<P>Шведские black-metal'исты <STRONG>SETHERIAL</STRONG> сочиняют песни к своему шестому альбому. Подробности будут сообщены позже. К группе, тем временем, присоединился новый гитарист по "кличке" <STRONG>Thurz</STRONG>, он заменил <STRONG>Choronzon</STRONG>.</P>
+Автор: Vit Belov
+
+### 02.04.2010 news SETHERIAL выпустили новое видео
+
+<P>Видео-клип на песню <STRONG>"A World In Hell" </STRONG>шведов <STRONG>SETHERIAL</STRONG> можно посмотреть ниже. Песня войдёт на новый альбом группы <STRONG>"Ekpyrosis"</STRONG>, который выйдет в мае на <STRONG>Regain Records</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/7mNyB08cv_s&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/7mNyB08cv_s&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

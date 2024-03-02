@@ -167,6 +167,53 @@ Pelle Еkerlind - Drums
 * C группой "Tad Morose" Tommi Karppannen (bass)
 * C группой "Inmoria" Tommi Karppannen (bass)
 
+## Публикации
+
+### 16.11.1999 news 
+
+<p>Гитарист Lefay Питер Грен попал в аварию на своём мотоцикле. Несмотря на многочисленный повреждения, он собирается выступать с группой на предстоящих шоу.</p>
+
+Автор: Vit Belov
+
+### 24.06.2002 news Seven Witches ищут нового певца...
+
+<p>Сразу после европейского тура с Annihilator, SEVEN WITCHES решили разбежаться со своим вокалистом - Wade Black. Вэйд решил сфокусироваться на собственной сольной карьере. Еще до этих событий Jack Frost, Joey Vera и Brian Craig начали запись четвертого альбома "Ведьм" - "BETRAYER", который должен выйти в продажу в феврале 2003. Пока что самая реальная кандидатура на пост певца - Charles Rytk&ouml;nen, который известен по работе Morgana Lefay и Lefay.....</p>
+
+Автор: Yermola
+
+### 14.09.2004 news LEFAY стали опять MORGANA LEFAY
+
+<P>Шведы <STRONG>LEFAY</STRONG> переименовались обратно в <STRONG>MORGANA LEFAY</STRONG> и подписали новый контракт с<STRONG> Black Mark</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Все наши фэны всегда знали, что <STRONG>LEFAY</STRONG> - это <STRONG>MORGANA LEFAY</STRONG>. Мы не имели права использовать это название, из-за деловых разногласий, но теперь мы снова на <STRONG>Black Mark</STRONG>, и наше название снова у нас. Мы начнём запись нового альбома <STRONG>'Grand Materia' </STRONG>в ближайшем будущем</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 26.01.2005 news Новости от MORGANA LEFAY
+
+<P><IMG height=133 alt="" hspace=20 src="/images/news_rus/2005.01/7784.jpg" width=200 align=left border=0>Шведская&nbsp;progressive heavy doom формация <B>MORGANA LEFAY</B> готовит к выпуску свой новый альбом под названием <B>"Grand Materia"</B>, релиз которого ожидается 28 марта на <B>Black Mark Records</B>. Это будет концептуальная история о <B>Nicholas Flamel</B>, алхимике 14 столетия, пытавшегося выявить секреты вечной жизни.</P>
+<P>Кроме того, по <A href="http://www.morganalefay.se/">этому</A> адресу запущен новый официальный сайт&nbsp;<B>MORGANA LEFAY.</B></P>
+Автор: Dimas
+
+### 06.07.2005 reviews Возвращение MORGANA LEFAY
+
+<P><STRONG>MORGANA LEFAY</STRONG> вернули себе оригинальное название.<STRONG> LEFAY</STRONG>, предыдущее название, опять обросло <STRONG>MORGANA</STRONG> после того, как были улажены некоторые контрактные дрязги. Последние месяцы в сети производились попытки сделать из этого естественного процесса деятельности, обрастания, сенсацию. Не получилось. Нельзя сказать, что выход пластинки <STRONG>MORGANA LEFAY</STRONG> остался незамеченным, где-то&nbsp;на это наверняка обратили внимание.</P>
+<P>Вот и я обратил внимание. При том, что <STRONG>Black Mark</STRONG> в нашей стране с некоторых пор не лицензируется, и, вообще, слегка гиблый лэйбл, послушать "<STRONG>Grand Materia</STRONG>" мне удалось. Группа продолжает свой путь&nbsp;к успеху в стиле тягучего heavy-metal на грани со stoner и, иногда, thrash.&nbsp;Кто-то&nbsp;обратит моё внимание на то, что это, скорее, путь от успеха. Не спорю, но любые коллизии могут иметь место. Подопытный альбом начинается ни шатко, ни валко.&nbsp;После пары первых песен вы можете начать зевать, дальше идёт колыбельная "<STRONG>Only Endless Time Remains</STRONG>". Вот тут-то вы и смогли бы заснуть, как говорится на Endless Time, но нет.&nbsp;<STRONG>MORGANA LEFAY</STRONG> порадают&nbsp;"выживших" несколькими хорошими песнями. "<STRONG>On the Other Side</STRONG>", например.</P>
+<P>К сожалению, дальше трэки вновь сваливаются в одну манную&nbsp;кашу, а эти песни остаются приятным воспоминанием. Этот альбом стоит искать только большим фэнам группы. Тем, кто ничего не знал ни о <STRONG>MORGANA LEFAY</STRONG>, ни о <STRONG>LEFAY</STRONG>, суетиться не стоит.&nbsp;&nbsp;&nbsp;</P>
+<P>P.S.: Начала для двух песен странным образом напомнили некоторые интро у <STRONG>METALLICA</STRONG> (это так, забавы ради).</P>
+Автор: Vit Belov
+
+### 06.02.2006 news Пауэр-фест в Чикаго - последние новости
+
+<P>7 и 8 апреля в Mr. Kelley's Music Box, Чикаго, штат Иллинойс, пройдет четвертый ежегодный фестиваль&nbsp;<B>Chicago Powerfest</B>. В нем принимают участие как ветераны, так и новички метальной сцены. Билеты сразу на два дня стоят (такой вариант будет возможен только для 600 счастливчиков) пятьдесят долларов. Состав участников:</P>
+<P>7 апреля, пятница:<BR>&nbsp;<BR><B>ELDRITCH<BR>BIOMECHANICAL<BR>AGENT STEEL<BR>GRACEPOINT<BR>WITHERING SOUL</B><BR>&nbsp;<BR>8 апреля, суббота:<BR>&nbsp;<BR><B>MORGANA LEFAY<BR>NOCTURNAL RITES<BR>ION VEIN<BR>TWELFTH GATE<BR>MIRROR BLACK</B></P>
+<P>Послушать аудио-сэмплы и получить иную информацию можно на сайте фестиваля <A href="http://www.chicagopowerfest.com/"><U>http://www.ChicagoPowerfest.com</U></A></P>
+Автор: Ixtiandr
+
+### 19.01.2007 news MORGANA LEFAY поменяли название нового альбома
+
+<P>Шведский power-thrash metal акт <B>MORGANA LEFAY</B> изменили название нового альбома на <B>"Aberrations of the Mind"</B> вместо объявленного ранее <B>"Primal Chaos"</B>. Он выйдет 19 марта на <STRONG>Black Mark</STRONG> и будет более агрессивным и мрачным, чем традиционный материал коллектива.<STRONG> </STRONG>В него войдут следующие вещи: <BR><BR>1. <B>Delusions</B> <BR>2. <B>Make a Wish</B> <BR>3. <B>The Rush of Possession</B><BR>4. <B>Depression</B> <BR>5. <B>Caught in the Tread Wheel</B> <BR>6. <B>Reflections of War</B><BR>7. <B>Face of Fear</B> <BR>8. <B>Where I Rule</B> <BR>9. <B>In Shadows I Reign</B> <BR>10. <B>Aberration of Mind</B> <BR>11. <B>Vultures Devouring</B> <BR>12. <B>Over and Over Again</B> <BR></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

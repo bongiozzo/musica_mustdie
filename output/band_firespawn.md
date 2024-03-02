@@ -25,6 +25,39 @@
 * C группой "Necrophobic" Fredrik Folkare (guitar)
 * C группой "Siebenburgen" Fredrik Folkare (guitar)
 
+## Публикации
+
+### 25.11.2015 news FIRESPAWN - новая all-star band
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Очередные звёзды шведского death-metal прибыли!!! Содружество вокалиста&nbsp;<STRONG>LG Petrov (Entombed A.D., Morbid, Nihilist),</STRONG> гитаристов <STRONG>Victor Brandt (Entombed A.D.)</STRONG>&nbsp;и <STRONG>Fredrik Folkare (Unleashed, Necrophobic)</STRONG>, басиста <STRONG>A. Impaler (Unleashed, Necrophobic)</STRONG> и барабанщика&nbsp;<STRONG>Matte Modin (Raised Fist, Defleshed)</STRONG>. Великолепный материал для всех поклонников жанра. Ниже можно посмотреть два видео на песни "<STRONG>The Emperor</STRONG>" и "<STRONG>Lucifer Has Spoken</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фирменный digipak производства <STRONG>Century Media</STRONG> можно приобрести здесь: <A href="http://escapemind.ru/goods/Firespawn-Shadow-Realms-Ltd-CD-Digipak">http://escapemind.ru/goods/Firespawn-Shadow-Realms-Ltd-CD-Digipak</A></FONT></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/nLeZZ1A-MiA" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/_D225qOxugc" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER></CENTER>
+Автор: Vit Belov
+
+### 26.02.2016 reviews Шведы, играющие не по-шведски
+
+<P>Новая шведская группа FIRESPAWN со своим дебютным альбомом «Shadow Realms” сразу оказалась на Century Media, и это не случайно. В составе L.G. Petrov (ENTOMBED A.D.), Alex Friberg (NECROPHOBIC), Victor Brandt (ENTOMBED A.D.) и Fredrik Folkare (UNLEASHED). Читатель сразу сделает поспешный вывод о музыке и будет в чём-то прав. Но есть нюансы, делающие этот альбом не просто хорошим, а очень хорошим.</P>
+<P>Используя шведские наработки в звучание death metal, музыканты доказывают, что собрали свою группу не просто для озвучивания старых всеми любимых наработок. Мелодии видятся более брутальными, чем в стандартном шведском дэте, а яркая антихристианская направленность придаёт особый шарм атмосфере альбома. Пластинка слушается на одном дыхании и предлагает разумный микс между тяжестью и композицией.</P>
+<P>Отличный дебют, на который должны обратить внимание не только любители групп, из которых родом участники коллектива, но и поклонники американского death-metal.</P>
+<P>Купи на <A href="http://escapemind.ru/goods/FIRESPAWN-quot-Shadow-Realms-quot">Escapemind.ru</A></P>
+Автор: Vit Belov
+
+### 08.07.2016 news Новое видео FIRESPAWN
+
+<p>Новый клип <strong>FIRESPAWN </strong>на песню "<strong>All Hail</strong>" можно посмотреть ниже. Трек взят с дебютного альбома шведов "<strong>Shadow realms</strong>", вышедшего в прошлом году на <strong>Century Media</strong>. В группе принимают участие музыканты ENTOMBED AD, NECROPHOBIC, GRAVE.</p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/1Mzt3oDiJAc" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 08.07.2016 news FIRESPAWN new video for “All Hail” launched
+
+<p>Swedish death metal commando <strong>FIRESPAWN</strong> have stirred up the international extreme metal scene on 2015 with the release of their debut album “<strong>Shadow Realms</strong>” quite heavily. If you are not yet familiar with FIRESPAWN we highly advise to watch the band’s brand new video for the song “<strong>All Hail</strong>”, a dark, twisted, evil and surprisingly epic death metal tune:</p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/1Mzt3oDiJAc" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

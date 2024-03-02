@@ -20,6 +20,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.01.2005 news BLINDED COLONY заменили вокалиста
+
+<P>Melodic death-metal группа <STRONG>BLINDED COLONY</STRONG> заменила вокалиста. Вместо ушедшего по "профессиональным" причинам <STRONG>Niklas Svensson </STRONG>будет выступать <STRONG>Johan Schuster</STRONG>, если Вам эти имена что-то говорят.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

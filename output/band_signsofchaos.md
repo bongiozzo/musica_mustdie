@@ -16,6 +16,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.08.2016 news Лирик видео от SIGNS OF CHAOS
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новое лирик видео канадской thrash/groove metal группы<strong> SIGNS OF CHAOS</strong> на песню "<strong>Take You Out</strong>" можно посмотреть ниже. Трек взят с последнего релиза музыкантов "<strong>Watch It Burn</strong>".</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/xdkZPpQ4kzk" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 10.08.2016 news New lyric video of SIGNS OF CHAOS
+
+<p>Ottawa, ON's <strong>SIGNS OF CHAOS</strong> have posted a new lyric video for their track <strong>'Take You Out'</strong> from their brutally hard hitting EP <strong>‘Watch It Burn’ </strong>unleashed this past April to follow 2012’s debut album <strong>‘Rise’</strong> and 2009’s untitled Demo. The EP was produced by SOC, mixed and mastered by bassist<strong> Tom “Big Dirty” Hansen</strong> and tracked by Topon Das of Fuck The Facts at Apartment 2 studios.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/xdkZPpQ4kzk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

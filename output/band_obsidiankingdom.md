@@ -20,6 +20,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.10.2016 news Прогрессивные испанцы OBSIDIAN KINGDOM выпустили клип на песню &quot;Black Swan (acoustic)&quot;
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Испанцы <strong>OBSIDIAN KINGDOM</strong> выпустили видео на акустическую версию песни "<strong>Black Swan</strong>", которая вошла в последний альбом музыкантов "<strong>A Year With No Summer</strong>", который вышел на <strong>Season of Mist</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/MMyEYSu7Lh0" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 04.10.2016 news OBSIDIAN KINGDOM released new video
+
+<p><strong>OBSIDIAN KINGDOM</strong> in cooperation with audio-visual project <strong>This Is Not</strong> are now releasing a beautiful video clip for an acoustic version of the song "<strong>Black Swan</strong>". The original track has been released on the eclectic Spaniards' latest full-length 'A<strong> Year With No Summer'</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/MMyEYSu7Lh0" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

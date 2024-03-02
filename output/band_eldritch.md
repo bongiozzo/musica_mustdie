@@ -118,6 +118,63 @@ Concept on global warming based on Al Gore’s documentary ‘An Inconvenient Tr
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.06.2004 reviews Тянут-потянут, а вытянуть...
+
+<P>Несколько необычный релиз для Limb Music, ибо являет он собой не стандартный для этого лейбла "шняжный павер", а пауэр, сдобренный изрядной долей прога, эдакий замороченный пауэр или прог-пауэр. Правда, лучше от этого усложнения никому не стало (непонятны и гроулинговые эксперименты, которые звучат совершенно не к месту - песня 'Dice Rolling'). Создается впечталение, что музыканты этой итальянской команды&nbsp; пытаются как бы "вытянуть" свой альбом, так вымученно он звучит. Это был бы весьма неплохой дебют, но ведь это уже пятый релиз Eldritch. Скучная, серая работа, пусть и неплохо записанная и исполненная. Мне кажется, что у этих ребят всё же есть неплохой потенциал и свежие идеи, но вот реализация оных пока не очень получается.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ".</P>
+Автор: Ixtiandr
+
+### 06.02.2006 news Пауэр-фест в Чикаго - последние новости
+
+<P>7 и 8 апреля в Mr. Kelley's Music Box, Чикаго, штат Иллинойс, пройдет четвертый ежегодный фестиваль&nbsp;<B>Chicago Powerfest</B>. В нем принимают участие как ветераны, так и новички метальной сцены. Билеты сразу на два дня стоят (такой вариант будет возможен только для 600 счастливчиков) пятьдесят долларов. Состав участников:</P>
+<P>7 апреля, пятница:<BR>&nbsp;<BR><B>ELDRITCH<BR>BIOMECHANICAL<BR>AGENT STEEL<BR>GRACEPOINT<BR>WITHERING SOUL</B><BR>&nbsp;<BR>8 апреля, суббота:<BR>&nbsp;<BR><B>MORGANA LEFAY<BR>NOCTURNAL RITES<BR>ION VEIN<BR>TWELFTH GATE<BR>MIRROR BLACK</B></P>
+<P>Послушать аудио-сэмплы и получить иную информацию можно на сайте фестиваля <A href="http://www.chicagopowerfest.com/"><U>http://www.ChicagoPowerfest.com</U></A></P>
+Автор: Ixtiandr
+
+### 27.06.2011 news ELDRITCH подписались на Scarlet Records
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Итальянские progressive-ветераны <STRONG>ELDRITCH</STRONG> подписали контракт со <STRONG>Scarlet Records</STRONG> на выпуск восьмого студийного альбома "<STRONG>Gaia's Legacy</STRONG>". Концептуальная работа о глобальном потеплении, основанная на документальном фильме бывшего вице-президента США <STRONG>Al Gore</STRONG>, выйдет в сентябре. На новом альбоме группа вернулась к своим prog-корням, добавив кое-что из AOR и thrash-metal. Пластинка была записана с продюсерами <STRONG>Marco Ribecai</STRONG>&nbsp;и<STRONG> Eugenio Simone</STRONG>&nbsp;в <STRONG>Syncropain Products Studio</STRONG> в Пизе, Италия. Мастеринг выполнил <STRONG>Goran Finnberg</STRONG> (<STRONG>OPETH, IN FLAMES, EVERGREY, DARK TRANQUILLITY</STRONG>). Гостевое участие в записи принял клавишник<STRONG> FIREWIND Bob Katsionis</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Последний альбом&nbsp;<STRONG>ELDRITCH "Blackenday"</STRONG> вышел в 2007 году на <STRONG>InsideOut</STRONG>. После этого свет увидел только концертный DVD "<STRONG>Livequake</STRONG>".</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=447 src="/images/news_rus/2011.06/19752.jpg" width=475 border=0></FONT></P>
+Автор: Vit Belov
+
+### 05.09.2011 news Новый клип ELDRITCH
+
+<P>Итальянские ветераны power-progressive metal <STRONG>ELDRITCH</STRONG> готовят к выходу новый альбом "<STRONG>Gaia’s Legacy</STRONG>" 25 сентября на <STRONG>Scarlet Records</STRONG>. Видео-клип на песню с этого альбома 'Everything's Burning' можно посмотреть ниже:</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/_EsQIFxelag" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 08.03.2014 news Новое видео ELDRITCH
+
+<P>Клип на песню <STRONG>ELDRITCH "Alone Again"</STRONG> можно посмотреть ниже. Трек взят с новой работы итальянцев "<STRONG>Tasting The Tears</STRONG>".</P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/K0hhAtHUMh0?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.11.2015 news ELDRITCH выпустили новый альбом
+
+<P>Новый диск итальянских ветеранов power-prog metal <STRONG>ELDRITCH "Underlying Issues"</STRONG> вышел 6 ноября на <STRONG>Scarlet Records</STRONG>. На этой неделе диск увидел свет на российском лэйбле <STRONG>Фоно</STRONG>.</P>
+<P>Приобретайте его в формате jewel-case или digi-pak здесь: <A href="http://escapemind.ru/goods/ELDRITCH-Underlying-Issues">http://escapemind.ru/goods/ELDRITCH-Underlying-Issues</A></P>
+<P>Также на фирменном digi-pak доступен предыдущий альбом коллектива "<STRONG>Tasting The Tears</STRONG>": <A href="http://escapemind.ru/goods/ELDRITCH-Tasting-The-Tears-digi">http://escapemind.ru/goods/ELDRITCH-Tasting-The-Tears-digi</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/5Mi4biyXjic" frameBorder=0 width=420 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.07.2016 news Новый клип ELDRITCH
+
+<p>Новый клип итальянцев<strong> ELDRITCH</strong> на песню <strong>"The Face I Wear</strong>" можно посмотреть ниже. Трек взят с альбома "<strong>Underlying Issues</strong>", который вышел в прошлом году на <strong>Scarlet Records</strong>.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/QMkbdK37Lj8" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 14.07.2016 news New video by ELDRITCH
+
+<p>New clip of the Italians<strong> ELDRITCH</strong> song "<strong>The Face I Wear</strong>" can be viewed below. The track is taken from the album "<strong>Underlying Issues</strong>", which was released last year on<strong> Scarlet Records</strong>.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/QMkbdK37Lj8" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -45,6 +45,41 @@ Cover art by are Voldsund Pettersen and Frediablo.
 * C группой "Svartpest" Frediablo
 * C группой "Soul Forsaken" Frediablo
 
+## Публикации
+
+### 13.08.2003 news Дебютник GRIMFIST
+
+<p>GRIMFIST - новая норвежская формация с участием бывшего ударника IMMORTAL Horgh, выпускает 23 сентября через Candlelight Records свой дебютный альбом "Ghouls of Grandeur". Альбом был записан в Abyss Studios с продюсером Peter Tagtgren. В альбом войдут следующие вещи:</p>
+<p><IMG SRC="/images/news_rus/2003.08/4716.jpg" ALT="pho" width=300 height=300 hspace="15" vspace="5" border="1" align="left"> 1. Primal Aggression<BR> 2. Outlined in Black<BR> 3. A World of Wrath<BR> 4. From Hell & Back<BR> 5. No Compromise<BR> 6. Obsession<BR> 7. Lesser of Two Evils<BR> 8. Ghouls of Grandeur<BR> 9. Mosh-Pit Underground<BR> 10. Christ Denied</p>
+<p> На <A HREF="http://www.grimfist.com/music.htm">сайте группы</A> можно ознакомиться с минутными отрывками каждой композиции с альбома.</p>
+
+Автор: Dimas
+
+### 15.02.2004 reviews Thrash-metal со звучанием death-black metal банд
+
+<DIV><I>Барабанщик <B>Immortal Horgh</B> после развала своей основной команды совсем не скучает. Недавно он присоединился к <B>HYPOCRISY</B>, а также записал альбом с группой <B>GRIMFIST</B> для <B>Candlelight Records</B>.</I></DIV>
+<DIV><I></I>&nbsp;</DIV>
+<DIV>Несмотря на то, что герои этой заметки играют вполне ординарный death-black-thrash-metal, они заслуживают самой высшей оценки. Прямолинейный, очень качественно исполненый материал в духе 80-х годов должен понравиться любителям тяжёлой музыки со стажем. Саунд команды утяжелён (запись осуществлялась в <B>Abyss Studio</B>), по сравнению с теми временами, но настроение и построение композиций уходят корнями в эпоху thrash-metal. Несколько забойных куплетов, затем грамотное соло на гитаре, и последний куплет. Песни на 3-4 минуты, настоящий ураган.</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Очень достойная работа в духе немецких групп thrash-направления: <B>KREATOR, DESTRUCTION</B> и <B>SODOM</B>.</DIV>
+Автор: Vit Belov
+
+### 16.06.2004 news GRIMFIST расстались с Horgh
+
+<B>Horgh</B> покинул <B>GRIMFIST</B>, из-за занятости в <B>HYPOCRISY. GRIMFIST</B> собираются в тур, а это не совместимо с творчеством <B>Horgh</B> в основной группе.
+Автор: Vit Belov
+
+### 07.09.2005 news Новый альбом GRIMFIST
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> GRIMFIST "10 Steps To Hell"</STRONG> выходит на <STRONG>Candlelight</STRONG>. Пластинка была записана в<STRONG> Subsonic Society</STRONG> и смикширована в <STRONG>Studio Fredman</STRONG>. Это первая запись для нового постоянного барабанщика коллектива <STRONG>Christian Svendsen</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 07.09.2005 news GRIMFIST new album
+
+<P>New album of <STRONG>GRIMFIST "10 Steps To Hell"</STRONG> is ready to release through <STRONG>Candlelight</STRONG>. The album was recorded at<STRONG> Subsonic Society</STRONG> and mixed in <STRONG>Fredman</STRONG>. It was first album for new drummer <STRONG>Christian Svendsen</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -211,6 +211,244 @@ Recorded Live In USA.
 * C группой "Slash's Snakepit" Lead Guitar, Slash
 * C группой "L.A. Guns" Tracii Guns
 
+## Публикации
+
+### 05.10.1999 news 
+
+<p>Новый альбом Guns'N'Roses выйдет в конце года, еслли Аксель запишет всё-таки партии вокала.</p>
+
+Автор: Vit Belov
+
+### 12.10.1999 news 
+
+<p>В скором будущем выйдет альбом ремиксов Guns'N'Roses "Appetite For Reconstruction". На нём засветятся Union, Quite Riot, LA Guns и др. Эти группы записали песни и пропустили их через herb Die Krupps, KMFDM и др. Кстати, не хотите послушать новую песню G'N'R. "Oh My God" Адрес http://www.gnr.simplenet.com</p>
+
+Автор: Vit Belov
+
+### 24.10.1999 news 
+
+<p>Guns'N'Roses выпускают концертный альбом под названием "Live Era 87-93".</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 news 
+
+<p>Новый студийный альбом Guns'N'Roses будет называться "Chinese Democracy". Он выйдет, по новым данным, в начале года после того, как Роуз найдёт замену Слэшу. Вполне возможно, что новым гитаристом станет Дэйв Наварро (ex-Red Hot Chilly Peppers). Также Роуз подтвердил, что в новом альбоме принял участие Брайен Мэй.</p>
+
+Автор: Vit Belov
+
+### 10.04.2000 news 
+
+<p>Джош Фриз покинул Guns'N'Roses. (опять расползаются, как тараканы).</p>
+
+Автор: Vit Belov
+
+### 14.06.2000 news Слухи о воссоединении Guns&#39;N&#39;Roses
+
+<p>Kerrang! сообщил, что оригинальный состав G'n'R репетирует сейчас в Фениксе, с целью записать (переписать) новый альбом. В оригинальном составе (Axl, Slash, Dizzy, Duff и Steve Adler). Другие же источники утверждают, что в группе пока три человека: гитарист Paul Tobias, Axl и Dizzy. Ох уж эти слухи.</p>
+
+Автор: Vit Belov
+
+### 15.03.2001 news Slash is back...
+
+<p>Освежив и переменив состав "Slash’s Snakepit" Slash возвращается на музыкальный Олимп. Теперь в аккомпанирующий состав входят Rod Jackson - вокал, Keri Kelli - гитара, Johnny Blackout - басс, Matt Laug - барабаны и Teddy Zigzag Andreas - клавиши. Команда собирается активно выступать в Северной Америке закрепляя успех "Ain't Life Grand".</p>
+
+Автор: Yermola
+
+### 01.08.2001 news Слэш будет играть с Майклом Джексоном...
+
+<p>Бывший участник "GUNS N’ ROSES" - гитарист Slash примет участие в представлениях Майкла Джексона и JACKSON 5 (празднование 30-летней годовщины) которые пройдут 7-го и 10-го сентября в Нью-Йоркском Мэдисон Сквэйр Гарден. Как прокомментировал сам Слэш: "Это будет просто супер опять оказаться на сцене с Майклом. Я уверен, что это будут две великолепных ночи музыки... Майкл - один из величайших талантов. Он современен, классичен и эластичен..." Мдя-я-я.. Ну что тут добавить? Забыл сказать: в концерте так же примут участие такие звезды рока как DESTINY'S CHILD, Ricky Martin, Missy Elliott и Mary J. Blige.</p>
+
+Автор: Yermola
+
+### 01.08.2001 news Slash will be joining Michael Jackson ...
+
+<p>Former GUNS N’ ROSES guitarist Slash will be joining Michael Jackson for the JACKSON 5 performance and for Jackson's solo hits, "Beat It" and "Black & White" at the Michael Jackson: 30th Anniversary Celebration, the Solo Years event, which is scheduled to take place on September 7th and September 10th at Madison Square Garden in New York City. "I am so excited about working with my dear friend Slash again," Jackson said in a statement released Monday. "He is a brilliant guitarist whom I really admire, and I look forward to having Slash perform with me again on these two special nights." Slash commented: "It's going to be a blast being onstage again with Michael. I am really looking forward to two great nights of music, and I'm honored to be a part of any event honoring him. He truly is one of the greatest talents known. Michael is timeless, classic and resilient. Here's to another 30 years." In addition to Slash, the concert will feature appearances by hundreds of other artists, including DESTINY'S CHILD, Ricky Martin, Missy Elliott, and Mary J. Blige. Source: blabbermouth.net</p>
+
+Автор: Yermola
+
+### 03.01.2002 news GUNS N&#39; ROSES&#39; заимели новый логотип...
+
+<p>На прошедших концертах в Лас-Вегасе, Эксл Роуз и компания представили на суд зрителей новый логотип команды: <BR><BR> <IMG SRC="/images/news_rus/2002.01/2249.jpg" ALT="pho" width="171" height="155" hspace="15" vspace="5" border="1" align="left" /></p>
+
+Автор: Yermola
+
+### 03.01.2002 news GUNS N&#39; ROSES&#39; Axl Back To Old Tricks At Vegas Gig ....
+
+<p>Notoriously temperamental GUNS N' ROSES frontman Axl Rose reportedly walked off the stage twice at the group's December 29th concert at Hard Rock Hotel and Casino after his mic went dead during the song “Oh My God”, according to live reports posted at www.mygnr.com. The sound problems were eventually sorted out, but not before guitarist Robin Finck threw his guitar and Axl's mic stand in disgust over the technical issues at the gig. When the show did eventually continue, Rose reportedly performed the songs without directly addressing the audience, save for a lengthy 15-minute tirade prior to “November Rain” in which Axl called the gig "the first show in 10 years that I wanted to do" and referred to last year's New Year's Eve Las Vegas appearance and the subsequent Rock In Rio gig as concerts that he was “asked” to do. The singer then went on to say how former manager Alan Niven forced them to tour in 1991, which resulted in the latter's getting fired. With regards to the European tour, Rose reportedly claimed that he had “no idea” a tour had been scheduled. "One day I was sitting at home on the Internet and I found out that the GNR tour was cancelled and I had no idea that I had a tour," the singer was quoted as saying at the gig. As for the band's long-awaited Chinese Democracy CD, Rose stated that "we're in the studio doing this album and I can promise you that we're gonna deliver, and it's gonna be out of the ballpark… We've been working on this album and I can tell you we're doing our best and that's all I can promise." The singer also stated, rather unbelievably, that guitarists Buckethead and Finck had never met before rehearsals for the House Of Blues gig last year, and he made derogatory references to ex-GUNS N' ROSES bassist Duff McKagan and guitarist Slash, as well as other former GNR members, using the band's celebrity status for themselves, which was met by a chorus of boos from the crowd. <BR><BR> Here is GUNS N' ROSES' set list from their performance at Las Vegas' Hard Rock Hotel and Casino on Saturday, December 29th (note: “Night Train” was also reportedly included on the official set list, but ended up not getting performed):<BR><BR> <IMG SRC="/images/news/2002.01/2250.jpg" ALT="pho" width="245" height="222" hspace="15" vspace="5" border="1" align="right" /> 01. Welcome To The Jungle<BR> 02. It's So Easy<BR> 03. Mr. Brownstone<BR> 04. Live And Let Die<BR> 05. Oh My God<BR> 06. Think About You<BR> 07. You Could Be Mine<BR> 08. Sweet Child O' Mine<BR> 09. Knockin' On Heaven's Door<BR> 10. Madagascar<BR> 11. November Rain<BR> 12. Out Ta Get Me<BR> 13. Rocket Queen<BR> 14. Chinese Democracy<BR> 15. The Blues<BR> 16. Patience<BR> 17. My Michelle<BR> 18. Silk Worms<BR> 17. Paradise City<BR><BR> Also GUNS N' ROSES also unveiled a new logo at the show....</p>
+
+Автор: Yermola
+
+### 08.02.2002 articles Розы против пистолетов
+
+<p>Что происходит с Guns'N'Roses? <BR> Кто в этом году продаст больше всего пластинок и атрибутики, соберет наибольшее количество зрителей и в конечном счете станет богаче на пару миллионов? Один из вариантов – возрожденные GUNS'N'ROSES. Или GUNS'N'ROSES №2. Два осколка группы, о которой в начале 90-х не знал только глухой: по песне в каждом хит-параде планеты, платиновые тиражи, регулярные сообщения о драках на концертах и между музыкантами… И вот теперь легенда возвращается – в двойном варианте. <BR> GUNS'N'ROSES распались в 1996 году, после очередной ссоры, когда гитарист Слэш официально заявил о своем уходе. Тогда каждый из пяти музыкантов пошел дорогой сольного творчества, но успеха, сопоставимого с прежними достижениями, не достиг никто. Хуже всего пришлось в забвении избалованному славой и вниманием прессы вокалисту и склочнику Экслу Роузу, о котором никто и не вспомнил. Возможно, потому он в прошлом году и возродил команду. Но весьма оригинальным способом – набрав совершенно новых музыкантов и написав с десяток песен, больше подходящих Мэрилину Мэнсону, чем GUNS'N'ROSES, всегда работавшим на стыке бесшабашного рок-н-ролла и сдобренного блюзом хард-рока. <BR> Первый же декабрьский концерт нового "старого" коллектива в Лас-Вегасе ознаменовался скандалом. Когда в зал попытался пройти Слэш, гитарист-изгой и один из основателей группы, охранники не пропустили его. Оказывается, Эксл Роуз перед концертом заявил организаторам: "Увижу кого в зале из старого состава – сразу же уйду со сцены и сорву концерт!". А потому: "Сэр, на ваш счет есть особое указание…" Слэш оказался удивлен таким приемом: <BR> - Я всего лишь хотел посмотреть на группу и поддержать их! Эксл остается для меня братом, и если он попросит меня выйти на сцену и сыграть что-нибудь из старенького, я даже не буду раздумывать – пожалуйста, хоть сейчас!.. Кстати, я все-таки нашел охранника, который согласен был пропустить меня внутрь за определенную мзду, но организаторы предупредили, что если я все же окажусь в зале, они уволят виновных. Так что я решил никого не подставлять… <BR> Правда, Слэш не стал обижаться, вместо этого он пропьянствовал всю ночь в соседнем кабаке – среди технического персонала нового GUNS'N'ROSES нашлось немало старых знакомых, кто ездил с группой в турне еще в 80-е. <BR> Шансы Эксла Роуза и нового варианта GNR вызывают некоторое сомнение у критиков – слишком уж нехарактерны новые песни для легендарной группы. А вот активность остальных пистолетов, напротив, вызывает лишь позитивные оценки. В настоящее время трое из пяти музыкантов золотого состава GUNS'N'ROSES объединились: Слэш, отложив на время гастроли своей группы SLASH'S SNAKEPIT, и басист Дэфф МакКэган помогают Иззи Стрэдлину записать очередной сольный альбом. Правда, сольным его назвать трудно: если учесть, что МакКэган песен никогда не писал, а три композиции написаны Слэшем, то… Осталось всего лишь попросить Эксла добавить пару-тройку своих вещей и спеть все это – и новый альбом настоящих GUNS'N'ROSES готов. <BR> Возможно, именно поэтому и пресса, и фэны называют эту троицу GUNS'N'ROSES-2. И по опросам интернет-радиостанции www.knac.com, их новый альбом ждут в большей степени, нежели "Chinese Democracy", которую Эксл Роуз обещает выпустить летом 2002 года. Однако прогнозы прогнозами, но только тиражи новых пластинок (кстати, оба диска выйдут в этом году) расставят все по своим местам. Тогда-то и станет ясно, кто из осколков GUNS'N'ROSES настоящий пистолет, а кто - увядшая роза. <BR> Кстати… <BR> Стивен Адлер, бывший барабанщик GUNS'N'ROSES, заявил, что намерен в этом году выпустить книгу "Bed of No Roses", где поведает о ранних днях существования группы и ее прорыве к славе. В настоящее время он далек от музыки, но надеется восстановить бы-лое мастерство и вновь вернуться в шоу-бизнес. <BR> Гитарист Гилби Кларк, сменивший Иззи Стрэдлина в 1991 году, о GUNS'N'ROSES даже не думает – в настоящее время он проводит турне по Великобритании в поддержку своего очередного сольного альбома и, по его признанию, о былых днях не вспоминает. Своя карьера важнее.</p>
+
+Автор: Tornado
+
+### 22.02.2002 news Еще одна супер-группа...
+
+<p>Бывший фронтмэн "VAN HALEN" Sammy Hagar на своем официальном сайте объявил о создании супер-группы в составе самого Сэмми, бассиста "VAN HALEN" - Michael Anthony, гитариста "JOURNEY" - Neal Schon, барабанщика "JOURNEY" - Deen Castronovo и бывшего участника "GUNS N' ROSES" гитариста Slash. Команда уже записала в студии несколько вещей. По словам вокалиста, музыка звучит как смесь VAN HALEN, LED ZEPPELIN и TOOL.</p>
+
+Автор: Yermola
+
+### 18.07.2002 news Новый гитарист GUNS N&#39; ROSES играл в &#39;N SYNC и с ENRIQUE IGLESIAS. ...
+
+<p>"GUNS N' ROSES" заменили гитариста Paul Huge (a.k.a. Paul Tobias) на ex-LOVE SPIT LOVE/PSYCHEDELIC FURS участника Richard Fortus. <BR><BR> Пол - приятель Эксл Роуза с детства был в команде в середине 90-х и затем был заменен Слэшем. Он был соавтором "Back Off Bitch" и B-side "Shadow of Your Love", а затем исполнил партию гитары на сингле "Sympathy For the Devil" для саундтрека к фильму "Интервью с вампиром". В последнее время Хьюдж участвовал в записи нового альбома "Китайская Демократия". <BR><BR> С другой стороны Ричард Фортус активно выступал с LOVE SPIT LOVE и PSYCHEDELIC FURS и работал с такими поп-исполнителями как 'N SYNC и ENRIQUE IGLESIAS. <BR><BR> Итак текущий состав GUNS N' ROSES:<BR><BR> Axl Rose – вокал<BR> Dizzy Reed – клавиши<BR> Robin Finck (NINE INCH NAILS) – гитара<BR> Buckethead – гитара<BR> Richard Fortus (LOVE SPIT LOVE/PSYCHADELIC FURS) - гитара<BR> Tommy Stinson (THE REPLACEMENTS) – гитара<BR> Brian "Brain" Mantia (PRIMUS) – барабаны<BR> Chris Pitman (THE REPLICANTS) – второй клавишник</p>
+
+Автор: Yermola
+
+### 18.07.2002 news GUNS N&#39; ROSES: PAUL HUGE Out, PSYCHEDELIC FURS Axeman In ....
+
+<p>GUNS N' ROSES have replaced guitarist Paul Huge (a.k.a. Paul Tobias) with ex-LOVE SPIT LOVE/PSYCHEDELIC FURS axeman Richard Fortus. <BR><BR> A press release confirming GNR's just-announced London Arena show fails to mention Huge, and instead lists Fortus' name as a third guitarist. Sources close to the FURS have reportedly confirmed that he has indeed joined GUNS N' ROSES. <BR><BR> Huge was Rose's childhood friend from Lafayette, Indiana, who was brought on board in the mid-'90s to fill the rhythm slot vacated first by Izzy Stradlin and then Gilby Clarke. Huge was openly despised by then-lead guitarist Slash, who quit the band largely due to his presence and was soon followed by bandmates Matt Sorum and Duff McKagan. <BR><BR> Paul, who co-wrote the early GNR cuts "Back Off Bitch" and the B-side "Shadow of Your Love", was originally brought in to play rhythm guitar on the single, "Sympathy For the Devil" for the Interview With the Vampire movie soundtrack. He was subsequently credited with co-writing and playing on the track, "Oh My God" on the End Of Days soundtrack and is believed to be heavily featured on the group's upcoming album, Chinese Democracy. <BR><BR> In addition to LOVE SPIT LOVE and PSYCHEDELIC FURS, Fortus has done extensive session work with acts like BT, GRAVITY KILLS, 'N SYNC, and most recently, ENRIQUE IGLESIAS. <BR><BR> GUNS N' ROSES' current line-up is as follows:<BR><BR> Axl Rose – lead/vocals<BR> Dizzy Reed – keyboards<BR> Robin Finck (NINE INCH NAILS) – guitar<BR> Buckethead – guitar<BR> Richard Fortus (LOVE SPIT LOVE/PSYCHADELIC FURS) - guitar<BR> Tommy Stinson (THE REPLACEMENTS) – bass<BR> Brian "Brain" Mantia (PRIMUS) – drums<BR> Chris Pitman (THE REPLICANTS) – (second) keyboards</p>
+
+Автор: Yermola
+
+### 20.09.2002 news Sweden&#39;s Top-Selling Metal&#x2F;Hard Rock Albums For Week Ending 9&#x2F;20 - Sep. 19, 2002
+
+<p>The following is a list of the top-selling hard rock/heavy metal albums in Sweden for the week ending September 20th, 2002 (as reported by the Swedish daily newspaper Aftonbladet): <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS Nґ ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (NEW) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (NEW) STONE SOUR - Stone Sour <BR> 18. (RE-ENTRY) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done <BR></p>
+
+Автор: Yermola
+
+### 20.09.2002 news Что слушают в Швеции?
+
+<p>Вот так на текущей неделе выглядит 20-ка самых продаваемых в Швеции альбомов по информации газеты Aftonbladet: <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS NЃL ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (новинка) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (новинка) STONE SOUR - Stone Sour <BR> 18. (повторно) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done</p>
+
+Автор: Yermola
+
+### 13.01.2003 news Vandals Sought In GUNS N&#39; ROSES Riot ...
+
+<p>Vancouver police are getting ready to open an online GUNS N' ROSES rogue's gallery to help nab the hoodlums who trashed GM Place when the band cancelled their Vancouver concert last fall.<BR> Police are reviewing media videotapes looking for images that might nab the vandals, Const. Sarah Bloor said Thursday.<BR> "We're trying to find the best photos available, and make them available to the public," she said. "The Web site is still being developed. We hope to have it ready by the end of the month."<BR> Police made several public appeals for help, but couldn't find anyone willing to provide the names of those who trashed GM Place, causing $395,000 in damage.<BR> Police waded into the crowd swinging batons, and the actions of those officers are still under review.<BR> "Our internal investigation is still ongoing," Bloor said. "The review is still incomplete."<BR> GUNS N' ROSES lead singer Axl Rose, a chronic no-show, didn't appear for the Vancouver concert, as well as other events on the rock band's tour. The tour eventually had to be scuttled.</p>
+
+Автор: Yermola
+
+### 20.01.2003 articles На концертной тропе
+
+<p><B>На концертной тропе</B> <BR> Любовь к деньгам неистребима, желание сосчитать деньги чужие – бессмертно. Американский таблоид Pollstar целый год наблюдал, как по Штатам колесят с концертами самые разные музыканты, а потом взял да и сосчитал, кто сколько заработал. <BR> Картина получилась занятная. Выяснилось, что любимцы MTV то ли играть живьем не умеют, то ли народ их не так любит, как телевидение, но в лидеры сотни самых удачливых групп года ребята не пробились. Миром правят старики – сэр Маккартни, ROLLING STONES и Шер установили такие рекорды, о которых прочие и не мечтали – цена на билеты была за сотню баксов, а народ все валил и валил поглазеть на мэтров рок-н-ролла! <BR> Вообще, модных исполнителей в чарте оказалось не так уж много – зато в избытке таких команд, как POISON и LA GUNS. Казалось бы, сейчас этих длинноволосых парней в коже никто не помнит – команды сделали себе имя в конце 80-х на глэм-роке, чьим обязательным атрибутом были напомаженные блондинки и крутые мотоциклы. Однако сегодня эти ребята вновь зарабатывают деньги на концертах, собирая за раз по несколько тысяч слушателей, а модные KORN и LIMP BIZKIT не могут понять, куда уходит их аудитория! Похоже, появилась новая мода – на 80-е. <BR> Косвенным доказательством тому и массовый неуспех рэп-концертов – лишь Эминем вошел в сотню лучших на 34 месте, заработав за 30 концертов 15 миллионов. "Рэп и хип-хоп как жанры не подлежат превращению в концертные шоу, и на то есть причины" – считает Божовани, редактор Pollstar. Упала посещаемость и концертов традиционных поп-групп – 'N SYNC, бывшие в числе лидеров в прошлом году, на этот раз лишь на 12-м месте, а Бритни Спирс – на 14-м. Но худший тур года – те несколько концертов, что Эксл Роуз умудрился-таки дать с реорганизованными GUNS N ROSES (75-е место, 6,5 миллиона за 16 концертов). Впрочем, по словам Божовани, худший отнюдь не по финансовым показателям: "Да, эти ребята заработали денег, хотя далеко не всегда были аншлаги, как того хотелось Экслу, но сколько проблем они создали другим и самим себе – скандалы, драки, отмена выступлений и недовольная толпа, громящая магазины! А ведь такими концертами проще всего подпортить себе имя раз и навсегда". <BR> Но прошедший год – лишь цветочки, а ягодки ожидаются в этом – "роллинги" продолжают катиться по своей бесконечной гастрольной программе, на концертную тропу выходит любимец американцев Спрингстин, ожидается возвращение еще одних кумиров 80-х – FLEETWOOD MAC. Так что мода на старье расцветет буйным цветом, а примодненной молодежи лучше сидеть дома – отрываться будут родители! <BR> <B>Десятка самых удачных гастролеров 2002 года</B> <BR> 1. Пол Маккартни (103,3 миллиона долларов)<BR> 2. THE ROLLING STONES (87,9 миллиона долларов) <BR> 3. Шер (73,6 миллиона долларов) <BR> 4. Билли Джоел и Элтон Джон (65,5 миллиона долларов) <BR> 5. DAVE MATTHEWS BAND (60,1 миллиона долларов) <BR> 6. Брюс Спрингстин (42,6 миллиона долларов) <BR> 7. AEROSMITH (41,4 миллиона долларов) <BR> 8. CREED (39,2 миллиона долларов) <BR> 9. Нейл Даймонд (36,5 миллиона долларов) <BR> 10. EAGLES (35,4 миллиона долларов)</p>
+
+Автор: Tornado
+
+### 28.01.2003 reviews Несколько причин купить Appetite
+
+<p><B>Правильная музыка вне времени. "Аппетит к разрушению" совсем недавно справил 15-летний юбилей и переиздается вновь и вновь. Обсуждать эти песни не имеет смысла – все они давно стали хитами и классикой. И потому вместо разбора получите несколько причин купить этот диск, если его у вас до сих про нет.</B> <BR> 1. "Аппетит…" считается самым громким дебютом всех времен и народов, и Книга рекордов Гиннесса сей факт зафиксировала. Шутка ли – всего-навсего первый диск до того малоизвестной группы за год расходится по всему миру тиражом в 20 миллионов, а все известные на тот момент звезды вмиг выстраиваются в очередь ради совместного фото с этими новичками! Рекорд, не превзойденный и поныне, - лучшей рекламы для хорошей музыки, кроме хорошей музыки, так и не придумали. <BR> 2. "Аппетит…" прочно вошел в золотой фонд не только тяжелого рока, но и рок-н-ролла вообще. Пластинка присутствует во всех вариантах "Лучшая сотня дисков…", а в прошлогоднем списке VH-1, европейского отделения MTV, диск оказался просто лучшим альбомом всех времен и народов. БИТЛЗ и LED ZEPPELIN отдыхают.<BR> 3. Оззи Осборн, впервые прослушав пластинку от начала до конца, сразу же изрек: "Вот вам и новые ROLLING STONES!" Возможно, старик ошибся, но ненамного – после появления NIRVANA и NINE INCH NAILS, когда стало ясно, что эра классического рок-н-ролла окончательно завершилась, GUNS'N'ROSES назвали просто "последней настоящей рок-группой".<BR> 4. Пластинка оказалась для GUNS'N'ROSES пропуском на престижнейший фестиваль того времени – "Монстры рока" в Кастл-Донингтоне. Команда вызвала столь бешеный ажиотаж, что в давке погибают два человека. <BR> 5. Хит "Sweet Child O'mine" с этого диска вспоминают до сих пор – теперь, по версии VH-1, это одна из лучших песен о любви, когда-либо написанных. <BR> 6. В 1998 году ROLLING STONES отправились в мировое турне по раскрутке альбома "Bridges to Babylon" в гордом одиночестве. Единственным вариантом разогрева, на который соглашались отцы рок-н-ролла, были GUNS'N'ROSES в составе, записавшем "Appetite for Destruction". Распавшимся к тому моменту "пистолетам" предлагались достаточно большие деньги за воссоединение, но тщетно. <BR> 7. Диск до сих пор хорошо продается и регулярно присутствует в сотне самых тиражных пластинок практически любого года. Например, в Швеции в прошлом году диск был на 15-м месте и успешно конкурировал с прочими новинками.</p>
+
+Автор: Tornado
+
+### 31.01.2005 news GUNS &#39;N&#39; ROSES подписали контракт
+
+<P><STRONG>GUNS 'N' ROSES</STRONG> наконец-то подписали контракт на выпуск долгожданного альбома <STRONG>'Chinese Democracy'</STRONG> с <STRONG>Sanctuary</STRONG>.&nbsp;Глава лэйбла сообщил, что считает "ганзов" лучшей группой после <STRONG>QUEEN</STRONG> и <STRONG>THE BEATLES</STRONG>.&nbsp;Это очень важно для него, так как стоимость контракта превышает все мыслимые масштабы,&nbsp;работа ведётся уже 12 лет.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 27.12.2006 news GUNS N&#39; ROSES снова приедут в Россию?
+
+<P>Согласно данным&nbsp;с&nbsp;<A href="http://www.newgnr.com/">нового сайта </A>группы <STRONG>GUNS N' ROSES, </STRONG>музыканты планируют начать свой европейский тур с выступления 24 февраля в России. Пока не сообщается никаких дополнительных деталей.&nbsp;</P>
+Автор: Dimas
+
+### 09.10.2008 news &quot;Chinese Democracy&quot; наконец-то имеет дату релиза
+
+<P>Долгожданный новый альбом<STRONG> GUNS'N'ROSES "Chinese Democracy" </STRONG>получил дату релиза. Альбом поступит в широкую продажу 2 декабря, а до этого он будет целую неделю эксклюзивно продаваться в магазине <STRONG>Best Buy</STRONG>.</P>
+Автор: Vit Belov
+
+### 17.10.2008 news Трэк-лист GUNS&#39;N&#39;ROSES
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> GUNS'N'ROSES "Chinese Democracy"</STRONG> выходит в конце ноября. Опубликован трэк-лист этой пластинки:</FONT></P>
+<P>01. <B itxtvisited="1">Chinese Democracy</B><BR itxtvisited="1">02. <B itxtvisited="1">Scraped</B><BR itxtvisited="1">03. <B itxtvisited="1">Shackler's Revenge</B> <BR itxtvisited="1">04. <B itxtvisited="1">Street Of Dreams</B> <BR itxtvisited="1">05. <B itxtvisited="1">If The World</B> <BR itxtvisited="1">06. <B itxtvisited="1">Better</B> <BR itxtvisited="1">07. <B itxtvisited="1">This I Love</B> <BR itxtvisited="1">08. <B itxtvisited="1">There Was A Time</B> <BR itxtvisited="1">09. <B itxtvisited="1">Riad N' The Bedovins</B> <BR itxtvisited="1">10. <B itxtvisited="1">Sorry</B> <BR itxtvisited="1">11. <B itxtvisited="1">I.R.S.</B> <BR itxtvisited="1">12. <B itxtvisited="1">Catcher</B> <BR itxtvisited="1">13. <B itxtvisited="1">Madagascar</B> <BR itxtvisited="1">14. <B itxtvisited="1">Prostitute</B> </P>
+Автор: Vit Belov
+
+### 20.11.2008 news Сэмплы GUN N&#39;ROSES
+
+<P>Новый альбом&nbsp;<STRONG>GUNS N' ROSES "Chinese Democracy"</STRONG>&nbsp;выходит через три дня. Песни с пластинки можно послушать на <STRONG>MySpace</STRONG> страничке.</P>
+<P>Ссылка: <A href="http://www.myspace.com/gunsnroses">http://www.myspace.com/gunsnroses</A></P>
+Автор: Vit Belov
+
+### 27.11.2008 news GUNS N&#39;ROSES лишь вторые
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ожидавшемуся альбому <STRONG>GUNS N'ROSES "Chinese Democracy"</STRONG> не удалось занять первого места в чартах журнала <STRONG>Billboard</STRONG>. С 300000 проданных копий альбома (кстати, интересно что на iTunes пластинку скачали всего 25000 раз) альбом разместился на второй позиции. Первенствовал альбом лично мне неизвестной <STRONG>KANYE WEST.</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 29.11.2008 reviews Долгожданный релиз без лишних восторгов
+
+<P>Нельзя сказать, что я ждал с нетерпением выхода “Chinese Democracy” все эти годы обещаний. Может я его и ждал бы с подобным чувством, если бы он вышел в конце прошлого века, а так… Многие уже забыли, что из себя представляют GUNS N’ROSES, пик их карьеры пришёлся на рубеж 80-х и 90-х, и поэтому сейчас их альбома ждут только не очень эрудированные любители музыки, знающие до трёх-четырёх тяжёлых групп. Столько воды утекло с 1991 года, когда был реализован последний полноценный CD группы.</P>
+<P>Тем более, что в группе произошли радикальные изменения. Из старых музыкантов остались только Axl Rose да клавишник Dizzy Reed. Вообще, судя по «кредитам» к этому альбому, группы, как таковой, не существует. Уж больно её состав размыт и не оформлен. “Chinese Democracy” не является альбомом GUNS N’ROSES. Так сказал кто-то из бывших коллег Axl по группе. И я соглашусь с этим. Эта пластинка не гениальна, а все три альбома GUNS N’ROSES гениальны и являются образцом расцвета тяжёлой рок-музыки в тот период. Господину Rose нужно отдать должное, так долго приковывать внимание к себе, ничего не делая, не каждый сможет. Но, по-моему, и он дал маху. “Chinese Democracy” подзадержался настолько, что интересен только сам выход альбома, но не его содержание. Всё это и обусловливает моё отношение к этому творению. Набор средних песен с узнаваемым вокалом, странными экспериментами со звучанием (разнообразные сэмплы в некоторых местах) и полным отсутствием хитов.</P>
+<P>Вероятно, этот альбом не станет хитом пристрастий публики в этом году. Всё-таки даже при всех вопросах к METALLICA, её работа много интересней и содержательней, чем сочинения Axl Rose. И ещё… Здесь нет ни одной классной баллады. По-моему, GUNS N’ROSES в нынешнем составе не умеют их делать, а это ведь немалая часть успеха знаменитых американцев.</P>
+Автор: Vit Belov
+
+### 02.02.2009 news Бывший барабанщик GUNS&#39;N&#39;ROSES был арестован
+
+<P><IMG height=282 alt="" hspace=0 src="/images/news_rus/2009.02/13485.jpg" width=266 align=left border=5>Бывший барабанщик<STRONG> GUNS'N'ROSES Steven Adler</STRONG> был арестован 26 января за употребление наркотиков, которые он не имеет права принимать по решению суда, принятому&nbsp;в июле. В тот же день музыкант был отпущен под залог 50000 долларов. Дата суда ещё не определена.</P>
+<P>Представители господина <STRONG>Adler </STRONG>отрицают вину своего клиента.</P>
+Автор: Vit Belov
+
+### 17.02.2009 news IFPI посчитали продажи
+
+<P>Лондонская <STRONG>International Federation of the Phonographic Industry</STRONG> (<B itxtvisited="1">IFPI</B>) посчитала продажи по всему миру за 2008 год. не называя конкретных цифр, федерация подготовила свой Top-20. В него попали <STRONG>METALLICA</STRONG>, <STRONG>AC/DC</STRONG> и <STRONG>GUNS N'ROSES</STRONG>.</P>
+<P>01.<STRONG> COLDPLAY</STRONG> - "Viva La Vida Or Death And All His Friends"<BR>02. <STRONG>AC/DC</STRONG> - "Black Ice"<BR>03. Various Artists - "Mamma Mia! The Movie Soundtrack Featuring The Songs Of ABBA"<BR>04. <STRONG>DUFFY </STRONG>- "Rockferry"<BR>05. <STRONG>METALLICA </STRONG>- "Death Magnetic"<BR>06. <STRONG>LEONA LEWIS</STRONG> - "Spirit "<BR>07. <STRONG>AMY WINEHOUSE</STRONG> - "Back To Black"<BR>08. Various Artists - "High School Musical 3: Senior Year"<BR>09. <STRONG>LIL WAYNE</STRONG> - "Tha Carter III"<BR>10. <STRONG>RIHANNA </STRONG>- "Good Girl Gone Bad"<BR>11. <STRONG>MADONNA</STRONG> - "Hard Candy"<BR>12. <STRONG>BEYONCE</STRONG> - "I Am... Sasha Fierce"<BR>13. <STRONG>PINK</STRONG> - "Funhouse"<BR>14. <STRONG>GUNS N' ROSES</STRONG> - "Chinese Democracy"<BR>15. <STRONG>BRITNEY SPEARS</STRONG> - "Circus"<BR>16. <STRONG>JACK JOHNSON</STRONG> - "Sleep Through The Static"<BR>17. <STRONG>IL DIVO</STRONG> - "The Promise"<BR>18. <STRONG>TAYLOR SWIFT</STRONG> - "Fearless"<BR>19. <STRONG>JONAS BROTHERS</STRONG> - "A Little Bit Longer"<BR>20. Various Artists - "Camp Rock" </P>
+Автор: Vit Belov
+
+### 19.03.2009 news GUNS N&#39;ROSES только сейчас покинули чарты
+
+<P>Последний альбом <STRONG>GUNS N'ROSES "Chinese Democracy"</STRONG>&nbsp;покинул чарты <STRONG>Billboard 200</STRONG> после почти&nbsp;четырёх месяцев пребывания. За это время в США было продано 565000 дисков.&nbsp;</P>
+Автор: Vit Belov
+
+### 28.02.2010 news Автобиография бывшего барбанщика GUNS N&#39; ROSES
+
+<P><A href="http://www.harpercollins.com/books/9780061917110/My_Appetite_for_Destruction/index.aspx" target=_blank><U><FONT color=#0000ff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.02/16305.jpg" width=300 height=450>HarperCollins.com</FONT></U></A> раскрыл оформление для книги-автобиографии бывшего участника <STRONG>GUNS N' ROSES</STRONG> и нынешнего барабаншика <STRONG>ADLER'S APPETITE</STRONG> по имени <STRONG>Steven Adler</STRONG>. <STRONG>"My Appetite for Destruction: Sex, and Drugs, and Guns N' Roses" </STRONG>(так называется книга) поступит в продажу 22 июня. 304 страницы.&nbsp;&nbsp;Жёсткий переплёт. Книга доступна для предзаказа по цене $25.99 на сайте издательства.</P>
+<P>В настоящее время группа <STRONG>ADLER'S APPETITE</STRONG> закончила запись дебютного альбома, который скорее всего выйдет весной/летом 2010.&nbsp;<EM>"Песни здорово звучат",</EM> сказал <B itxtvisited="1">Adler</B>, <EM>"Так хорошо ощущать, наконец-то, двежение вперёд и делать это вместе с новым составом. Для этого потребовалось много времени, но это того стоило." </EM><EM><BR itxtvisited="1"></EM>Группа<STRONG> </STRONG>планирует дебютировать с новыми песнями в <STRONG>Key Club </STRONG>10 апреля. Так же, идёт работа над европейским туром, который должен начаться в середине мая.</P>
+<P>Состав <STRONG>ADLER'S APPETITE</STRONG>&nbsp;на сегодняшний&nbsp;момент:&nbsp;</P>
+<P><STRONG>Rick Stitch</STRONG> (<STRONG>LADYJACK</STRONG>) - вокал<BR><STRONG>Alex Grossi</STRONG> (<STRONG>HOOKERS 'N' BLOW</STRONG>, ex-<STRONG>QUIET RIOT</STRONG>) - гитара<BR><STRONG>Michael Thomas</STRONG> (<STRONG>FASTER</STRONG> <STRONG>PUSSYCAT</STRONG>) - гитара<BR><STRONG>Chip Z'nuff</STRONG> (<STRONG>ENUFF Z'NUFF</STRONG>) - бас <BR><STRONG>Steven Adler</STRONG> - барабаны</P>
+Автор: Headcrusher
+
+### 03.08.2010 articles SLASH в Санкт-Петербурге: &quot;SLASH и рекорд жары в Питере - не просто совпадение!&quot;
+
+<P><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><STRONG>15 июля, Санкт-Петербург, "ГлавClub"</STRONG></SPAN></P>
+<P><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"></SPAN>Мы все привыкли видеть стандартную картину в музыкальных группах, когда лидер группы, он же лицо коллектива и он же солист. Но группа "Guns n' Roses" изначально выделялась. И одной из выделяющих ее черт был Сол Хадсон (SLASH) - соло гитарист. С тех пор прошло много лет, вместе с которыми ушли из жизни SLASH "Guns n' Roses", несколько организованных им же групп, но осталось мощное имя, богатый опыт, влиятельные связи и божественный дар игры на гитаре.</P>
+<P>Именно такого SLASH питерцы наблюдали 16-го июля в Главклабе. Было очень жарко на улице, а на концертной площадке вообще невообразимое пекло. Еще до начала концерта все были мокрые, а во время вообще выжимали свои футболки прямо на пол!</P>
+<P>Однако жарко настоящим фанатам SLASH'а стало еще до начала концерта. Самые преданные из них пришли намного раньше указанного на билетах времени и не смотря на издевающееся неугомонное солнце ждали...и дождались таки! К Главклабу подъехал белый автобус в конце которого с царственным видом сидел SLASH. Раздались дикие визги и томившиеся в ожидании фаны бросились потрогать хотя бы автобус, в котором восседает кумир.</P>
+<P>Когда все круги ада для поклонников были пройдены и начался концерт (это был именно Ад, так как 16-го был самый жаркий день этого лета и в Питере был побит рекорд по градусам), в сознании людей видимо вертелась картинка из “Estranged”, когда SLASH, исполняя свое гитарное соло, появляетс из воды на фоне бордового заката. Уверена, что 100% присутствующих хотели в этот момент перенести концерт на побережье океана, но за неимением лучшего отрывались в Главклабе.</P>
+<P>Кстати говоря, и самому SLASH видимо хотелось перенестись куда-нибудь в более прохладное место, так как пот тек с него ручьями и даже установленные возле сцены вентиляторы не давали почти ни какого эффекта. Однако герой вечера продержался долго и добрую половину концерта ни чего с себя не снимал.</P>
+<P>Складывается впечатление, что SLASH с годами не стареет. На сцену он вышел именно такой, каким мы все его и ожидали увидеть: с цилиндром на голове, из под которого вились длинные черные кудрявые волосы, очки, сигарета в зубах, узкие кожаные штаны и черная футболка. Лишь одно выдает возраст этого гуру гитарных соло- уже совсем не юношеский пресс. Когда SLASH во время концерта снял футболку его слегка дрябловатый живот было видно даже с высоты ВИП мест, которые, кстати, расположены в самом конце зала.</P>
+<P>Однако не за пресс мы его любим. Его владение гитарой заставляет забыть обо всем и просто наслаждаться чистыми звуками музыки.</P>
+<P>Очень порадовал солист - стройный, красивый, крайне артистичный, с развивающимися волосами и великолепным голосом. А как легко и непринужденно он общался с залом! Я не думала, что кто-то в этот вечер сможет затмить SLASHа, но вокалисту это кажется удалось. Многие поклонники смотрели в сторону гитариста только во время сольных гитарных партий, а основное их внимание было приковано к отличной фигуре солиста, который, кстати, уже после первой песни продемонстрировал всем свой идеальный торс, стянув футболку. А весь остаток концерта он демонстрировал свою пластичность, зажигая с микрофонной стойкой. Довольно опрометчиво для уже не совсем молодого и не такого фигуристого SLASH'а взять в группу солистом такого Аполлона!</P>
+<P>Эти двое настолько зарядили народ, что толпа как на батарейках отрывалась. Каждый считал своим долгом прыгать и веселиться, пока не упадет. Кому-то повезло больше, кому-то меньше. Каждые минут 10-15 охранники выносили очередного угаревшего фаната, а на ”Paradise City” вообще было ощущение, что мир сошел с ума и в зале не стоит на месте ни кто- всеобщий отрыв! И только охранники с невозмутимыми лицами и в костюмах (!!!) бдят. Именно благодаря им концерт прошел практически без потерь.</P>
+<P>Даже не знаю, как развивались события возле Главклаба после концерта. Кто ждал SLASH? Кто дождался? Лично мне, выйдя из помещения дико захотелось дойти до набережной Невы, опустить в нее ноги и, наслаждаясь остатками ночи в компании друзей обсудить только что чудом пережитый концерт.</P>
+<P>Текст: Анна Ходакова<BR></P>
+Автор: Headcrusher
+
+### 20.02.2013 news SLASH: фото-отчёты с концертов
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В прошлые выходные в Москве и Санкт-Петербурге состоялись аншлаговые концерты группы бывшего гитариста <STRONG>GUNS N' ROSES</STRONG> и <STRONG>VELVET REVOLVER</STRONG> Слэша (<STRONG>Slash</STRONG>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В настоящее время, помимо самого Слэша на гитаре, в группу входят:</FONT></P>
+<P><STRONG>Myles Kennedy</STRONG> - вокал (<STRONG>ALTER BRIDGE</STRONG>)<BR><STRONG>Todd Kerns - </STRONG>бас (<STRONG>SIN CITY SINNERS</STRONG>)<BR><STRONG>Brent Fitz </STRONG>- ударные (<STRONG>UNION</STRONG>)<BR><STRONG>Frank Sidoris</STRONG>&nbsp;- гитара</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фото-отчёты с обоих концертов можно посмотреть по ссылкам ниже:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Москва</STRONG> <EM>(16 февраля, клуб "Arena Moscow")</EM>: <A href="/ru/galleries/1/1187/">http://musica.mustdie.ru/ru/galleries/1/1187/</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Санкт-Петербург</STRONG> <EM>(17 февраля, клуб "A2")</EM>: <A href="/ru/galleries/1/1188/">http://musica.mustdie.ru/ru/galleries/1/1188/</A></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.02/25451.jpg" width=600 height=400> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 28.09.2014 news Минутка юмора
+
+<P>Как звучат классические метал-композиции на Гучжэне? На этот вопрос отвечает китайская девчушка<STRONG> Michelle Kwan</STRONG>. <STRONG>Metallica "One"</STRONG> и <STRONG>Guns'N'Roses "Sweet Child O'Mine"</STRONG> слушайте ниже. Заодно узнаете, что такое Гучжэн.</P>
+<P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/TNn-iUT6xh4" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P>
+<P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/YO6sFdoklVU" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Слэш на концерте Мишки Яковлева

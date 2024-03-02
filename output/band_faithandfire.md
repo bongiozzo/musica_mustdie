@@ -12,6 +12,9 @@ ex-Riot
 * C группой "Blue Oyster Cult" Danny Miranda
 * C группой "Rainbow" John Miceli (drums)
 
+## Публикации
+
+
 ## Обсуждения
 
 

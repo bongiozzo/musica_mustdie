@@ -37,6 +37,37 @@ Evil but Melodic Black Metal
 
 * C группой "Angtoria" Chris Rehn
 
+## Публикации
+
+### 22.09.2000 bios Abyssos
+
+<p> Abyssos was formed in January 1996 by Rehn, Meidal and Soderlund in Sundsvall, Sweden. In February 1996, Abyssos entered the Hedberska Studios to record their "Wherever the Whitches Might Fly" demo, which features three hymns of Atmospheric, melodic and whitching metal. The demo was realesed on the first of September and Abyssos gained great deal of interest from various labels. This demo has recieved a huge response from all over the world. Indeed, several bands, fanzines and radio stations believe that it was the best demo released in 1996 and indeed the best demo to come out of Sweden. Shortly after the release of the demo tape, the band signed a deal with London based cult label Cacophonous. In May 1997, Abyssos entered Academy studios, situated in Yorkshire (England) to record their debut album - "Together We Summon The Dark" which features nine tracks of darkest Satanic metal.</p>
+<p> The album features some of the most spectacular Vampiric artwork ever to be seen in this genre. All Abyssos members have played in Death and Black metal bands since the early 1990's with bands like: Kenotaphion, Sombre, Hekate, Sargoth, Insalubrious, Unchained 2000 and many more.</p>
+<p></p>
+<p></p>
+<p> Old Line-Up</p>
+<p></p>
+<p> Rehn - Vocals, Guitars, Infernal Keys <br> Soderlund - Battery <br> Meidal - Bass <br> Sedusa - Female vocals (session)</p>
+<p></p>
+<p> Current Line-Up</p>
+<p></p>
+<p> Rehn - Vocals, Guitars, Keys, Bass <br> Soderlund - Battery</p>
+
+Автор: Nybras
+
+### 17.05.2001 news Готов материал для очередного альбома Abyssos.
+
+<p> Очередной альбом Abyssos будет называться "Delomelanicon" и в него войдут десять песен. Все песни уже готовы, осталось внести лишь незначительные штрихи. Abyssos известны своим разнообразием в музыке, и на новом альбоме разнообразия будет больше, чем когда-либо. Достаточно сказать, что Лорд Рен теперь использует полный симфонический оркестр со всевозможными инструментами.</p>
+
+Автор: Morsus
+
+### 17.05.2001 news The material for the new Abyssos album is completed.
+
+<p> The new Abyssos release will be entitled "Delomelanicon" and will be an opus containing ten songs. All the songs have been completed with only a few minor adjustments. Abyssos is know as a band that stands for diversity when it comes to music. The diversity on the new album is greater than ever and since Lord Rehn now is using an entire symphony orchestra with many different instruments through his songs.</p>
+
+Автор: Morsus
+
+
 ## Обсуждения
 
 

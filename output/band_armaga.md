@@ -34,6 +34,42 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.10.2009 reviews Death-doom про утопленниц
+
+<P>Московская группа ARMAGA со своим дебютным альбомом в стиле death-doom. Основной «фишкой» этой группы является её имидж. Музыканты называют свою музыку «аристократической», в буклете размещены фотографии участников в костюмах, а так же история, которую рассказывают ARMAGA. Про каких-то утопленниц и ревнивую жену. Ужасно.</P>
+<P>К сожалению, тексты у ARMAGA на английском языке, и неподготовленный слушатель вынужден будет ограничиться этим либретто. В общем, мы уже где-то видели подобный подход к сочинению материала. Первое и самое свежее, что мне пришло на память, немцы VISION BLEAK. Музыка ARMAGA чем-то похожа на творчество этих немцев. Такая же незамысловатая гитарная работа и замогильные клавиши. К сожалению, у наших соотечественников всё немного бледнее. Не хватает этих нарочитых ужасающих мелодий, которые вызывали лёгкую улыбку у VISION BLEAK, но в то же время являлись их главным козырем. Поёт граф Соболевский, такое имя у вокалиста, только искажённым голосом, и это тоже немного мешает проникнуться мрачной атмосферой. Если же отбросить всю эту мишуру и обратиться к музыке, ситуация будет не очень привлекательная. Достаточно простой death-doom-metal, какой играли в середине 90-х множество групп второго эшелона в Европе, без запоминающихся мелодий и эмоциональных всплесков.</P>
+<P>Можно похвалить ARMAGA за серьёзный подход к собственной концепции. Следует признать, что это очень важно для начинающей группы. К сожалению, подходящей музыки пока сочинить не удалось. Будем ждать.</P>
+Автор: Vit Belov
+
+### 04.05.2011 reviews Замогильный «морозпокожный» эпик
+
+<P>Любите ли вы фильмы ужасов? Причём не какие-то там оригинальные триллеры с научно-фантастическим сюжетом, а что-нибудь такое простенькое с мёртвыми девочками и кусачими «дракулами». Хорроры, при просмотре которых, заранее знаешь, кто умрёт, а кто выживет, знаешь, где будут громко кричать, а где тихо плакать. Если не смотря на предсказуемость этой кинопродукции, вы всё равно тратите свои кровные на поход в кино, новый альбом москвичей ARMAGA для вас.</P>
+<P>На “Dark Authority” тоже всё предсказуемо. Вас будут пугать страшными мелодиями и агрессивными криками, завораживающей мощной гитарой и предсказуемо фирменной ритм-секцией. Забавно, но качество реализации, пожалуй, главный плюс ARMAGA. Если бы всё не было так профессионально «вылизано», если бы сквозь музыкальное полотно проглядывали разные шероховатости и были бы слышны разного рода непотребные звуки, альбом так не слушался бы. При первых же аккордах обозреваемой пластинки хочется смеяться, но это здоровый и энергетически положительный смех. Такой, по-хорошему «трешовый» смех.</P>
+<P>Безусловно, каждый продвинутый слушатель тяжёлой музыки безошибочно угадает первоисточник вдохновения московской группы. Это немцы THE VISION BLEAK, чьи последние альбомы оказывают примерно такое же действие. Кто хочет послушать замогильную музыку, останется доволен, только, ради диавола, не ищете здесь шедевров.</P>
+Автор: Vit Belov
+
+### 21.12.2011 news Новые релизы от MSR Productions!!!
+
+<P>Под занавес уходящего 2011-го года <STRONG>MSR Productions</STRONG> приготовило всем любителям металлической музыки подарок в виде трёх релизов от групп: <STRONG>BLACKTHORN, SINFUL</STRONG> и <STRONG>ARMAGA</STRONG>! </P>
+<P><STRONG><IMG height=250 alt="" hspace=0 src="/images/news_rus/2011.12/22366.jpg" width=250 align=right border=0>BLACKTHORN "Codex Archaos"</STRONG></P>
+<P>Наполненный уверенными яростными мелодиями, монументальными хорами и переливами рояля, пронзающий динамичными оркестровками и стеной плотного гитарного звука, слившегося воедино с артиллерией ритм-секции, новый альбом Blackthorn “<STRONG>Codex Archaos</STRONG>” - симфоническое погружение в темный водоворот хаоса, скрывающий в своих глубинах истинный свет. Студийная работа:<STRONG> Magna Opera Studio</STRONG> и <STRONG>KIV Records</STRONG>. Концептуальное оформление для диска разработал <STRONG>W.Smerdulak</STRONG>.</P>
+<P>Трек-лист:<BR>1. <STRONG>Divination in Blood</STRONG> <BR>2. <STRONG>Vehemence Came As Anodyne</STRONG><BR>3. <STRONG>Nemesis Incarnation</STRONG><BR>4. <STRONG>Gorgon the Ascendant</STRONG><BR>5. <STRONG>Emptysis Kiss<BR></STRONG>6. <STRONG>Arria Marcella</STRONG><BR>7. <STRONG>Posthumous Passion Ephemera</STRONG><BR>8. <STRONG>Dismalediction and the Remedy</STRONG><BR>9. <STRONG>Серебряный ключ</STRONG><BR>10. <STRONG>Hexshadow Turned to Flesh</STRONG><BR>11. <STRONG>Bestial Satan of Grotesque Beauty</STRONG><BR>12. <STRONG>The Fading Ceremony</STRONG></P>
+<P><A href="http://vkontakte.ru/blackthorn_metal">http://vkontakte.ru/blackthorn_metal</A><BR><A href="http://www.myspace.com/blackthornian">http://www.myspace.com/blackthornian</A><BR><A href="http://www.facebook.com/BlackthornMetal">http://www.facebook.com/BlackthornMetal</A></P>
+<P><STRONG><IMG height=252 alt="" hspace=0 src="/images/news_rus/2011.12/22367.jpg" width=250 align=right border=0>SINFUL “The XIII-th Apostle”</STRONG> (English version)</P>
+<P>"<STRONG>XIII Апостол</STRONG>" открыл новую главу в истории развития<STRONG> SINFUL</STRONG>. Стилистически это творение трудно отнести к какому-либо определённому жанру. Его музыка на всём протяжении будет то погружать слушателя в леденящую атмосферу бескрайней бездны, то поднимать на высоты вселенского могущества и триумфа! Лирика, оформление и музыкальный материал пронизаны единой концепцией, основанной на древней гипотезе о существовании тринадцатого апостола... Вся работа: запись, сведение и мастеринг - была сделана в самой знаменитой польской студии <STRONG>"Hertz" (Vader, Decapitated, Hate)</STRONG>. Барабанные партии записал <STRONG>Pawel "Paul" Jaroszewicz</STRONG> - ударник <STRONG>Vader </STRONG>и <STRONG>Crionics</STRONG>. Оформлением CD занимался один из лучший российских художников <STRONG>W.Smerdulak</STRONG>.</P>
+<P>Трэк-лист: <BR>I. <STRONG>At the Crossways</STRONG><BR>II. <STRONG>The XIII-th Apostle</STRONG><BR>III. <STRONG>God’s Experiment<BR></STRONG>IV.<STRONG> Delusion<BR></STRONG>V. <STRONG>The child of Chaos</STRONG><BR>VI. <STRONG>Forbidden Fruit</STRONG><BR>VII. <STRONG>Extremum<BR></STRONG>VIII. <STRONG>Theomancy</STRONG></P>
+<P><A href="http://www.sinful.ru/">www.sinful.ru</A><BR><A href="http://www.vkontakte.ru/sinfulblack">www.vkontakte.ru/sinfulblack</A><BR><A href="http://www.facebook.com/sinfulblack">www.facebook.com/sinfulblack</A><BR><A href="http://www.myspace.com/sinfulblack">www.myspace.com/sinfulblack</A></P>
+<P><STRONG><IMG height=375 alt="" hspace=0 src="/images/news_rus/2011.12/22368.jpg" width=250 align=right border=0>ARMAGA "Walpurgis Night"</STRONG> (DVD)</P>
+<P>Московская группа <STRONG>ARMAGA </STRONG>уже запомнилась на российской метал-сцене своими низкими тяжёлыми рифами, загадочностью и брутальностью своего звучания! Первый долгожданный концертный DVD "<STRONG>Walpurgis Night</STRONG>" позволит вам воочию ощутить всю ту мощь и энергетику, которые присущи каждому живому выступлению группы.</P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Overgrown Gates</STRONG><BR>2. <STRONG>Heartless<BR></STRONG>3. <STRONG>Cave<BR></STRONG>4. <STRONG>Fear Is Near<BR></STRONG>5. <STRONG>Dark Waltz</STRONG><BR>6. <STRONG>One Ghost's Story</STRONG><BR>7. <STRONG>Phantom<BR></STRONG>8. <STRONG>Cryptic Mirror</STRONG><BR>9. <STRONG>Last Exile</STRONG><BR>10. <STRONG>Shadows<BR></STRONG>11. <STRONG>Time Has Gone</STRONG><BR>+ bonus material "Backstage"</P>
+<P><A href="http://www.armaga.ru/">www.armaga.ru</A><BR>vkontakte.ru/armaga<BR><A href="http://www.facebook.com/group.php?v=info&ref=mf&gid=59530129744">www.facebook.com/group.php?v=info&ref=mf&gid=59530129744</A><BR><A href="http://www.myspace.com/armagaband">www.myspace.com/armagaband</A></P>
+<P>Интернет-магазин <STRONG>MSR Productions</STRONG> (Атрибутика, CD, DVD): <A href="http://msrprod.ru/merchandise/">http://msrprod.ru/merchandise/</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

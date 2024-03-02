@@ -158,6 +158,229 @@ David Silveria - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.03.1999 news 
+
+<p>Небольшой скандальчик случился между двумя закадычными друзьями Мэрилином Менсоном и Робом Зомби. Тур Зомби/Korn был назван Rock is dead. Мало того, что у Мэнсона есть песня с таким названием, так ещё и тур Marilyn Manson/Hole был назван также. Теперь американским фэнам этих групп придётся посмотреть два шоу с таким оригинальным названием.</p>
+
+Автор: Vit Belov
+
+### 21.06.1999 news 
+
+<p>Korn вошли в студию для пре-продукции своего четвёртого альбома.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>Видеоклип Marilyn Manson "The Dope Show" представлен в номинации "Лучшая кинематография" на очередной церемонии награждения призов MTV. Церемония состоится 9-го сентября 1999 года в Metropolitan Opera House в Нью-Йорке. Среди других номинантов в этой же категории: Hole "Malibu", Korn "Freak on a Leash", Madonna "Beautiful Stranger" и Will Smith "Miami". Однако уже стало известно, что Marilyn Manson не сможет посетить церемонию, и он даже не будет в стране в это время.</p>
+
+Автор: Vit Belov
+
+### 24.08.1999 news 
+
+<p>У барабанщика Korn Дэвида Силвериа и его жены Шэнон родилась дочь. Девочку назвали София Аврора.</p>
+
+Автор: Vit Belov
+
+### 02.05.2002 reviews Неприкасаемые
+
+<p ALIGN="JUSTIFY"> Чувствуется, что конкуренты наступают KOЯN на пятки. DEFTONES, недавно распавшиеся FEAR FACTORY, сатанист с потрясающим голосом Глен Данциг и даже детище Макса Кавалеры, SOULFLY, не стесняются передирать у группы звук и отдельные идеи, не забывая при этом все творчески переработать. Короче, конкуренция. И накануне записи "Неприкасаемых" KOЯN стояли перед выбором – либо состряпать вторичный и неактуальный продукт, либо прыгнуть выше головы… </p>
+<p ALIGN="JUSTIFY"> На сегодняшней сцене KOЯN действительно находятся в разряде "неприкасаемых". Для одних группа находится где-то в центре зловонной клоаки нового металла, для других это боги с недосягаемых вершин. Как ни странно, середины практически не существует, что свидетельствует только о неординарности коллектива. </p>
+<p ALIGN="JUSTIFY"> Сами KOЯN назвали свой новорожденный "Untouchables" лучшим диском за всю историю группы. И, похоже не соврали – конкуренты вновь будут штудировать альбом, а сотни групп-клонов и попросту внаглую передирать звук, гармонии и мелодии. Формула творчества "кукурузников" осталась прежней – жирный слой мрачных металлических риффов, кайма изысканной поп-мелодики поверху и великолепная психоделическая подкладка в аранжировках. Картинки, создаваемые таким вот набором изобразительных средств, до неприличия просты – черно-белый мир, бетонные стены, деревянные игрушки, прибитые к полу, молодой человек на грани нервного срыва, обхватив руками голову, вещает о своих проблемах, и крепкий низкочастотный драйв, выдалбливающий дыру во всем этом куда-то за пределы реальности. Если вас зацепит с первой минуты – то уже не отпустит до самого конца. </p>
+<p ALIGN="JUSTIFY"> Теперь немного о самом диске – пока в продаже только пиратская версия, потому как официальный выход альбома намечен аж 11 июня. Вполне возможно, что со всяческими бонусами – так что вопрос необходимости приобретения раннего пиратского продукта решайте сами. В целом же можно сказать, что этот альбом – явный фаворит на "событие года": уверен, что эти песни покорят и "Биллборд", и независимые чарты, KOЯN вновь соберут проклятия поклонников умирающего ортодоксального "металла" и хор восторгов от фанатов новизны. Кроме того, по американским СМИ прокатилась мини-сенсация – оказывается, Джонатан Дэвис женат на порнозвезде Девон Дэвис, и ради мужа она даже оказалась от съемок в фильмах. Так что взлет на новые вершины успеха кажется неотвратимым. Так им и надо! </p>
+
+Автор: Tornado
+
+### 20.05.2002 reviews Untouchables
+
+<p>It Is felt, that the competitors overtake KOЯN. DEFTONES, recently splited up FEAR FACTORY, satanist with a tremendous voice Glen Danzig and even a child of Max Cavalera, SOULFLY, do not hesitate to repeat group sound and separate ideas, not forgetting thus creatively to process everything. More shortly, competition. And on the eve of record "Untouchable" KOЯN faced to a choice - or cook secondary and irrelevant product, or to jump above than head. <BR> On a today's stage KOЯN really are in the category "untouchable". For one the group is somewhere at the centre of stench cesspit of new metal, for others it is the Gods from inaccessible tops. Strangely enough, middle practically does not exist, that testifies only about not ordinary of collective. <BR> KOЯN have named newborn "Untouchables" as the best disk for all history of group. And, is similar not lied - competitors will study album again, and hundreds of bands-clones and simply repeat a sound, harmonies and melodies. The formula of creativity "Cornharvesters" has remained former - greasy layer of gloomy metal riffes, border of refined pop-melodic and magnificent psychodelic lining in arrangements. Pictures, created by such set of representational means, up to impropriety black-white world, the concrete walls, wooden toys, nailing to a floor, young man, on the verge of nervous failure, having clasped head by the hands, telling about the problems, and strong low-frequency drive, hollowing out a hole in all it somewhere for limits of a reality. If you will be hooked since the first minute by it - it will not release up to the end. <BR> Now it is a little about the disk - while on sale only piracy version, therefore as the official release of an album is planned already on June 11. It is quite possible, that with all bonuses - so a question of necessity of purchase of an early piracy product decide by yourself. As a whole it is possible to tell, that this album - obvious favorite on "event of year": is sure, that these songs will subdue and "Billboard", and independent charts, KOЯN again will collect damnations of the admirers of dying orthodox "metal" and chorus of delights from the fans of novelty. Besides on the American MASS-MEDIAS roll the mini-sensation, Johnatan Davis is married on porno-star Devon Devis, and for the sake of the husband she even has appeared from shootings in films. So the rise on new tops of success seems inevitable. So also it is necessary!</p>
+
+Автор: Tornado
+
+### 27.06.2002 reviews Korn “Untouchables”
+
+<p>В то время как бесчисленные клоны KORN'а завоёвывают высшие позиции в хит-парадах Billboard, успешно используя изобретённую "корн"цами в середине 90-х формулу успеха("три аккорда, атональность, наигранная простота"), сам квинтет пионеров NU-metal'a представляет вниманию слушателей такой тошнотворный альбом, что становится не по себе. Просто не верится, что одной из самых влиятельных групп конца 90-х потребовалось целых три года, чтобы сочинить такие мусорные песни, в лучшем случае заслуживающие место на саундтрэке к какому-нибудь тупому молодёжному ужастику... <BR><BR> И куда только подевался фирменный звук KORN'а, бывший главной отличительной чертой группы на всём протяжении её существования? Ни тебе интересных гитарно-вокальных задумок, которыми так изобилует "Issues", ни заводных ритмов, ни знаменитых "ворчаний-бормотаний" Дэвиса - да что тут лукавить - на "Untouchables" просто не за что зацепиться. <BR> Один и тот же барабанный рифф, методично используемый уже 5 альбомов подряд, больше не катит, и все более или менее тяжёлые композиции звучат как самоплагиат. В гитарных партиях вообще не прослеживается никакой мысли - риффы настолько бесформенны и черствы, как будто их сочинили от полной безысходности. <BR><BR> Джонатан Дэвис изо всех сил старается заполнить очень бедное на аранжировки звуковое пространство своими практически непрекращающимися монотонными завываниями на "заднем" плане, но тщетно. Основные же свои партии фронтмэн KORN'а исполняет в свойственном ему, писклявом стиле Микки Мауса. И всё это, вкупе с параноидальными текстами песен, честно говоря, нервирует. Своего пика этот фарс достигает на “Wake up hate” (это композиция в стиле Роба Зомби с устрашающим припевом “We gonna wake up hate, we gonna fuck you up” может вызвать только недоумённую улыбку - неужели всё это действительно всерьёз?!). <BR><BR> Песне же “Hollow life” особенно обрадуются фанаты Depeche Mode - этот номер исполнен в лучших традициях нетленного альбома “Exciter”. Непреодолимое желание нажать на кнопку "next" временно пропадает лишь при прослушивании первого сингла группы “Here to stay” и композиции “Blame” - это две единственные достойные композиции на в целом до ужаса нудном альбоме. Похоже, что с “Issues” KORN достигли потолка своего развития как группы , и что группа эта попросту не в состоянии дальше прогрессировать. По крайней мере, на данный момент.<BR><BR> "Untouchables"- пока главный кандидат на "победу" в номинации "Самое большое разочарование года". И тем не менее, группа, которая имеет за плечами поддержку таких коммерческих гигантов как MTV и лейбл Epic records, и которая получает исключительно положительную прессу во всех СМИ, может не беспокоиться за низкие показатели продаж своего последнего детища - “Untouchables” бесспорно станет одним из главных хитов сезона. <BR><BR></p>
+
+Автор: Natural born loser
+
+### 16.07.2002 articles Гитлер в раю?
+
+<p>Пара неосторожных высказываний может поставить крест на карьере любого музыканта. Нужно лишь суметь найти самые нужные слова и дело в шляпе. Джон Шаффер, гитарист супер-популярной группы KORN, похоже, нашел именно их. </p>
+<p>На прошлой неделе парня угораздило дать интервью британскому журналу Metal Hammer. Разговор от музыки плавно перешел в политику, затем в историю и…</p>
+<p><I>- Я думаю, Гитлер сейчас в раю – если рай конечно существует. Этот парень чувствовал, что все делает правильно, делает то, что велит ему сердце. Ну а раз так, то он не мог ошибаться! </I></p>
+<p>К сожалению, в последовавшей публикации никто не уточнил, сколько было выпито пива, съедено грибов или чего покруче. И совершенно зря – читатели в своих отзывах посчитали, что извинить такой бред могли лишь наркотики или алкоголь. Отзывы в Интернете на сайте группы носили чуть более откровенный характер (безматерные версии):</p>
+<p><i>"Шаффер – знаменитость, возомнившая о себе бог весть что. Не тебе решать, кто отправится в ад, а кто – в рай".</i></p>
+<p><i>"Эти слова – лучший способ поставить крест на своей карьере".</i></p>
+<p><i>"Похоже, этот парень в школе пропускал уроки истории".</i> </p>
+<p><i>"Обезъянка! Ваша песня "Безмозглый" ("Thoughtless") – про тебя?"</i> </p>
+<p><i>"Эй, американец, скажи-ка то же самое о Бен Ладене – он ведь тоже делает то, что считает правильным!".</i> </p>
+<p>Наглотавшись подобных писем, музыканты KORN отправились на всеобщее собрание. Неизвестно, какой разговор состоялся между коллегами по группе, но через сутки Шаффер взял свои слова назад: </p>
+<p><i>- Я никоим образом не хотел оправдывать или объяснять все те зверства, что совершил Гитлер. Его судьба и то, что он получил после жизни, определено высшей силой, а не мной или кем-то еще. Я извиняюсь перед всеми, кого задели мои слова.</i> </p>
+<p>Похоже, что вовремя: на продажах "Untouchables" это никоим образом не сказалось – диск уже четвертую неделю подряд находится в первой десятке "Биллборда". В свое время BEATLES после слов Леннона "Мы популярнее, чем Иисус Христос" отменили целую серию концертов, а Мадонна, заявив "Я возбуждаюсь, глядя на распятие", также пожалела об этом. Похоже, KORN просто повезло. </></p>
+
+Автор: Tornado
+
+### 18.07.2002 news Металл&#x2F;Хард Рок в Германских чартах Медиа Контрол...
+
+<p>Представляем вашему вниманию жанр Металл/Хард Рок в Германских Медиа Контрол чартах (топ 100) по состоянию на текущюю неделю: <BR><BR> 01. (новичок) RED HOT CHILI PEPPERS - By The Way<BR> 11. (6) PAPA ROACH - Lovehatetragedy<BR> 15. (13) NIGHTWISH - Century Child<BR> 17. (12) KORN - Untouchables<BR> 30. (24) MANOWAR - Warriors Of The World<BR> 37. (77) RED HOT CHILI PEPPERS - Californication<BR> 38. (23) SOULFLY - 3<BR> 40. (32) B&Ouml;HSE ONKELZ - Dopamin<BR> 43. (41) ROBERT PLANT - Dreamland<BR> 49. (51) DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 51. (53) DONOTS - Amplify The Good Times<BR> 56. (60) SYSTEM OF A DOWN - Toxicity<BR> 59. (57) PUDDLE OF MUDD - Come Clean<BR> 87. (50) SUB7EVEN - Free Your Mind<BR> 99. (90) OZZY OSBOURNE - Live At Budokan<BR><BR> Число в скобках показывает позицию на прошлой неделе...</p>
+
+Автор: Yermola
+
+### 18.07.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart* for the week ending July 22nd (as reported by Rock Hard magazine): <BR><BR> 01. (new) RED HOT CHILI PEPPERS - By The Way<BR> 11. (6) PAPA ROACH - Lovehatetragedy<BR> 15. (13) NIGHTWISH - Century Child<BR> 17. (12) KORN - Untouchables<BR> 30. (24) MANOWAR - Warriors Of The World<BR> 37. (77) RED HOT CHILI PEPPERS - Californication<BR> 38. (23) SOULFLY - 3<BR> 40. (32) BЦHSE ONKELZ - Dopamin<BR> 43. (41) ROBERT PLANT - Dreamland<BR> 49. (51) DIE TOTEN HOSEN - Auswдrtsspiel<BR> 51. (53) DONOTS - Amplify The Good Times<BR> 56. (60) SYSTEM OF A DOWN - Toxicity<BR> 59. (57) PUDDLE OF MUDD - Come Clean<BR> 87. (50) SUB7EVEN - Free Your Mind<BR> 99. (90) OZZY OSBOURNE - Live At Budokan<BR><BR> * number in parenthesis indicates last week's chart position</p>
+
+Автор: Yermola
+
+### 02.08.2002 news Metal&#x2F;Hard Rock в германском Media Control Chart ...
+
+<p>Вот так на текущей неделе выглядит German Media Control (Top 100) чарт в жанре металл/хард рок: <BR><BR> 16. PAPA ROACH – Lovehatetragedy<BR> 22. DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 23. NIGHTWISH - Century Child<BR> 30. SYSTEM OF A DOWN - Toxicity<BR> 31. KORN - Untouchables<BR> 39. MANOWAR - Warriors Of The World<BR> 40. B&Ouml;HSE ONKELZ - Dopamin<BR> 45. NICKELBACK - Silver Side Up<BR> 54. SOULFLY - 3<BR> 61. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 70. PUDDLE OF MUDD - Come Clean<BR> 75. DONOTS - Amplify The Good Times<BR> 83. DARK TRANQUILLITY - Damage Done</p>
+
+Автор: Yermola
+
+### 20.08.2002 news Metal&#x2F;Hard Rock в Германских Чартах...
+
+<p>Вот так выглядит Топ-100 Германских Медиа Контрол Чартов по состоянию на текущую неделю... <BR><BR> 06. LINKIN PARK - Reanimation<BR> 16. DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 19. DEF LEPPARD - X<BR> 26. SYSTEM OF A DOWN - Toxicity<BR> 27. PAPA ROACH - Lovehatetragedy<BR> 32. FILTER - The Amalgamut<BR> 34. NIGHTWISH - Century Child<BR> 36. SILVERCHAIR - Diorama<BR> 39. B&Ouml;HSE ONKELZ - Dopamin<BR> 48. KORN - Untouchables<BR> 55. NICKELBACK - Silver Side Up<BR> 56. MANOWAR - Warriors Of The World<BR> 57. PUDDLE OF MUDD - Come Clean<BR> 60. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 68. SOULFLY - 3<BR> 98. JUDAS PRIEST - Live In London (DVD)</p>
+
+Автор: Yermola
+
+### 20.08.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending August 19th: <BR><BR> 06. LINKIN PARK - Reanimation<BR> 16. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 19. DEF LEPPARD - X<BR> 26. SYSTEM OF A DOWN - Toxicity<BR> 27. PAPA ROACH - Lovehatetragedy<BR> 32. FILTER - The Amalgamut<BR> 34. NIGHTWISH - Century Child<BR> 36. SILVERCHAIR - Diorama<BR> 39. BЦHSE ONKELZ - Dopamin<BR> 48. KORN - Untouchables<BR> 55. NICKELBACK - Silver Side Up<BR> 56. MANOWAR - Warriors Of The World<BR> 57. PUDDLE OF MUDD - Come Clean<BR> 60. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 68. SOULFLY - 3<BR> 98. JUDAS PRIEST - Live In London (DVD)</p>
+
+Автор: Yermola
+
+### 20.09.2002 news Sweden&#39;s Top-Selling Metal&#x2F;Hard Rock Albums For Week Ending 9&#x2F;20 - Sep. 19, 2002
+
+<p>The following is a list of the top-selling hard rock/heavy metal albums in Sweden for the week ending September 20th, 2002 (as reported by the Swedish daily newspaper Aftonbladet): <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS Nґ ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (NEW) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (NEW) STONE SOUR - Stone Sour <BR> 18. (RE-ENTRY) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done <BR></p>
+
+Автор: Yermola
+
+### 20.09.2002 news Что слушают в Швеции?
+
+<p>Вот так на текущей неделе выглядит 20-ка самых продаваемых в Швеции альбомов по информации газеты Aftonbladet: <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS NЃL ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (новинка) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (новинка) STONE SOUR - Stone Sour <BR> 18. (повторно) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done</p>
+
+Автор: Yermola
+
+### 20.01.2003 articles На концертной тропе
+
+<p><B>На концертной тропе</B> <BR> Любовь к деньгам неистребима, желание сосчитать деньги чужие – бессмертно. Американский таблоид Pollstar целый год наблюдал, как по Штатам колесят с концертами самые разные музыканты, а потом взял да и сосчитал, кто сколько заработал. <BR> Картина получилась занятная. Выяснилось, что любимцы MTV то ли играть живьем не умеют, то ли народ их не так любит, как телевидение, но в лидеры сотни самых удачливых групп года ребята не пробились. Миром правят старики – сэр Маккартни, ROLLING STONES и Шер установили такие рекорды, о которых прочие и не мечтали – цена на билеты была за сотню баксов, а народ все валил и валил поглазеть на мэтров рок-н-ролла! <BR> Вообще, модных исполнителей в чарте оказалось не так уж много – зато в избытке таких команд, как POISON и LA GUNS. Казалось бы, сейчас этих длинноволосых парней в коже никто не помнит – команды сделали себе имя в конце 80-х на глэм-роке, чьим обязательным атрибутом были напомаженные блондинки и крутые мотоциклы. Однако сегодня эти ребята вновь зарабатывают деньги на концертах, собирая за раз по несколько тысяч слушателей, а модные KORN и LIMP BIZKIT не могут понять, куда уходит их аудитория! Похоже, появилась новая мода – на 80-е. <BR> Косвенным доказательством тому и массовый неуспех рэп-концертов – лишь Эминем вошел в сотню лучших на 34 месте, заработав за 30 концертов 15 миллионов. "Рэп и хип-хоп как жанры не подлежат превращению в концертные шоу, и на то есть причины" – считает Божовани, редактор Pollstar. Упала посещаемость и концертов традиционных поп-групп – 'N SYNC, бывшие в числе лидеров в прошлом году, на этот раз лишь на 12-м месте, а Бритни Спирс – на 14-м. Но худший тур года – те несколько концертов, что Эксл Роуз умудрился-таки дать с реорганизованными GUNS N ROSES (75-е место, 6,5 миллиона за 16 концертов). Впрочем, по словам Божовани, худший отнюдь не по финансовым показателям: "Да, эти ребята заработали денег, хотя далеко не всегда были аншлаги, как того хотелось Экслу, но сколько проблем они создали другим и самим себе – скандалы, драки, отмена выступлений и недовольная толпа, громящая магазины! А ведь такими концертами проще всего подпортить себе имя раз и навсегда". <BR> Но прошедший год – лишь цветочки, а ягодки ожидаются в этом – "роллинги" продолжают катиться по своей бесконечной гастрольной программе, на концертную тропу выходит любимец американцев Спрингстин, ожидается возвращение еще одних кумиров 80-х – FLEETWOOD MAC. Так что мода на старье расцветет буйным цветом, а примодненной молодежи лучше сидеть дома – отрываться будут родители! <BR> <B>Десятка самых удачных гастролеров 2002 года</B> <BR> 1. Пол Маккартни (103,3 миллиона долларов)<BR> 2. THE ROLLING STONES (87,9 миллиона долларов) <BR> 3. Шер (73,6 миллиона долларов) <BR> 4. Билли Джоел и Элтон Джон (65,5 миллиона долларов) <BR> 5. DAVE MATTHEWS BAND (60,1 миллиона долларов) <BR> 6. Брюс Спрингстин (42,6 миллиона долларов) <BR> 7. AEROSMITH (41,4 миллиона долларов) <BR> 8. CREED (39,2 миллиона долларов) <BR> 9. Нейл Даймонд (36,5 миллиона долларов) <BR> 10. EAGLES (35,4 миллиона долларов)</p>
+
+Автор: Tornado
+
+### 24.09.2003 news KORN назначили дату релиза
+
+18 ноября выйдет новый альбом <B>KORN "Take A Look In The Mirror</B>". В начале октября выйдет первый сингл с этой пластинки <B>'Right Now'</B>. В альбом войдёт песня <B>'Did My Time'</B>, которая входила на soundtrack фильма '<B>Lara Croft Tomb Raider: The Cradle of Life'.</B>
+Автор: Vit Belov
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 11.06.2010 news KORN бойкотируют BP
+
+<P><STRONG>KORN </STRONG>объявили, что не будут использовать продукцию нефтяной компании <STRONG>British Petroleum</STRONG> во время своего ближайшего масштабного тура. Бензином <STRONG>BP</STRONG> не будет заправлен ни один автобус. Группа призывает и других рок-музыкантов к подобному шагу.</P>
+<P>Предлагаемый бойкот связан с разливом нефти в Мексиканском заливе, который вызвал экологическую катастрофу.</P>
+<P>Новый альбом <STRONG>KORN</STRONG> <STRONG>"Korn III – Remember Who You Are" </STRONG>выходит 13 июля на <STRONG>Roadrunner.</STRONG></P>
+Автор: Vit Belov
+
+### 23.07.2010 news KORN стали вторыми
+
+<P>Новый альбом <STRONG>KORN</STRONG> <STRONG>"Korn III - Remember Who You Are" </STRONG>дебютировал на втором месте в чартах<STRONG> Billboard</STRONG>. Продано 63000 копий. Предыдущий альбом группы также стартовал со второго места, но продано было в два раза больше альбомов - 123000. Падение продаж пластинок <STRONG>KORN</STRONG>, таким образом, продолжилось, ведь теперь уже третий с конца дискографии альбом группы <STRONG>"See You On The Other Side" </STRONG>продался в количестве 221000 экземпляров в декабре 2005 года.</P>
+Автор: Vit Belov
+
+### 02.12.2010 news Номинанты &quot;Грэмми&quot; за этот год
+
+<P><IMG height=299 alt="" hspace=0 src="/images/news_rus/2010.12/17727.jpg" width=400 align=right border=0>Объявлены номинанты музыкальной премии<STRONG> "Грэмми"</STRONG> за 2010 год. 53 церемония вручения наград состоится 13 февраля 2011 года в <STRONG>Staples Center</STRONG> в Лос-Анджелесе. </P>
+<P>На звание лучшей 'hard-rock' команды претендуют следующие&nbsp;песни и исполнители:</P>
+<P>* <B>ALICE IN CHAINS</B> - "A Looking In View" (from "Black Gives Way to Blue")<BR>* <B>OZZY OSBOURNE</B> - "Let Me Hear You Scream" (from "Scream")<BR>* <B>SOUNDGARDEN</B> - "Black Rain" (from "Telephantasm")<BR>* <B>STONE TEMPLE PILOTS</B> - "Between The Lines" (from "Stone Temple Pilots")<BR>* <B>THEM CROOKED VULTURES</B> - "New Fang" (from "Them Crooked Vultures")</P>
+<P>На премию в категории "метал" номинированы:</P>
+<P>* <B>IRON MAIDEN</B> - "El Dorado" (from "The Final Frontier")<BR>* <B>KORN</B> - "Let The Guilt Go" (from "Korn III: Remember Who You Are")<BR>* <B>LAMB OF GOD</B> - "In Your Words" (from "Wrath")<BR>* <B>MEGADETH</B> - "Sudden Death" (from "Guitar Hero: Warriors Of Rock")<BR>* <B>SLAYER</B> - "World Painted Blood" (from "World Painted Blood")</P>
+<P>На заветный "граммофон" могут претендовать исполнители, выпустившие новую музыку с 1 сентября 2009 года по 30 сентября 2010 года.</P>
+Автор: Vit Belov
+
+### 09.07.2011 news Вокалист KORN подпел SUICIDE SILENCE
+
+<P>Новую песню деткорщиков <STRONG>SUICIDE SILENCE</STRONG> <STRONG>"Witness The Addiction", </STRONG>в записи которой принял участие вокалист <STRONG>KORN</STRONG> <STRONG>Jonathan Davis, </STRONG>можно послушать в клипе ниже. Трек взят с новейшего альбома <STRONG>"The Black Crown"</STRONG>, который выйдет 12 июля на <STRONG>Century Media</STRONG>.</P>
+<P>
+<CENTER>
+<DIV style="WIDTH: 520px; BACKGROUND-COLOR: #000000">
+<DIV style="PADDING-RIGHT: 4px; PADDING-LEFT: 4px; PADDING-BOTTOM: 4px; PADDING-TOP: 4px"><EMBED src=http://media.mtvnservices.com/mgid:uma:video:mtv.com:671309/cp~vid%3D671309%26uri%3Dmgid%3Auma%3Avideo%3Amtv.com%3A671309 width=512 height=288 type=application/x-shockwave-flash allowFullScreen="true" allowScriptAccess="always" base="." flashVars=""></EMBED> 
+<P style="PADDING-RIGHT: 4px; MARGIN-TOP: 4px; PADDING-LEFT: 4px; FONT-SIZE: 12px; MARGIN-BOTTOM: 0px; PADDING-BOTTOM: 4px; PADDING-TOP: 4px; FONT-FAMILY: Arial, Helvetica, sans-serif; BACKGROUND-COLOR: #ffffff; TEXT-ALIGN: left">Get More: <A href="http://www.mtv.com/ontv/" target=_blank>MTV Shows</A></P></DIV></DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 24.03.2012 news Новое видео KORN
+
+<P>Новый клип <STRONG>KORN</STRONG> на песню "<STRONG>Chaos Lives In Everything</STRONG>" можно посмотреть ниже. Трек взят с декабрьского десятого альбома коллектива "<STRONG>The Path Of Totality</STRONG>", который вышел на <STRONG>Roadrunner</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/QqBqCkRi2dY?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 08.05.2012 news Новое видео KORN
+
+<p>Новый клип<strong> KORN</strong> на песню <strong>"Way Too Far</strong>" можно посмотреть ниже. Трек содержит в себе творчество электронных артистов <strong>12th Planet, Flinch</strong> и<strong> Downlink</strong>, которые разнообразят саунд популярной группы.</p><p><center><iframe width="640" height="360" src="http://www.youtube.com/embed/EN3T9SY_wNo?feature=player_embedded" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 25.07.2016 news Новый клип KORN
+
+<p>Новый ролик<strong> KORN</strong> на песню "<strong>Rotting In Vain</strong>" можно посмотреть ниже. Трек взят с нового альбома группы "<strong>The Serenity&nbsp;of Suffering</strong>", который выйдет на Roadrunner 21 октября.</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/nq9j1qkj2Vc" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 25.07.2016 news Ne clip of KORN
+
+New <strong>KORN</strong> video for the song "<strong>Rotting In Vain</strong>" can be viewed below. The track is taken from the new album "<strong>The Serenity of Suffering</strong>", which will be released on <strong>Roadrunner</strong> on October 21.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/nq9j1qkj2Vc" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+### 22.08.2016 news Новый сингл KORN
+
+<p>Новая песня <strong>KORN "Insane"</strong> доступна в ролике ниже. Трек взят с альбома "<strong>Serenity of Suffering"</strong>, который выйдет 21 октярбря на <strong>Roadrunner</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/C7T2_gaVgak" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 22.08.2016 news New single of KORN
+
+<p>New<strong> KORN</strong> song "<strong>Insane</strong>" is available in the video below. The track is taken from the album "<strong>Serenity of Suffering</strong>", due out 21 October via <strong>Roadrunner</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/C7T2_gaVgak" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 23.08.2016 news KORN выложили клип на песню &quot;INSANE&quot;
+
+<p>Новый видео-ролик <strong>KORN "Insane"</strong> можно посмотреть ниже. Новый альбом "<strong>The Serentiy Of Suffering</strong>" выйдет 21 октября на <strong>Roadrunner</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/P-zb4C_k7Ek" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 23.08.2016 news New clip of KORN
+
+<p>New video clip of<strong> KORN "Insane"</strong> can be viewed below. New album, <strong>"The Serentiy Of Suffering"</strong> will be released on October 21 via <strong>Roadrunner</strong>.</p><p>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/P-zb4C_k7Ek" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 01.10.2016 news Аудио-клип KORN с песней с участием Corey Taylor из SLIPKNOT
+
+<p>Новый трек<strong> KORN "A Different World"</strong> можно послушать ниже. В записи песни принял участие вокалист <strong>SLIPKNOT Corey Taylor</strong>. Вещь войдёт в новый альбом <strong>KORN "The Serenity Of Suffering</strong>", который выйдет в этом месяце на <strong>Roadrunner</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/JAmszB9UE_4" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 01.10.2016 news KORN released audio clip with Corey Taylor from SLIPKNOT
+
+<p>New<strong> KORN</strong> track <strong>"A Different World</strong>" can be streamed below. In the recording vocalist of<strong> SLIPKNOT Corey Taylor</strong> took part. Song will be included in the new KORN album "<strong>The Serenity Of Suffering</strong>", which will be released this month via<strong> Roadrunner</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/JAmszB9UE_4" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 06.10.2016 news KORN выпустили новый клип
+
+<p>Новый ролик <strong>KORN </strong>на песню "<strong>A Different World</strong>" можно посмотреть ниже. Трек войдёт в новую работу музыкантов "<strong>The Serenity Of Suffering</strong>", которая выйдет 21 октября на <strong>Roadrunner</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/0zXDys_gwHk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 06.10.2016 news KORN released video for &quot;A Different World&quot;
+
+<p>New <strong>KORN</strong> video for the song "<strong>A Different World</strong>" can be viewed below. The track will be included in the new work of musicians "<strong>The Serenity Of Suffering</strong>" which will be released on October 21 via <strong>Roadrunner</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/0zXDys_gwHk" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Kid Rock, Slipknot, Korn в помощь Чаку Шульдинеру

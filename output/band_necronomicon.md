@@ -38,6 +38,30 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.02.2009 news NECRONOMICON закончили сведение
+
+<P>Канадаская death-black-metal группа<STRONG> NECRONOMICON</STRONG> закончила сведение своего нового альбома <STRONG>'The Return Of The Witch'. </STRONG>Группа обещает самый брутальный и быстрый материал в своей истории.</P>
+Автор: Vit Belov
+
+### 19.02.2009 news Две песни NECRONOMICON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Две новых песни<STRONG> NECRONOMICON</STRONG> с нового альбома <STRONG>"Return of the Witch" </STRONG>лежат на<STRONG> MySpace</STRONG> страничке группы.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/necronomiconmetal">http://www.myspace.com/necronomiconmetal</A></FONT></P>
+Автор: Vit Belov
+
+### 16.04.2009 news Видео от NECRONOMICON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>NECRONOMICON</STRONG> на песню <STRONG>"The Time is Now" </STRONG>доступно на <STRONG>YouTube</STRONG>.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/OaM6CnblnXY&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/OaM6CnblnXY&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

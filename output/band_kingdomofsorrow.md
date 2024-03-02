@@ -27,6 +27,23 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.04.2011 news Jamey Jasta выпустит сольный альбом
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.04/19231.jpg" width=213 height=300>26 июля на лейбле <STRONG>eOne Music</STRONG> выходит сольный альбом Джеймса Джаста (<STRONG>Jamey Jasta</STRONG>), вокалиста&nbsp;<STRONG>HATEBREED</STRONG> и <STRONG>KINGDOM OF SORROW</STRONG>.</P>
+<P>На альбоме, получившим скромное название <STRONG>"Jasta"</STRONG>, отметятся следующие гостевые музыканты: <B>Tim Lambesis</B> (<B>AS I LAY DYING</B>),&nbsp;профессиональный скейтер&nbsp;<B>Mike Vallely</B>, <B>Philip Labonte</B> (<B>ALL THAT REMAINS</B>), <B>Randy Blythe</B> и <B>Mark Morton</B> (<B>LAMB OF GOD</B>) и легендарный гитарист&nbsp;<B>Zakk Wylde</B>. <BR></P>
+<P><BR>&nbsp;</P>
+Автор: Headcrusher
+
+### 02.08.2011 news Сольник вокалиста HATEBREED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=417 alt="" hspace=0 src="/images/news_rus/2011.08/20420.jpg" width=417 align=right border=0>Дебютный соло-альбом вокалиста <STRONG>HATEBREED</STRONG> и <STRONG>KINGDOM OF SORROW James Jasta</STRONG>, названный просто "<STRONG>Jasta</STRONG>", вышел 26 июля на <STRONG>Century Media Records. </STRONG>Трек-лист:</FONT></P>
+<P>01. <B>Walk That Path Alone</B><BR>02. <B>Mourn The Illusion</B><BR>03. <B>Screams From The Sanctuary</B><BR>04. <B>Nothing They Say</B><BR>05. <B>Anthem Of The Freedom Fighter</B><BR>06. <B>Something You Should Know</B> (feat. Phil Labonte of ALL THAT REMAINS)<BR>07. <B>Set You Adrift</B><BR>08. <B>Enslaved, Dead or Depraved</B> (feat. Randy Blythe of LAMB OF GOD)<BR>09. <B>With A Resounding Voice</B> (feat. Tim Lambesis of AS I LAY DYING)<BR>10. <B>The Fearless Must Endure</B> (feat. Zakk Wylde of BLACK LABEL SOCIETY)<BR>11. <B>Heart Of A Warrior</B> (feat. Mike Vallely)<BR>12. <B>Death Bestowed</B> (feat. Mark Morton of LAMB OF GOD)</P>
+<P>James Jasta рассказал, что на сольнике больше элементов рока и thrash-metal, а сам он чаще поёт чистым голосом.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

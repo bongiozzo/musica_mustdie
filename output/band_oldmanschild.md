@@ -191,6 +191,199 @@ Sweden, with producer Fredrik Nordstrцm.
 * C группой "Khold" Sarke
 * C группой "Tulus" Sarke
 
+## Публикации
+
+### 21.06.1999 news 
+
+<p>Old Man's Child собираются записать новый альбом в ноябре.</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Новый альбом Old Man's Child почти готов и уже имеет название "Revelation 666: The Curse Of Damnation".</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>Old man's Child закончили запись нового альбома, который выйдет 21 марта.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 reviews Вот он, блэк будущего!
+
+<P>Долгожданная пластинка популярных блэкстеров. Достаточно лишь сказать, что найти её уже на лицензии после первого выпуска не представляется возможным. Что можно такого рассказать. Во-первых, на альбоме засветилось два барабанщика, Гримар и Тьодлав, что само по себе уже довольно занимательно. Но начну всё-таки с музыки. На прошлом альбоме к традиционно блэковому звучанию примешалось влияние мелодичного шведского дэт-металла, что дало новые виток к развитию коллектива. На новом шедевре намечена такая же тенденция, но всё-таки основным стилем является убойно-мелодичный блэк. Мне кажется, что за такой музыкой и есть будущее мелодичного блэка. Скоростные рифы, в которых не теряется мелодика. Вроде бы долбёжка, но мелодии захватывают дух. Забудте эксперементы Kovenant и Satyricon - это не блэк нового поколения. Old Man's Child -&nbsp;вот он блэк будущего. Скоростная мелодика, вот к чему надо стремится. Всем любителям блэка, если найдёте.</P>
+Автор: Vit Belov
+
+### 16.08.2000 news Galder заменит Astennu в Dimmu Borgir.
+
+<p> Никто иной, как Galder (Old Man's Child), заменит Astennu на гитаре в Dimmu Borgir. Однако, это не означает, что он оставит O.M.C. Как говорит Galder, "Я решил продолжить работать с группой по нескольким причинам, и прежде всего, потому что я вложил слишком много времени, энергии и души в команду, и я чувствую, что у меня все еще есть огромное количество идей для нее."</p>
+
+Автор: Morsus
+
+### 16.08.2000 news Galder will replace Astennu in Dimmu Borgir.
+
+<p> No other than Galder (Old Man's Child) will replace Astennu on guitar in Dimmu Borgir. However, this does not mean that he will quit O.M.C. "I decided to continue with the band for several reasons, first of all because I have put so much time, energy and spirit in the band and I feel that I still have lots of ideas to put into the band." says Galder.</p>
+
+Автор: Morsus
+
+### 31.08.2000 news ... И еще новости из лагеря Dimmu Borgir
+
+<p> Как мы уже сообщали ранее, новый альбом Dimmu Borgir будет записан вместе с небольшим оркестром, а место ушедшего гитариста Astennu займет фронтмэн группы Old Man's Child Galder. Теперь стали известны названия трэков, которые войдут в новый альбом: 'Blessings Upon The Throne Of Tyranny', 'Maelstrom Mephisto', 'Architect Of A Genocidal Nature', 'Sympozium' и 'Kings Of The Carnival Creation'. Японская версия альбома ещё включит в себя перезаписанную 'Devil's Path'. Галдер также заявил, что Old Man's Child займутся работой над новым альбомо только тогда, когда у него появится свободное время, и на данный момент Dimmu Borgir для него является основным коллективом.</p>
+
+Автор: Nybras
+
+### 23.02.2001 bios Old Man&#39;s Child - Биография.
+
+<p> Начало.</p>
+<p> Проект Old Man's Child был вызван к жизни в Норвегии в 1993 году. Но если быть точным, события, способствовавшие рождению группы, случились несколькими годами ранее. В 1989 году Galder и Tjodalv основали команду, которая играла главным образом каверы Metallica и Slayer. Под названием Requiem они выпустили в 1993 году одноименное демо тиражом всего в 50 копий. На музыкальный материал заметное влияние оказала переживавшая в то время подъем death metal сцена. В 1993 году группа сменила название на Old Man's Child. Изначально в состав входили гитарист/вокалист Grusom (Томас Рун Андерсен), гитарист Jardar (Джон Шувинд Андерсен) и барабанщик Dimmu Borgir Tjodalv (Кеннет Екессон). Они собирались сформировать классический death metal проект (такой, как это было с ранее упомянутым Requiem), но вскоре обнаружили взаимную симпатию к экстремальному и бескомпромиссному black metalу. Их новое музыкальное направление, которое они стали играть, можно определить как разрушительную комбинацию классического thrash материала, смешанного с интенсивным death metalом и симфоническим black metalом. Между тем развитие событий притормозилось, поскольку Grusom (ныне известный как Galder) и Jardar были призваны на военную службу в норвежскую армию. Однако они нашли время записать первое демо под названием "In The Shades Of Life" в ноябре 1994 года в норвежской студии Stovner RF. Непосредственно перед самым походом в студию к ним присоединился бывший басист Dimmu Borgir Бриньярд Тристан. Записанная ими демо-лента с пятью композициями была настолько хороша, что они привлекли внимание норвежского лейбла Hot Records, согласившегося выпускать их будущие альбомы. Демо "In The Shades Of Life" первоначально намеревалось выпустить на Ancient Lore Creations как сплит с Ved Buens Ende, но из-за некоторых трудностей этого так и не случилось.</p>
+<p> Первый альбом.</p>
+<p> В ноябре-декабре 1995 года наконец представился случай записать и выпустить первый настоящий альбом на Hot Records. Альбом был записан в Studio 3 в Норвегии. Перед самой записью альбома Бриньярд Тристан был заменен Минасом Тиритом, басистом и фронтмэном группы Gonde. Tjodalv также покинул групппу, но только по окончании записи альбома, поскольку хотел сосредоточить все свои силы на Dimmu Borgir. Альбом под названием "Born Of The Flickering" получился превосходным и привлек к группе заслуженное внимание среди металлического сообщества и прессы во всём мире.</p>
+<p> Второй альбом.</p>
+<p> В 1996 году парни нашли замену на барабанах для ушедшего Tjodalvа. Нового драммера звали Tony (Тони Киркемо). В том же самом году они наконец смогли выпустить своё первое демо "In The Shades Of Life", записанное двумя годами ранее. Ещё чуть позже Century Media заметили творческий потенциал группы, и переиздание "Born Of The Flickering" в 1996 году в виде дигипака с полностью обновлённым оформлением стало первым плодом их нового сотрудничества. В июне 1997 года парни отправились в Studiomega записывать второй полноформатный альбом. Альбом под названием "The Pagan Prosperity" поступил в продажу ранней осенью этого же года. Century Media занялись дистрибуцией альбома по всему миру, и небезуспешно - группа завоевала внимание многих новых поклонников. А перед самым выпуском альбома Grusom решил переименоваться в Galderа, и теперь все знают его под этим именем.</p>
+<p> Новый альбом, новые проблемы.</p>
+<p> После выхода "The Pagan Prosperity" группа почти что распалась. Tony не обладал достаточными навыками, чтобы играть технически сложные арранжировки, написанные Galderом для ударных, и, кроме того, у него был свой проект. У Gonde (Минаса Тирита) появились проблемы с наркотикиками, так что в конце концов его пришлось уволить. Таким образом, всё, что осталось от группы - это Galder и Jardar. Jardar кроме занятий музыкой имел другую постоянную работу, которая не оставляла ему достаточно свободного времени. В таких обстоятельствах Galder пригласил на время участников группы Tulus, ударника Sarke и басиста Blodstrupа, и в сентябре 1997 года Old Man's Child в новом составе приняли участие в европейском туре с ведущими группами в линейке Century Media - Rotting Christ и Sacramentum. После возвращения из тура Galder в одиночку решил записать и выпустить следующий альбом. Он не хотел использовать драм-машину и пригласил для записи альбома виртуозного барабанщика Гена Хоглана, весьма известного в металлическом мире. За свою корьеру он играл со многими группами (Death, Dark Angel, Testament, Strapping Young Lad). Третий альбом Old Man's Child предполагалось записать в шведской Abyss Studio. Но поскольку студия была уже занята, запись состоялась в марте-апреле 1998 года в другой известной шведской студии Sunlight. Sunlight Studios главным образом знаменита хорошим death metal звуком. Galder не хотел, чтобы Old Man's Child была добавлена к длинному списку групп со стандартным звуком Sunlight, ставшим известным благодаря Entombed, Dismember и многим другим командам расцвета death metal сцены начала девяностых. Так что ему пришлось перед записью покрутить почти все ручки настроек в студии, пока он наконец не оказался довольным результатом. Помогал в записи звукоинженер Томас Скогсберг (Entombed, Dismember). Альбом получил название "Ill-natured Spiritual Invasion", и это - великолепный шедевр, состоящий из быстрого, брутального и мелодичного black metalа. Одна интересная особенность этого альбома - вокалы были все импровизированы при записи, а не отрепетированы заранее. Galder сыграл всё на этом альбоме, кроме ударных!</p>
+<p> Смена тысячелетия.</p>
+<p> В последних днях уходящего тысячелетия Old Man's Child снова отправились в студию записывать четвёртое творение. На сей раз альбом был сделан в полностью укомплектованном составе. Jardar наконец вернулся назад в группу после вынужденной двухлетней паузы. Ударник Dimmu Borgir Tjodalv снова пришёл в команду, на этот раз в качестве сессионного музыканта записавшись на четырёх из восьми треков. Остальные четыре композиции записал новый барабанщик Grimar. Ещё одним новичком в группе стал басист по имени Memnoch. Оба парня успели хорошо себя зарекомендовать в прошедшем в феврале 1999 года туре совместно с Mystic Circle, Sacramentum, Runemagick и Eisregen. Результат совместных усилий музыкантов ныне известен как "Revelation 666". Снова талантливый Galder сам написал всю музыку, но в отличие от предыдущего альбома "Ill-natured Spiritual Invasion", на этот раз он работал с реальной группой, и другие участники также добавили некоторые из собственных идей. Альбом был записан в ноябре 1999 года в шведской Abyss Studio с продюсером Питером Тагтгреном, человеком очень известным и уважаемым в металлических кругах. Этот альбом - шедевр, след которого несомненно останется в металлической истории. Он характеризуется использованием брутальных скоростных ударных и одновременно мягких мелодий гитар, а включение клавиатуры и атмосферных нюансов добавляет мрачности и серьёзности.</p>
+<p> В августе 2000 года появилась сногсшибательная новость - Galder присоединился к Dimmu Borgir в качестве постоянного гитариста. Он заменил Astennu, уволенного из Dimmu Borgir за недостаточное внимание к работе в группе. Galder лично знал нескольких парней из Dimmu Borgir в течение очень долгого времени, так что этот шаг вполне может рассматриваться как естественное развитие событий. Но Galder всё же решил продолжить свою творческую деятельность в собственном детище Old Man's Child, слишком уж много он отдал ему времени, сил и души. Так что сага продолжается.</p>
+
+Автор: Morsus
+
+### 25.10.2001 news Old Man&#39;s Child запишут новый альбом
+
+<p>По словам гитариста Dimmu Borgir Galder'а, запись будущего альбома Old Man's Child вероятно состоится в шведской Studio Fredman в марте 2002 года по окончании студийных и гастрольных обязательств с Dimmu Borgir . Барабанщик Dimmu Borgir Nick Barker, игравший прежде также в Cradle Of Filth, будет сидеть за ударной установкой, в то время как сам Galder сыграет на остающихся инструментах, если к тому времени не будут найдены подходящие музыканты.</p>
+
+Автор: Morsus
+
+### 25.10.2001 news Old Man&#39;s Child will record a new album
+
+<p>Dimmu Borgir guitarist Galder has stated that the recordings for the forthcoming album from Old Man's Child, the band that he had founded and put on the backburner while completing the various recording and touring commitments with Dimmu Borgir over much of the last year, will likely start in March 2002 at Studio Fredman in Sweden. Current Dimmu Borgir and former Cradle Of Filth drummer Nick Barker will be behind the kit, while Galder may play the remaining instruments himself unless suitable musicians are found in the meantime.</p>
+
+Автор: Morsus
+
+### 18.06.2002 news Готов свежий альбом Old Man&#39;s Child
+
+<p>Галдер, гитарист Dimmu Borgir нашёл время для своего детища Old Man's Child. Вместе с барабанщиком Ником Баркером из того же Dimmu Borgir были записаны девять песен для альбома "Infidel", выходящего вскоре на Century Media. Это - "Despicable Acts Of Cruelty", "Obdurate Hatred Obscure", "The Agony Of Living", "World Disintegration", "Waves Of Derangements", "Sinning In Faith", "The Earthly Impetous", "Strength Of My Beliefs" и безымянный инструментал.</p>
+
+Автор: Morsus
+
+### 18.06.2002 news Old Man&#39;s Child will release an album soon
+
+<p>Old Man's Child will release soon Infidel through Century Media. Featuring Dimmu Borgir guitarist Galder and drummer Nick Barker, the album will feature nine tracks, as thus: "Despicable Acts Of Cruelty," "Obdurate Hatred Obscure," "The Agony Of Living," "World Disintegration," "Waves Of Derangements," "Sinning In Faith," "The Earthly Impetous," "Strength Of My Beliefs," plus an unnamed instrumental.</p>
+
+Автор: Morsus
+
+### 22.09.2002 news Новости от OLD MAN&#39;S CHILD
+
+<p>Норвежские музыканты OLD MAN'S CHILD, в составе которой два участника DIMMU BORGIR - Galder (гитарист) и Nick Barker (ударные, также в LOCK UP), изменили название своего нового альбома с оригинального "Infidel" на "In Defiance Of Existence". В записи альбома также принял участие гитарист DREAM EVIL Gus G. "In Defiance Of Existence" выйдет в начале 2003 года на Century Media Records.</p>
+
+Автор: Dimas
+
+### 13.10.2002 news Новый альбом OLD MAN&#39;S CHILD
+
+<p>В январе 2003 года на Century Media Records выходит новый альбом группы OLD MAN'S CHILD (в составе которой два участника DIMMU BORGIR - гитарист Galder и ударник Nick Barker (также в LOCKUP)) под названием "In Defiance Of Existence". В альбом войдут следующие вещи:</p>
+<p> 01. Felonies Of The Christian Art<BR> 02. Agony Of Fallen Grace <BR> 03. Black Seeds On Virgin Soil <BR> 04. In Defiance Of Existence <BR> 05. Sacrifice Of Vengeance<BR> 06. The Soul Receiver <BR> 07. In Quest Of Enigmatic Dreams<BR> 08. The Underworld Domains<BR> 09. Life Deprived</p>
+<p> Сами музыканты чрезвычайно довольны полученным результатом.</p>
+
+Автор: Dimas
+
+### 20.02.2003 reviews Мастера позёрства
+
+<p>Если был бы такой стиль позер-metal. Old man's Child были бы там неприрекаемыми авторитетами. Вы можете говорить, что позёры Dimmu Borgir и Cradle Of Filth, но Вы ошибаетесь, до такого уровня им ещё далеко. Эмоции от прослушивания этого рода музыки заранее предрешены, всё понятно, Вас будут пугать... Все мелодии 'страшны' до опретточности. Плачущая кровавыми слезами рогатая красавица на обложке, измазанные кровью Galder и Ко. И несмотря на все эти слова, мне эта музыка до безумия нравится, все эти леденящие душу клавиши, звенящие акустические гитары и.т.п. вызывают какой-то детский восторг. Правда, на этот раз группа немного перебрала с horror можно было бы добавить "лирические" мотивы (непонятно откуда взявшийся акустический инструментал в средневековых тонах не в счёт), как на прошлых пластинках.</p>
+
+Автор: Vit Belov
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></p>
+
+Автор: Yermola
+
+### 21.02.2003 news MP3 Downloads...
+
+<p> ANDROMEDA - <a href="http://mp3.centurymedia.com/Andromeda_ReachingDeepWithin_II=I.mp3">&quot;Reaching Deep Within&quot;</a><br> CARNAL FORGE - <a href="http://mp3.centurymedia.com/CarnalForge_Deathblow_TheMoreYouSuffer.mp3">&quot;Deathblow&quot;</a><br> DREAM EVIL - </font></SPAN><SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif"><a href="http://mp3.centurymedia.com/DreamEvil_ChildrenoftheNight_Evilized.mp3">&quot;Children of the Night&quot;</a></font><br> LULLACRY - <a href="http://mp3.centurymedia.com/Lullacry_DontTouchtheFlame_CrucifyMyHeart.mp3">&quot;Don't Touch the Flame&quot;</a><br> NAGLFAR - <a href="http://mp3.centurymedia.com/Naglfar_IAmVengeance_Sheol.mp3">&quot;I Am Vengeance&quot;</a><br> OLD MAN'S CHILD - <a href="http://mp3.centurymedia.com/Oldmanschild_BlackSeedsOnVirginSoil_InDefianceofExistence.mp3">&quot;Black Seeds on Virgin Soil&quot;</a></font><br> POISONBLACK - <a href="http://mp3.centurymedia.com/Poisonblack_LoveInfernal_Escapexstacy.mp3">&quot;Love Infernal</a></font>&quot;<br> RAPTURE - <a href="http://mp3.centurymedia.com/Rapture_Enveloped_SongsfortheWithering.mp3">&quot;Enveloped&quot;</a></font><br> SOLEFALD - <a href="http://mp3.centurymedia.com/Solefald_MontBlancProvidenceCrow_InHarmoniaUniversali.mp3">&quot;Mont Blanc Providence Crow&quot;</a><br> STRAPPING YOUNG LAD - <a href="http://mp3.centurymedia.com/SYL_Devour_SYL.mp3">&quot;Devour&quot;</a></font><br> THRONE OF CHAOS - <a href="http://mp3.centurymedia.com/ThroneOfChaos_JohnnyBDead_Pervertigo.mp3">&quot;Johnny B. Dead&quot;</a></font></p>
+
+Автор: Yermola
+
+### 28.02.2003 reviews Догнать и перегнать DIMMU BORGIR!
+
+<p>Альбом сей, видать, создавался не иначе как под девизом "догоним и перегоним DIMMU BORGIR". Ба, да они даже Николаса Баркера пригласили! Но – что вкусно пахнет не обязательно приятно на вкус. Куцый какой-то альбомчик вышел. Такое впечатление, что Гальдер работал над материалом для "In Defiance of Existence" очень мало и в основном просто "слил" в него идеи, не прошедшие в DIMMU BORGIR. Проще говоря, – забракованные. Да, записано великолепно. Студия Фредман, как никак. Да, сыграно очень хорошо. Но – не впечатляет. Но – неинтересно. Пару раз послушать – и диск на полку. Ширпотреб одним словом.</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></>
+
+Автор: Kai Mathias Stalhammar
+
+### 14.05.2003 reviews Experts of posering
+
+<p>If we have such style as poser-metal. OLD MAN's CHILD would have great authority there. You can say, that DIMMU BORGIR and CRADLE OF FILTH are posers, but you mistake, they are so far from OLD MAN's CHILD level. Emotions from listening for such music is decided beforehand, all is clear. You will be frighten... All melodies are 'terrible' like in operetta. Crying horned beauty with bloody tears, smeared by blood Galder and Co. And Despite of all this words, i like this music very much. Dreadful keyboards, ringing acoustic guitars etc. are exciting enthusiasm. True, in this time band added too many horror elements, i think lyric varitions as on last albums would be more interesting (acoustic instrumental in medieval tones is not counted).</p>
+
+Автор: Vit Belov
+
+### 10.08.2005 news Новый альбом OLD MAN&#39;S CHILD
+
+<P>Новый альбом норвежцев <STRONG>OLD MAN'S CHILD</STRONG> во главе с гитаристом-вокалистом <B>Galder</B> (<B>DIMMU BORGIR</B>), под названием <STRONG>"Vermin"</STRONG> выйдет 18 октября на <STRONG>Century Media Records.</STRONG> Альбом был записан в <STRONG>Studio Fredman,</STRONG> содержит восемь новых вещей и перезаписанную старую вещь 1996 года <STRONG>"Born of the Flickering".</STRONG></P>
+Автор: Dimas
+
+### 26.08.2005 news Новый альбом OLD MAN&#39;s CHILD - подробности
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как мы уже сообщали, новый альбом <STRONG>OLD MAN'S CHILD "Vermin"</STRONG> выйдет 17 октября на <STRONG>Century Media</STRONG>. Альбом был записан в студии <STRONG>Fredman</STRONG>. Трэк-лист:</FONT></P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2005.08/9207.jpg" width=200 align=right border=5>1. <STRONG>Enslaved And Condemned</STRONG> (4:15) <BR>2. <STRONG>The Plague Of Sorrow</STRONG> (4:09) <BR>3. <STRONG>War Of Fidelity</STRONG> (4:19) <BR>4. <STRONG>In Torment's Orbit</STRONG> (5:04) <BR>5. <STRONG>Lord Of Command [Bringer Of Hate]</STRONG> (4:51) <BR>6. <STRONG>The Flames Of Deceit</STRONG> (4:39) <BR>7. <STRONG>Black Marvels Of Death</STRONG> (4:22) <BR>8. <STRONG>Twilight Damnation</STRONG> (4:42) <BR>9. <STRONG>...As Evil Descends</STRONG> (1:11)</P>
+Автор: Vit Belov
+
+### 26.08.2005 news OLD MAN&#39;s CHILD new album
+
+<P><STRONG>OLD MAN'S CHILD</STRONG> will release their new album "<STRONG>Vermin</STRONG>" via <STRONG>Century Media</STRONG> on 17th of October. Album was recorded in <STRONG>Studio Fredman</STRONG>. Track-list:</P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news/2005.08/9208.jpg" width=200 align=right border=5>1. <STRONG>Enslaved And Condemned</STRONG> (4:15) <BR>2. <STRONG>The Plague Of Sorrow</STRONG> (4:09) <BR>3. <STRONG>War Of Fidelity</STRONG> (4:19) <BR>4. <STRONG>In Torment's Orbit</STRONG> (5:04) <BR>5. <STRONG>Lord Of Command [Bringer Of Hate]</STRONG> (4:51) <BR>6. <STRONG>The Flames Of Deceit</STRONG> (4:39) <BR>7. <STRONG>Black Marvels Of Death</STRONG> (4:22) <BR>8. <STRONG>Twilight Damnation</STRONG> (4:42) <BR>9. <STRONG>...As Evil Descends</STRONG> (1:11)</P>
+Автор: Vit Belov
+
+### 05.11.2008 news OLD MAN&#39;S CHILD закончили запись
+
+<P>Новый альбом<STRONG> OLD MAN'S CHILD</STRONG> записан и выйдет в начале 2009 года на<STRONG> Century Media</STRONG>. Ни трэк-лист, ни название альбома пока неизвестны, но известно, что партии барабанов на этой записи исполнил <STRONG>Peter Wildoer</STRONG> (<B itxtvisited="1">DARKANE</B>, <B itxtvisited="1">PESTILENCE</B>).</P>
+Автор: Vit Belov
+
+### 12.02.2009 news OLD MAN&#39;S CHILD назвали альбом
+
+<P>Новый альбом <STRONG>OLD MAN'S CHILD</STRONG> будет называться <STRONG>"Slaves Of The World"</STRONG>.&nbsp;Пластинка выйдет в мае на <STRONG>Century Media</STRONG>.</P>
+Автор: Vit Belov
+
+### 14.02.2009 news Новая песня OLD MAN&#39;S CHILD
+
+<P><STRONG>OLD MAN'S CHILD</STRONG> выложили на свою <STRONG>MySpace</STRONG> страничку заглавную песню с нового альбома <STRONG>"Slaves Of The World".</STRONG></P>
+<P>Ссылка: <A href="http://www.myspace.com/officialoldmanschild">http://www.myspace.com/officialoldmanschild</A></P>
+Автор: Vit Belov
+
+### 30.03.2009 news Трэк-лист OLD MAN&#39;S CHILD
+
+<P>18 мая на <STRONG>Century Media</STRONG> выходит новый альбом <STRONG>OLD MAN'S CHILD</STRONG> <STRONG>"Slaves Of The World". </STRONG>Опубликован трэк-лист:</P>
+<P>01. <B>Slaves Of The World</B><BR>02. <B>Saviours Of Doom</B><BR>03. <B>The Crimson Meadows</B><BR>04. <B>Unholy Foreign Crusade</B><BR>05. <B>Path Of Destruction</B><BR>06. <B>The Spawn Of Lost Creation</B><BR>07. <B>On The Devil's Throne</B><BR>08. <B>Ferden Mot Fienden's Land</B><BR>09. <B>Servants Of Satan's Monastery</B></P>
+Автор: Vit Belov
+
+### 10.04.2009 news Обложка нового OLD MAN&#39;S CHILD
+
+<P>Новейший альбом <STRONG>OLD MAN'S CHILD</STRONG> <STRONG>"Slaves Of The World" </STRONG>выходит в День Пионерии. Обложку можно посмотреть ниже.</P>
+<P>
+<CENTER><IMG height=397 src="/images/news_rus/2009.04/13925.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.04.2009 news OLD MAN&#39;S CHILD и LACUNA COIL выйдут на Mazzar
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Отечественный лэйбл<STRONG> Mazzar Records</STRONG> сообщил, что подписал контракт с <STRONG>Century Media</STRONG> на выпуск новых альбомов<STRONG> LACUNA COIL "Shallow Life"</STRONG> и <STRONG>OLD MAN'S CHILD "Slaves Of The World"</STRONG>. Лицензионные релизы увидят свет уже в мае.</FONT></P>
+Автор: Vit Belov
+
+### 28.05.2009 news OLD MAN&#39;S CHILD не попали в чарты
+
+<P>Новый альбом <STRONG>OLD MAN'S CHILD "Slaves Of The World"</STRONG> продался в первую неделю в Штатах в количестве 1100 копий, что не позволило ему попасть в чарты.</P>
+Автор: Vit Belov
+
+### 07.06.2009 reviews Новое переосмысление классики
+
+<P>А вот пример того, какую музыку никогда не будут слушать в США. Несмотря на все успехи Century Media на заокеанском рынке, новый альбом популярных в Европе норвежцев OLD MAN’S CHILD не проявил себя на этом рынке. Вернее, даже уже не норвежцев, а норвежца. OLD MAN’S CHILD превратился в сольный проект Galder из DIMMU BORGIR.</P>
+<P>При ближайшем рассмотрении обозреваемый альбом показал ещё некоторые причины к низкой своей популярности. За прошедшие четыре года с релиза предыдущего “Vermin” у OMC кардинальным образом изменился стиль. Если в своём позднем творчестве группа являла собой образец мрачного и мелодичного sympho-black-metal, который мог стать саундтрэком к любому не слишком страшному фильму ужасов, то сейчас Galder до минимума сократил ведущие клавишные партии и решил сконцентрироваться на наследии норвежского black-metal. Последнее время многие группы решают сконцентрироваться на наследии, вам не кажется? Видимо, некоторый творческий кризис в тяжёлой музыке чувствуют и сами музыканты, которые теперь пытаются почерпнуть вдохновение в прошедшем. На “Slaves Of The World” музыкант запихнул все возможные направления black-metal. От коренного black-thrash до avant-garde и соответственно sympho. К сожалению, не все его задумки удались. Если вы послушаете перед этим альбомом, например, LACUNA COIL, первые несколько трэков вы отдохнёте душой (это касается, конечно же, любителей тяжёлой музыки). Но затем вам всё больше и больше будет открываться вся противоречивость этой работы. Она не позволит насладиться альбомом. Голова идёт кругом и становится непонятным то, что мы слушаем. Прибавьте к этому практически полное отсутствие ярких и запоминающихся мест, и вы получите достаточно средний, но очень тяжёлый black-metal альбом.</P>
+<P>В заключении хочется отметить, что если вы ничего не поняли из того, что я написал выше, но слушали и радовались предыдущим альбомам этого коллектива, будьте готовы, что “Slaves Of The World” вас разочарует. Былой замогильной мелодичности музыка OLD MAN’S CHILD уже не содержит.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Новый OLD MAN'S CHILD-"In Defiance of Existence"

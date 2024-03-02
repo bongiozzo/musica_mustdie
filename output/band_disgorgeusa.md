@@ -29,6 +29,20 @@ sick and crushing brutal death from California
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.04.2005 news Новости от DISGORGE
+
+<P>Калифорнийские брутальщики <STRONG>DISGORGE</STRONG> (не путайте их с не менее брутальными мексиканцами)&nbsp;завершили работу&nbsp;над своим новым альбомом под названием&nbsp;<B>"Paralells of Infinite Torture"</B>, выход которого ожидается 17 мая через <B>Crash Music Inc.</B> В альбом вошли следующие вещи:<BR>1. <B>Revealed in Obscurity</B><BR>2. <B>Enthroned Abominations (<A href="/samples/d/disgorge_usa/2005_1505.mp3">mp3</A>)</B><BR>3. <B>Atonement</B><BR>4. <B>Abhorrent Desecration of thee Iniquity</B><BR>5. <B>Forgotten Scriptures</B><BR>6. <B>Descending upon Convulsive Devourments</B><BR>7. <B>Condemned to Sufferance</B><BR>8. <B>Parallels of Infinite Torture</B><BR>9. <B>Asphyxiation of thee Oppressed</B><BR>10. <B>Ominous Sigils of Ungodly Ruins</B></P>
+Автор: Dimas
+
+### 03.01.2008 news Умер басист DISGORGE
+
+<P>После долгой борьбы с раком 2 января наступившего года скончался басист американских брутальщиков<STRONG> DISGORGE</STRONG> <STRONG>Ben Marlin.</STRONG></P>
+<P>R.I.P.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

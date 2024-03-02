@@ -37,6 +37,15 @@ Independence day
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.10.2003 news From Beyond put MP-3 online
+
+<P><IMG height=200 alt="" hspace=0 src="/images/news/2003.10/5081.jpg" width=200 align="left" border=0>Czech death metal band FROM BEYOND (<A href="http://www.frombeyond.tk/"><U>www.frombeyond.tk</U></A>) track, titled "I. D. Theory", has been posted online in MP3 format at <A href="http://fb.okraje.com/mp3/frombeyond_idtheory_2003.mp3"><U>http://fb.okraje.com/mp3/frombeyond_idtheory_2003.mp3</U></A>. "I. D. Theory" comes off the group's third album, "Where Hell Begins", due on October 17 through&nbsp; F.B. Productions. The follow-up to "Endtime" (2001) was recorded at Studio Vychodil Music Sound with producer Tomas Jachnik. The complete track listing for "Where<BR>Hell Begins" is as follows: 01. Marche Funebre (intro), 02. Where Hell Begins, 03. Earth Fiasco, 04. Nibiru, 05. Inhuman Eyes, 06. Pain Within, 07. Assassin (TROUBLE cover), 08. I. D. Theory, 09. Progeria Of The Mankind. </P>
+<P>FROM BEYOND will hold a release party for their new album at Apollo 13 club in Prostejov, Czech Republic on October17. <BR><BR></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

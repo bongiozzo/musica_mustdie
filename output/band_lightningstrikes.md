@@ -8,6 +8,39 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.09.2016 news LIGHTNING STRIKES подписались на Pure Legend
+
+<p>Американские ветераны heavy metal <b>LIGHTNING STRIKES</b> подписали контракт с<b> Pure Legend</b>. Группа, существующая с 1985 года, готовит к выходу дебютный альбом. Основатель коллектива вокалист <b>Karpis Maksudian</b> смог собрать хороший состав, к которому на сессионной основе присоединились <b>Tony Martin, Derek Sherinian</b> и<b> Noah</b>. Одноимённый альбом "Lightning Strikes" спродюссировал<b> Roy Z</b>.</p><p><center><img width="600" height="338" src="/images/news_rus/2016.09/29951.jpg" border="0"></p> 
+Автор: Vit Belov
+
+### 12.09.2016 news LIGHTNING STRIKES signed with Pure Legend
+
+<p>Los Angeles, CA-based heavy metal band <b>LIGHTNING STRIKES</b> have signed a worldwide deal with <b>PURE LEGEND RECORDS</b>, a division of PURE STEEL RECORDS, for the release of their forthcoming eponymous debut album.</p><p>“<i>All can say is that we are excited to be part of the Pure Legend Records roster worldwide</i>”, states LIGHTNING STRIKES founder/drummer, Karpis Maksudian. “<i>I think Pure Legend know the market very well and the people at the label will work hard to get ‘Lighting Strikes’ the attention it deserves and needs. We can’t wait to get this album out to all the metal heads who appreciate classic heavy metal.”</i></p><p>Originally formed in 1985, LIGHTNING STRIKES were briefly part of the bustling L.A. scene, releasing a now highly collectable 7” single in 1986, before the band went their separate ways in late 1987 despite drummer Karpis Maksudian’s attempts to carry on with a new line-up.&nbsp; Fast forward to 2011 when Maksudian began to assemble a new version of LIGHTNING STRIKES, featuring bassist Cat Tate (SNEW, RED AGAIN) who was part of the original band, guitarist Rob Math (LEATHERWOLF, PLAYER), and vocalist Nando Fernandes (HANGAR).&nbsp; Adding to the band’s fire power, Maksudian brought in a trio of guest players, keyboardist Derek Sherinian (DREAM THEATER, KISS), as well as Tony Martin (BLACK SABBATH) and Japanese visual kei star Noah (AVANCHICK) on lead vocals.</p><p>‘Lightning Strikes’ was mixed by Roy Z (JUDAS PRIEST, BRUCE DICKINSON, HELLOWEEN) and mastered by Maor Appelbaum (HALFORD, YNGWIE MALMSTEEN, ANVIL).</p><p><center><img width="600" height="338" src="/images/news_rus/2016.09/29951.jpg" border="0"></p> 
+Автор: Vit Belov
+
+### 14.09.2016 news Видео-тизер от LIGHTNING STRIKES
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Как уже сообщалось, в ноябре на<strong> Pure Legend Records</strong> выйдет новый альбом<strong> LIGHTNING STRIKES "Lightning Strikes"</strong>. Ниже можно посмотреть тизер этой работы.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/YWLSahxmU4U" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 14.09.2016 news Teaser of new album by LIGHTNING STRIKES
+
+<p>As previously reported, in November <strong>Pure Legend Records</strong> will release the new album <strong>LIGHTNING STRIKES "Lightning Strikes"</strong>. Below you can see a teaser of this work.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/YWLSahxmU4U" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 17.10.2016 news LIGHTNING STRIKES опубликовали обложку и трек-лист
+
+<p>Как уже сообщалось, новый альбом американской команды <strong>LIGHTNING STRIKES "Lightning Strikes"</strong> выходит на<strong> Pure Legend</strong>. Датой релиза назначено 18 ноября. </p><p>Трек-лист:</p><p>1. VICTIM<br>2. CAN’T CROSS THE RAINBOW<br>3. 301 AD SINS OF OUR FATHERS<br>4. FEAR<br>5. DEATH VALLEY<br>6. BERMUDA TRIANGLE<br>7. DOKI NO SAKURA<br>8. KAMIKAZE<br>9. STAY WITH ME<br>10. OUR LADY<br>11. WE DON’T ROCK ALONE</p><p>&nbsp;<center><img width="400" height="400" src="/images/news_rus/2016.10/30085.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 17.10.2016 news LIGHTNING STRIKES revealed cover and tracklist
+
+<p>As previously reported, the new album of the American band <strong>LIGHTNING STRIKES "Lightning Strikes" </strong>will be released on <strong>Pure Legend</strong>. Release date appointed 18 Nov.</p><p>Track list:</p><p>1. VICTIM<br>2. CAN’T CROSS THE RAINBOW<br>3. 301 AD SINS OF OUR FATHERS<br>4. FEAR<br>5. DEATH VALLEY<br>6. BERMUDA TRIANGLE<br>7. DOKI NO SAKURA<br>8. KAMIKAZE<br>9. STAY WITH ME<br>10. OUR LADY<br>11. WE DON’T ROCK ALONE</p><p>&nbsp;<center><img width="400" height="400" src="/images/news_rus/2016.10/30085.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -51,6 +51,43 @@
 * C группой "Megadeth" James Lomenzo (bass)
 * C группой "Black Label Society" James Lomenzo (bass)
 
+## Публикации
+
+### 29.08.2005 news WHITE LION выпустят концертник
+
+<P><STRONG>WHITE LION</STRONG>, которые теперь называются <STRONG>TRAMP'S WHITE LION,</STRONG> выпускают концертный альбом "<STRONG>Rocking The USA</STRONG>" 24 октября на <STRONG>Frontiers</STRONG>. Микшировал пластинку легендарный <STRONG>Michael Wagener</STRONG>. Состав группы: <STRONG>Mike Tramp</STRONG>: vocals; <STRONG>Jamie Law</STRONG>: guitar (Австралия); <STRONG>Claus Longwood</STRONG>: bass (Дания); <STRONG>Troy P. Farrell</STRONG>: drums (США); <STRONG>Henning Wanner</STRONG>: keyboards (Германия). Трэк-лист:</P>
+<P><IMG height=257 alt="" hspace=0 src="/images/news_rus/2005.08/9222.jpg" width=257 align=right border=5>Cd1: <BR>1.<STRONG> Lights And Thunder</STRONG><BR>2. <STRONG>Hungry<BR></STRONG>3. <STRONG>Lonely Nights</STRONG><BR>4. <STRONG>Love Don’t Come Easy</STRONG><BR>5. <STRONG>Broken Heart<BR></STRONG>6. <STRONG>Fight To Survive</STRONG><BR>7. <STRONG>Cry For Freedom</STRONG><BR>8. <STRONG>You’re All I Need<BR></STRONG>9. <STRONG>Little Fighter</STRONG></P>
+<P>Cd2: <BR>1. <STRONG>It’s Over<BR></STRONG>2. <STRONG>Living On The Edge<BR></STRONG>3. <STRONG>Tell Me<BR></STRONG>4. <STRONG>Wait<BR></STRONG>5. <STRONG>Lady Of The Valley<BR></STRONG>6. <STRONG>When The Children Cry<BR></STRONG>7. <STRONG>Radar Love</STRONG></P>
+Автор: Vit Belov
+
+### 29.08.2005 news WHITE LION to release live-album
+
+<P><STRONG>Frontiers Records</STRONG> is pleased to announce the worldwide release of <STRONG>TRAMP’S WHITE LION</STRONG> double live album “<STRONG>Rocking The USA</STRONG>” on October the 24th 2005. <STRONG>TRAMP’S WHITE LION</STRONG> is a classic rock band, set to represent the music and style of <STRONG>WHITE LION</STRONG> in the new millennium. <STRONG>Mike Tramp</STRONG> singer, songwriter and founder of <STRONG>WHITE LION</STRONG> has put up a new lineup made of fresh talent from every corner of the world, but again with the sole intention of staying true to the sound of White Lion and the great songs of the band. Line -up: <STRONG>Mike Tramp</STRONG>: vocals; <STRONG>Jamie Law</STRONG>: guitar (Australia); <STRONG>Claus Longwood</STRONG>: bass (Denmark); <STRONG>Troy P. Farrell</STRONG>: drums (USA); <STRONG>Henning Wanner</STRONG>: keyboards (Germany). Track-list:</P>
+<P><IMG height=257 alt="" hspace=0 src="/images/news/2005.08/9223.jpg" width=257 align=right border=5>Cd1: <BR>1.<STRONG> Lights And Thunder</STRONG><BR>2. <STRONG>Hungry<BR></STRONG>3. <STRONG>Lonely Nights</STRONG><BR>4. <STRONG>Love Don’t Come Easy</STRONG><BR>5. <STRONG>Broken Heart<BR></STRONG>6. <STRONG>Fight To Survive</STRONG><BR>7. <STRONG>Cry For Freedom</STRONG><BR>8. <STRONG>You’re All I Need<BR></STRONG>9. <STRONG>Little Fighter</STRONG></P>
+<P>Cd2: <BR>1. <STRONG>It’s Over<BR></STRONG>2. <STRONG>Living On The Edge<BR></STRONG>3. <STRONG>Tell Me<BR></STRONG>4. <STRONG>Wait<BR></STRONG>5. <STRONG>Lady Of The Valley<BR></STRONG>6. <STRONG>When The Children Cry<BR></STRONG>7. <STRONG>Radar Love</STRONG></P>
+Автор: Vit Belov
+
+### 20.12.2007 news WHITE LION на Frontiers
+
+<P><STRONG>Frontiers</STRONG> заключили соглашение с <STRONG>WHITE LION</STRONG>, которые 14 марта выпустят свой первый альбом за 16 лет.</P>
+Автор: Vit Belov
+
+### 11.01.2008 news Возвращение WHITE LION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=237 alt="" hspace=0 src="/images/news_rus/2008.01/12131.jpg" width=237 align=right border=5>Новый альбом<STRONG> WHITE LION</STRONG> <STRONG>"Return of the Pride" </STRONG>выходит 14 марта на <STRONG>Frontiers</STRONG>. Трэк-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <B>Sangre de Cristo</B><BR>02. <B>Dream</B><BR>03. <B>Live Your Life</B><BR>04. <B>Set Me Free</B><BR>05. <B>I Will</B><BR>06. <B>Battle at Little Big Horn</B><BR>07. <B>Never Let You Go</B><BR>08. <B>Gonna Do It My Way</B><BR>09. <B>Finally See the Light</B><BR>10. <B>Let Me Be Me</B><BR>11. <B>Take Me Home</B> (European Bonus Track)<BR></FONT></P>
+Автор: Vit Belov
+
+### 08.12.2011 news Супергруппа HAIL! в Москве 11 декабря
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.12/22281.jpg" width=390 height=520>Уже в это воскресенье в московском клубе <STRONG>"Hleb"</STRONG> состоиться выступление супергруппы <STRONG>HAIL!</STRONG>, в состав которой входят <STRONG>Paul Bostaph</STRONG> (ударные, <STRONG>FORBIDDEN</STRONG>, <STRONG>SLAYER</STRONG>, <STRONG>EXODUS</STRONG>, <STRONG>TESTAMENT</STRONG>), <STRONG>Glen Drover</STRONG> (гитара, <STRONG>EIDOLON</STRONG>, <STRONG>MEGADETH</STRONG>, <STRONG>KING DIAMOND</STRONG>), <STRONG>Tim "Ripper" Owens</STRONG> (вокал, <STRONG>JUDAS PRIEST</STRONG>,<STRONG> ICED EARTH</STRONG>, <STRONG>YNGWIE MALMSTEEN</STRONG>) и <STRONG>James Lomenzo</STRONG> (бас, <STRONG>WHITE LION</STRONG>, <STRONG>BLACK</STRONG> <STRONG>LABEL SOCIETY</STRONG>, <STRONG>MEGADETH</STRONG>, <STRONG>DAVID LEE ROTH</STRONG>). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На своих концертах группа <STRONG>HAIL!</STRONG> исполняет хиты различных металлических коллективов первой величины. Песни, которые поклонники тяжелой музыки любят с детства и знают наизусть.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стал известен сет-лист, который группа отыграла в городе Иркутск 2 декабря:</FONT></P>
+<P>01. <STRONG>Stand Up & Shout</STRONG> (<STRONG>DIO</STRONG>)<BR>02. <STRONG>Flight Of Icarus</STRONG> (<STRONG>IRON MAIDEN</STRONG>)<BR>03. <STRONG>Seek & Destroy</STRONG> (<STRONG>METALLICA</STRONG>)<BR>04. <STRONG>World Painted Blood</STRONG> (<STRONG>SLAYER</STRONG>)<BR>05.<STRONG> Wake Up Dead</STRONG> (<STRONG>MEGADETH</STRONG>)<BR>06. <STRONG>Mob Rules</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>07. <STRONG>Burn In Hell</STRONG> (<STRONG>JUDAS PRIEST</STRONG>)<BR>08. <STRONG>Another Thing Coming</STRONG> (<STRONG>JUDAS PRIEST</STRONG>)<BR>09. <STRONG>Symphony Of Destruction</STRONG> (<STRONG>MEGADETH</STRONG>)<BR>10. <STRONG>Heaven & Hell</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>11. <STRONG>Walk</STRONG> (<STRONG>PANTERA</STRONG>)<BR>12. <STRONG>War Pigs</STRONG> (<STRONG>BLACK SABBATH</STRONG>)<BR>----------<BR>13. <STRONG>Ace Of Spades</STRONG> (<STRONG>MOTORHEAD</STRONG>)<BR>14. <STRONG>Creeping Death</STRONG> (<STRONG>METALLICA</STRONG>)<BR>15. <STRONG>Peace Sells</STRONG> (<STRONG>MEGADETH</STRONG>)</P>
+<P>Адрес клуба <STRONG>"Hleb"</STRONG>: г. Москва, Звенигородское шоссе, д. 11</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### White Lion

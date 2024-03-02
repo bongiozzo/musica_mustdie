@@ -34,6 +34,33 @@ Castle Of The Stars
 
 * C группой "Chaosbreed" Nalle Osterman
 
+## Публикации
+
+### 12.02.2001 news Второй альбом Gandalf
+
+<p>С сегодняшнего дня в продаже находится второй альбом финнских death-металлеров Gandalf - "Rock Hell". Трек-лист выглядит следующим образом: L8X Queen, One More For The Dead, Morning Sun, Human Value Zero, The Dragon, Geysir, Nightderanger, Live To Suffer, Dead Man's Hand, Castle Of The Stars. Также диск содержит video на трек Morning Sun.</p>
+
+Автор: Yermola
+
+### 12.02.2001 news Rock Hell on sale
+
+<p>Finnish deathsters Gandalf realised their second "Rock Hell" album. Tracklisting is as follows: L8X Queen, One More For The Dead, Morning Sun, Human Value Zero, The Dragon, Geysir, Nightderanger, Live To Suffer, Dead Man's Hand, Castle Of The Stars. It also included a cd-rom video for the track Morning Sun. For Entombed and Sentenced fans hardly recommended.</p>
+
+Автор: Yermola
+
+### 27.04.2002 news Gandalf распался!
+
+<p>Финские death рокеры Gandalf объявили о своём распаде. После девяти лет существования и двух альбомов. Nalle Osterman - барабанщик и лидер коллектива, объяснил это противоречиями, которые невозможно устранить. В настоящее время Nalle собирается переосмыслить своё отношение к музыкальному бизнесу и думает, что делать дальше.</p>
+
+Автор: Vit Belov
+
+### 27.04.2002 news GANDALF Split Up!
+
+<p>Finnish “death rockers” GANDALF have split up after a nine-year run that saw the group release two full-length albums, 1998's Deadly Fairytales and 2001's Rock Hell. Drummer and founding member Nalle Цsterman has issued the following statement confirming the band's break-up:<BR> There was an unwritten bond between our singer Jari and our guitarist Timo that if anyone of us leaves then the band can't continue. Well, I have left the band I formed. Right now I will re-evaluate my relationship with the music business and undertake necessary action in order to start enjoying life again.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Кто-нибудь слышал GANDALF?

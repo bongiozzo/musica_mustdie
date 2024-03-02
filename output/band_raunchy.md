@@ -91,6 +91,325 @@ Band photos by Jappe Gudmundsen.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.10.2003 news RAUNCHY закончили запись альбома
+
+<P>Датская группа <B>RAUNCHY</B> записала 12 трэков для своего нового альбома <B>"Confusion Bay"</B>, один из которых - ковер-версия <B>Faith No More "From Out Of Nowhere"</B>. Уже известен трэклист:<BR>01. Join The Scene<BR>02. I Get What I See<BR>03. Summer Of Overload<BR>04. Watch Out<BR>05. Nine - Five<BR>06. Show Me Your Real Darkness<BR>07. Confusion Bay<BR>08. The Devil<BR>09. Insane<BR>10. Morning Rise And A Friday Night<BR>11. Bleeding Pt. 2<BR>12. From Out Of Nowhere (FAITH NO MORE cover - Scandinavian bonus)</P>
+<P>Релиз альбома состоится 9 февраля на <B>Nuclear Blast Records</B>.</P>
+Автор: Darkfall
+
+### 08.03.2004 reviews Вот так могли бы звучать новые опусы от IN FLAMES и SOILWORK
+
+<DIV><I><B>RAUNCHY</B> -&nbsp;датская группа, которая точно соответствует направлению, на которое ориентируется Nuclear Blast и другие модные фирмы. </I></DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Modern metal - под это определение можно подогнать как <B>MESHUGGAH, MNEMIC</B>, так и <B>RAUNCHY</B>. И если первые две&nbsp;играют довольно сложный материал с современным звуком, то R<B>AUNCHY</B> вплотную приближаются к поп-музыке. Поп-металл-музыке... Звучание группы (producer <B>Jacob Hansen</B>)&nbsp;достаточно тяжёлое, а вот структура песен просто-таки попсовая. Постоянные душещипательные напевы, клавишные проигрыши...</DIV>
+<DIV>&nbsp;</DIV>
+<DIV>Кстати, <B>SOILWORK</B> и <B>IN FLAMES</B> двигаются в этом направлении. Припевы, исполненные чистым вокалом, на их последних работах - это и есть <B>RAUNCHY</B>. Если довести до бесконечности часть этих припевов (к чему и идут шведы), мы получим то, что датчане играют уже сейчас. Так что, вполне вероятно, я рецензирую сегодня музыку будущего, ведь тот же <B>IN FLAMES</B> вряд ли продастся маленьким тиражом. По этой причине я прислушался повнимательнее к&nbsp;<B>'Confusion Bay'</B> и могу&nbsp;определить альбом, как&nbsp;alternative-melodic-death-metal или, например, Nu-melodic-death-metal.</DIV>
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 26.01.2005 news RAUNCHY расстались с Nuclear Blast Records
+
+<P>Датская группа&nbsp;<B>RAUNCHY</B> официально завершила сотрудничество с <STRONG>Nuclear Blast Records,</STRONG> где вышли их два альбома&nbsp;(<B>"Velvet Noise"</B> и <B>"Confusion Bay"</B>). Подробности этого решения недоступны. Сейчас, музыканты находятся в поисках нового лейбла.</P>
+<P>Группа рассчитывает выпустить новый альбом в начале следующего года.</P>
+Автор: Dimas
+
+### 26.01.2005 news RAUNCHY is looking for new record label
+
+<P><STRONG>RAUNCHY</STRONG> have quited from <STRONG>Nuclear Blast</STRONG> and looking for a new label. Statement from their official site:</P>
+<P>"<EM>We have to inform you that <STRONG>RAUNCHY</STRONG> is no longer assoiciated with <STRONG>Nuclear Blast Records</STRONG>. We would like to thank <STRONG>Nuclear Blast Records</STRONG> for their work regarding our two albums. No further comments will be available. </EM></P>
+<P><EM>We are now looking forward to be working with another record company, who believes in <STRONG>RAUNCHY</STRONG>, and who has the right capacity, understanding, and musical dedication to take care of our music. If everything falls into place within the coming months, our third »baby« will see the light of day before Christmas or early spring next year</EM>. "</P>
+Автор: Vit Belov
+
+### 01.06.2005 news RAUNCHY записали кавер на песню FAITH NO MORE
+
+<P><STRONG>RAUNCHY</STRONG> представили на суд слушателей свою версию песни <STRONG>FAITH NO MORE "From Out Of Nowhere</STRONG>". Композиция войдёт на новый пока не названный альбом коллектива. Место его выхода тоже пока не обнародовано. Напомним, что предыдущей "конюшней" <STRONG>RAUNCHY</STRONG> был <STRONG>Nuclear blast</STRONG>. </P>
+<P>Качать здесь: <A href="/samples/r/raunchy/2005_1309.mp3">http://musica.mustdie.ru/samples/r/raunchy/2005_1309.mp3</A></P>
+Автор: Vit Belov
+
+### 12.12.2005 news RAUNCHY на Lifeforce
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=200 alt="" hspace=0 src="/images/news_rus/2005.12/9838.jpg" width=200 align=right border=5>Ушедшие недавно с <STRONG>Nuclear Blast RAUNCHY</STRONG> подписали контракт с <STRONG>Lifeforce Records</STRONG>. Их новый альбом "<STRONG>Death Pop Romance</STRONG>" выйдет в Европе 20 февраля. Трэк-лист:</FONT></P>
+<P>01. <B>This Legend Forever</B> <BR>02. <B>Abandon Your Hope</B> <BR>03. <B>Phantoms</B> <BR>04. <B>The Curse Of Bravery</B> <BR>05. <B>Remembrance</B> <BR>06. <B>Live The Myth</B> <BR>07. <B>City Of Hurt</B> <BR>08. <B>Persistence</B> <BR>09. <B>The Velvet Remains</B> <BR>10. <B>Farewell To Devotion</B></P>
+Автор: Vit Belov
+
+### 30.04.2009 news Новое видео RAUNCHY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео от <STRONG>RAUNCHY</STRONG> на песню <STRONG>"Warriors" </STRONG>можно посмотреть ниже:</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/I5T3YwZLxb0&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/I5T3YwZLxb0&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.12.2009 news RAUNCHY готовятся к студии
+
+<P>После завершения концертного сезона в 2009 году <STRONG>RAUNCHY</STRONG> готовятся войти в студию к <STRONG>Jacob Hansen</STRONG> для записи пятого альбома. Пластинка должна выйти в июне 2010 года.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

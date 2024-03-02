@@ -75,6 +75,15 @@ T.Lewinski - Keyboards
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.11.2002 reviews &quot;Pure Underground Zeta Reticulian Black Metal&quot;?!
+
+<p>“Pure Underground Zeta Reticulian Black Metal”. Hmm… I can’t but wonder what does this “Zeta Reticuli” thing has in common with both underground and BM movement. As far as I recall, it appears to be an appellation of a certain galaxy or probably just a single star taken either from “Star Wars” or “The Alien” (sorry, don’t remember exactly). Sounds pretty grim, transmitting the ambiences this work is soaked with, quite perfectly, though. Unlike “Imperium” and “An Eternal Curse Of The Pagan Godz”, the former works by ARKONA, this one doesn’t feature synth-lines (which, honestly speaking, previously were very few in number anyway). Nor is there a single word in English. “Zeta Reticuli” also differs from both of the aforementioned CDs in terms of sound execution. Fortunately, for better. The production is quite thick and definitely not as raw. Seems like this offering has been recorded at pro- or perhaps just semi-pro studio with fine equipment and skillful sound engineer. Musically, it’s fast-paced atmospheric _and_ brutal (hmm, a rhetorical question: if true black metal is _not_ brutal, then is it still true black metal?) BM. Rather monotonous, so a bit more variety would be just fine. “Zeta Reticuli” is enough bewitching as it is, though. Thousand hails go out to the drummer, whilst vocals could be done a bit louder in the mix for here they sound close to whispering at times. Nevertheless, those who value pure black metal (this definition DOES NOT imply poor musicianship and one-and-only-riff-based-songs), should check this one out.</p>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

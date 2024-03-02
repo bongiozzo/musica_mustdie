@@ -23,6 +23,9 @@ ex-HANOI ROCKS
 
 * C группой "Hanoi Rocks" Michael Monroe (vocal)
 
+## Публикации
+
+
 ## Обсуждения
 
 

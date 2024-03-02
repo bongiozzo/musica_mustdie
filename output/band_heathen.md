@@ -34,6 +34,99 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.03.2009 news Реактивированные HEATHEN выпустят &quot;Эволюцию Хаоса&quot;
+
+<P>Новый альбом американских трэшеров<STRONG> HEATHEN</STRONG> <STRONG>"The Evolution of Chaos" </STRONG>выйдет в этом году на <STRONG>Mascot</STRONG>. </P>
+<P>
+<CENTER><IMG height=290 src="/images/news_rus/2009.03/13795.jpg" width=300 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.05.2009 news Новый альбом HEATHEN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Реактивированные трэшеры<STRONG> HEATHEN</STRONG> выпустят свой новый альбом <STRONG>"The Evolution Of Chaos" </STRONG>20 июля на <STRONG>Mascot</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Dying Season</B><BR>02. <B>Control By Chaos</B><BR>03. <B>No Stone Unturned</B><BR>04. <B>Arrows Of Agony</B><BR>05. <B>Fade Away</B><BR>06. <B>A Heroe's Welcome</B><BR>07. <B>Undone</B><BR>08. <B>Bloodkult</B><BR>09. <B>Red Tears Of Disgrace</B><BR>10. <B>Silent Nothingness</B></P>
+Автор: Vit Belov
+
+### 12.06.2009 news HEATHEN передвинули альбом
+
+<P>Новый альбом <STRONG>HEATHEN</STRONG>, анонсированный на июль, передвинут на конец года. Группа не успела выполнить сведение.</P>
+Автор: Vit Belov
+
+### 19.11.2009 news Дата релиза HEATHEN
+
+<P><STRONG>HEATHEN</STRONG> назначили дату релиза для своего "ре-юнион" альбома <STRONG>"The Evolution Of Chaos". </STRONG>Пластинка, релиз которой несколько раз переносился, выйдет теперь 25 января на <STRONG>Mascot Records</STRONG>. </P>
+<P>"<EM>Мы приносим извинения всем нашим фанатам за столь длительную задержку. Мы не могли передать материал на Mascot Records до тех пор, пока он не будет соответствовать высочайшим стандартам HEATHEN</EM>", - заявила группа. </P>
+<P>В настоящее время в составе группы: <STRONG>Lee Altus</STRONG> (guitar; <B>EXODUS</B>), <B>Kragen Lum</B> (guitar; <B>PROTOTYPE</B>), <B>Dave White</B> (vocals), <B>Jon Torres</B> (bass; <B>ANGELWITCH</B>) и <STRONG>Darren Minter </STRONG>(drums).</P>
+Автор: Vit Belov
+
+### 18.01.2010 news Две новых песни HEATHEN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Две новых песни <STRONG>HEATHEN</STRONG> <STRONG>"Dying Season"</STRONG>&nbsp;и <STRONG>"Control By Chaos" </STRONG>можно послушать на <STRONG>MySpace</STRONG> группы: <A href="http://www.myspace.com/heathenmetal">http://www.myspace.com/heathenmetal</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Оба трэка попадут на новый альбом "трэшеров" <STRONG>The Evolution Of Chaos".</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 13.01.2011 news Jason VieBrooks в HEATHEN
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18161.jpg" width=282 height=368>Американские трэшеры&nbsp;<B itxtvisited="1">HEATHEN </B>взяли в свой состав&nbsp;басиста Джейсона ВайБрукса (<B itxtvisited="1">Jason VieBrooks</B>, ex-<STRONG>GRIP INC.,</STRONG> на фото), после того, как их покинул&nbsp;Джон Торрес (<B itxtvisited="1">Jon Torres</B>). Новый состав группы впервые выйдет на сцену 4 февраля в клубе <STRONG>Madhouse</STRONG> (Сан-Франциско), а месяцем позже отправится в европейский тур, совместно с&nbsp;<B itxtvisited="1">OVERKILL</B>&nbsp;и <B itxtvisited="1">DESTRUCTION</B>.<BR itxtvisited="1"><BR itxtvisited="1">Текущий состав<STRONG> HEATHEN</STRONG>:<BR itxtvisited="1"><BR itxtvisited="1"><B itxtvisited="1">David White</B> - Vocals<BR itxtvisited="1"><B itxtvisited="1">Lee Altus</B> - Guitar<BR itxtvisited="1"><B itxtvisited="1">Kragen Lum</B> - Guitar<BR itxtvisited="1"><B itxtvisited="1">Jason VieBrooks</B> - Bass<BR itxtvisited="1"><B itxtvisited="1">Darren Minter</B> - Drums<BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 16.01.2011 news Изменения в составе HEATHEN - разъяснения от группы
+
+<P>Группа <STRONG>HEATHEN</STRONG> опубликовала заявление относительно недавно просочившихся слухов о замене своего&nbsp;басиста Джона Торреса (<STRONG>Jon Torres</STRONG>)&nbsp;на Джейсона Вайбрукса (<STRONG>Jason VieBrooks</STRONG>):</P>
+<P><EM>"Недавно на сайте <STRONG>Blabbermouth</STRONG> появилась новость об изменениях в составе <STRONG>HEATHEN</STRONG>. Это сообщение не было официальным пресс-релизом&nbsp;опубликованным самой группой или ее менеджментом и поэтому требует пояснения.&nbsp;На данный&nbsp;момент басист Джон Торрес (<STRONG>Jon Torres</STRONG>) остается участником <STRONG>HEATHEN</STRONG>. Мы обсуждали с Джоном лишь его отсутствие во время европейского тура, чтобы он смог сфокусировать внимание на своём здоровье,&nbsp;надеясь что в будущем он снова вернется в группу для дальнейшей работы.</EM></P>
+<P><EM>Группа рада вновь заполучить в состав бывшего участника Джейсона Вайбрукса (<STRONG>Jason VieBrooks</STRONG>), для предстоящего тура с <STRONG>OVERKILL</STRONG> и <STRONG>DESTRUCTION</STRONG> в марте, но он не будет постоянным участником команды.</EM></P>
+<P><EM>Мы с нетерпением ждем всех вас&nbsp;на "пробном" выступлении в Сан-Франциско 4 февраля, а также во время тура по Европе в марте."</EM></P>
+Автор: Headcrusher
+
+### 16.01.2011 news Изменения в составе HEATHEN - разъяснения от группы
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.01/18205.jpg" width=450 height=293> 
+<P></P>
+<P>Группа <STRONG>HEATHEN</STRONG> опубликовала заявление относительно недавно просочившихся слухов о замене своего&nbsp;басиста Джона Торреса (<STRONG>Jon Torres</STRONG>, второй справа)&nbsp;на Джейсона Вайбрукса (<STRONG>Jason VieBrooks</STRONG>):</P>
+<P><EM>"Недавно на сайте <STRONG>Blabbermouth</STRONG> появилась новость об изменениях в составе <STRONG>HEATHEN</STRONG>. Это сообщение не было официальным пресс-релизом&nbsp;опубликованным самой группой или ее менеджментом и поэтому требует разъяснения.&nbsp;На данный&nbsp;момент басист Джон Торрес (<STRONG>Jon Torres</STRONG>) остается участником <STRONG>HEATHEN</STRONG>. Мы обсуждали с Джоном лишь его отсутствие во время европейского тура, чтобы он смог сфокусировать внимание на своём здоровье,&nbsp;надеясь что в будущем он снова вернется в группу.</EM></P>
+<P><EM>Группа рада вновь заполучить в состав бывшего участника Джейсона Вайбрукса (<STRONG>Jason VieBrooks</STRONG>), для предстоящего тура с <STRONG>OVERKILL</STRONG> и <STRONG>DESTRUCTION</STRONG> в марте, но он не будет постоянным участником команды.</EM></P>
+<P><EM>Мы с нетерпением ждем всех вас&nbsp;на "пробном" выступлении в Сан-Франциско 4 февраля, а также во время тура по Европе в марте."</EM></P></CENTER>
+Автор: Headcrusher
+
+### 14.09.2011 news Концерт в честь бракосочетания Гэри Холта (EXODUS) и Лизы Пертикон
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.09/21075.jpg" width=450 height=259> 
+<P></P>
+<P>В честь предстоящего бракосочетания Гэри Холта (<STRONG>Gary Holt</STRONG>)&nbsp;и Лизы Пертикон (<STRONG>Lisa Perticone</STRONG>), компании <STRONG>Iron Fist Circle Productions</STRONG> и <STRONG>Mandown Productions</STRONG> представляют вечеринку, получившую название <STRONG>"Holty Matrimony"</STRONG>. На данном мероприятии молодожёнов поздравят: <STRONG>HEATHEN</STRONG>, <STRONG>SKINLAB</STRONG>, <STRONG>ATTITUDE ADJUSTMENT</STRONG>, <STRONG>MIDNIGHT CHASER</STRONG>,<STRONG> SEVERED FIFTH</STRONG>, <STRONG>COFFIN HUNTER</STRONG>, <STRONG>MAD AT SAM</STRONG>, <STRONG>DEADLANDS</STRONG> и <STRONG>ANTI-MORTEM</STRONG>. А главной группой вечера станут сами <STRONG>EXODUS</STRONG> во главе с Гэри Холтом.</P>
+<P>Мероприятие пройдёт в субботу, 24 сентября в 18:00 в клубе <STRONG>The Avalon</STRONG> города&nbsp;Santa Clara (Калифорния, С.Ш.А.). Стоимость билетов: $25 в предварительной продаже и&nbsp;$30 в день концерта.</P>
+<P>Информация на сайте клуба: <A href="http://nightclubavalon.inticketing.com/events/160606">http://nightclubavalon.inticketing.com/events/160606</A></P>
+<P>На&nbsp;данный момент&nbsp;<STRONG>Gary Holt</STRONG> воспитывает двух дочерей от предыдущих связей, а&nbsp;<STRONG>Perticone </STRONG>- дочь-подростка. Сейчас пара проживает в городе Pinole, штат Калифорния.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.09/21074.jpg" width=400 height=618> 
+<P></P></CENTER></CENTER>
+Автор: Headcrusher
+
+### 17.01.2012 news Фестиваль &quot;BRUTAL ASSAULT&quot; в 2012 году
+
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.01/22676.png" width=400 height=220> 
+<P></P>
+<P>Стали известны первые участники грядущего фестиваля <STRONG>BRUTAL ASSAULT</STRONG>, который состоится с 9 по 11 августа 2012 в местечке под названием <STRONG>Josefov</STRONG> (Чехия). Выступления таких групп как <STRONG>IMMORTAL</STRONG>, <STRONG>MOONSPELL</STRONG>, <STRONG>HEAVEN SHALL BURN</STRONG>, <STRONG>PARADISE LOST</STRONG>, <STRONG>TEXTURES</STRONG>, <STRONG>INCANTATION</STRONG>, <STRONG>VIRUS</STRONG>, <STRONG>ARKONA</STRONG>, <STRONG>GENERAL SURGERY</STRONG> и <STRONG>CATTLE DECAPITATION</STRONG> можно будет увидеть в стенах cтарой армейской крепости&nbsp;будующим летом.&nbsp;</P>
+<P>Для получения более подробной информации, посетите сайт фестиваля: <A href="http://www.brutalassault.cz/">www.brutalassault.cz</A>.</P>
+<P>В фестивале также примет участие реактивированная легенда индустриального металла - группа <STRONG>MINISTRY</STRONG>, в состав которой входят:&nbsp;<STRONG>Al Jourgensen</STRONG>, <STRONG>Mike Scaccia</STRONG> (<STRONG>RIGOR MORTIS</STRONG>), <STRONG>Tommy Victor</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>Aaron Rossi</STRONG> (<STRONG>PRONG</STRONG>), <STRONG>John Bechdel</STRONG> (<STRONG>PRONG</STRONG>) и <STRONG>Tony Campos</STRONG> (<STRONG>STATIC-X</STRONG>). Группа представит свой новый альбом <STRONG>"Relapse"</STRONG>, выходящий 30 марта.&nbsp;</P>
+<P>Другими бандами, подтвердившими своё участие, стали легендарный норвежский коллектив <STRONG>ARCTURUS</STRONG> и финские мелодик детсеры &nbsp;<STRONG>NORTHER</STRONG>.</P>
+<P>Норвежцы&nbsp;<STRONG>DIMMU BORGIR</STRONG>, немецкие пионеры трэша <STRONG>SODOM</STRONG>, американцы&nbsp;<STRONG>THE BLACK DAHLIA MURDER</STRONG>, канадские прогрессивщики <STRONG>PROTEST THE HERO</STRONG> и&nbsp;легенды трэша <STRONG>HEATHEN</STRONG>,&nbsp;&nbsp;так же, отыграют свои сеты на фестивале.</P>
+<P>После двух летнего отсутствия, в состав фестиваля возвращается и&nbsp;американская hardcore/metal группа <STRONG>CONVERGE</STRONG>!</P>
+<P>Билеты на фестиваль уже поступили в предварительную продажу.</P></CENTER>
+Автор: Headcrusher
+
+### 15.04.2012 news HEATHEN на Nuclear Blast
+
+<P><IMG height=273 alt="" hspace=0 src="/images/news_rus/2012.04/23503.jpg" width=475 align=right border=0>Ещё одни представители школы Bay Area Thrash Metal <STRONG>HEATHEN</STRONG> заключили контракт с <STRONG>Nuclear Blast</STRONG>. Состав группы:</P>
+<P><STRONG>David White</STRONG> - Vocals<BR itxtNodeId="26"><B itxtHarvested="0" itxtNodeId="25">Lee Altus</B> - Guitar<BR itxtNodeId="24"><B itxtHarvested="0" itxtNodeId="23">Kragen Lum</B> - Guitar<BR itxtNodeId="22"><B itxtHarvested="0" itxtNodeId="21">Jason VieBrooks</B> - Bass<BR itxtNodeId="20"><B itxtHarvested="0" itxtNodeId="19">Darren Minter</B> - Drums</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

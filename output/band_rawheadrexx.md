@@ -52,6 +52,43 @@ DANY LOEBLE - DRUMS
 
 * C группой "Helloween" Dani Loble
 
+## Публикации
+
+### 23.06.2003 reviews Хэллорэестый Гаммавин? Или Грэйвмэйденистый Айрондиггер?
+
+<p>Второй альбом серьёзных дядек из Германии, которые, похоже, искренне верят, что делают страшную и агрессивную музыку - сужу по фотографиям музыкантов ( почти блэкушники, умытые только) и картинке на буклете – жуткие монстры… Книга Мертвых и огонь… огонь вокруг.. прям ад какой-то… бред для тринадцатилетних детей. Да… павер, подобный тому, который делают Хэлловин и Гамма Рэй очень брутален. :)) Вроде все правильно. Мощная ритм секция, пиликающая гитара, вокалист - недобрюсдиккинсон, серенький, но местами не сильно плохой… а иногда, в чудные мгновения, даже очень похожий. А слушать все это не интересно. Скучные, избитые мелодии не остаются в голове. На всем альбоме две приятные вещички. Две балладки. What If и Six Feet From The Edge, ну и, плюс, открывающая альбом прелюдия. Абсолютно вторичный продукт. Обсасывание давно обсосанных косточек. Но это такое... эстетичное обсасывание... :)) Вполне возможно, преданному, упёртому (нужное подчеркнуть) фанату павера этот альбом понравится. Особенно на фоне появляющихся как грибы картун-металических и симфо-карамельных альбомов всяких финнов-итальянцев. Но меня он усыплял.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Дофф
+
+### 30.09.2004 news RAWHEAD REXX потеряли гитариста
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>RAWHEAD REXX Rudiger Fleck</STRONG> покинул группу. Замена будет объявлена после записи альбома.</FONT></P>
+Автор: Vit Belov
+
+### 30.09.2004 news Guitar player left RAWHEAD REXX
+
+<P>The long time <STRONG>RAWHEAD REXX</STRONG> guitar player <STRONG>Rьdiger Fleck</STRONG> has left the band right after the Summer Breeze festival. The band doesnґt know if they will look after a replacement or will continue as a trio:</P>
+<P>“<EM>We’ll deicide that after the sessions for the upcoming album</EM>.”</P>
+Автор: Vit Belov
+
+### 12.02.2005 news HELLOWEEN заменили барабанщика
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Stefan Schwarzmann</STRONG> покинул <STRONG>HELLOWEEN</STRONG>. Бывший барабанщик <STRONG>UDO </STRONG>и <STRONG>RUNNING WILD</STRONG> больше не в группе, из-за музыкальных разногласий. <STRONG>Stefan</STRONG> согласился остаться в коллективе пока не будет найдена замена. И вот она найдена - это <STRONG>Dani Loble</STRONG> из <STRONG>RAWHEAD REXX</STRONG>. Он уже закончил запись партий для нового альбома.</FONT></P>
+Автор: Vit Belov
+
+### 12.02.2005 news Stefan Schwarzmann splited up with HELLOWENN
+
+<P><STRONG>HELLOWEEN</STRONG> and drummer <STRONG>Stefan Schwarzmann</STRONG> have parted ways amicably. The former <STRONG>RUNNING WILD</STRONG> & <STRONG>UDO </STRONG>drummer, who played the drums during the pumpkin heads' <STRONG>RABBIT DON`T COME EASY</STRONG> world tour, will not be playing for the Hamburg based band any longer. During the tour it became apparent to <STRONG>Stefan</STRONG> and to the rest of the members of <STRONG>Helloween</STRONG> that, although things were going extremely well on the human side of things, <STRONG>Stefan</STRONG> and the band did not entirely share the same views musically. Stefan decided to stay to help out the band during their pre-production until a replacement was found.</P>
+<P><STRONG>Dani Lцble</STRONG>, highly acclaimed ex-drummer of <STRONG>RAWHEAD REXX</STRONG> turned out to be the perfect man for <STRONG>HELLOWEEN</STRONG>.</P>
+Автор: Vit Belov
+
+### 30.11.2005 news RAWHEAD REXX начали пре-продукцию
+
+<P>Heavy-metal группа <STRONG>RAWHEAD REXX</STRONG> находится сейчас в студии, где занята пре-продукцией к новому альбому. Уже сочинено 30 песен, из которых выберут те, что войдут на пластинку. Она выйдет в 2006 году.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

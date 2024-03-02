@@ -173,6 +173,207 @@ Jamie Pushbutton  -  Drums
 
 * C группой "S.O.S." Chris Beattie - bass
 
+## Публикации
+
+### 29.08.2001 news HATEBREED ушли с Victory Records....
+
+<p>Зверские американцы "HATEBREED" официально подтвердили разрыв отношений с Victory Records и объявили о переходе на Universal (в чем им помог вокалист Jamey Jasta). Таким образом новый студийник "Perseverance" выйдет в январе уже на новом лэйбле. Сейчас HATEBREEDцы заняты пре-продукцией альбома в Planet Z Studios с барабанщиком Matt Byrne, который участвовал в процессе записи, но так и не согласился стать полноценной заменой ушедшему Rigg Ross’у. Трек-лист "Perseverance" будет таким: 01. Unbreakable 02. Remain Nameless 03. Never In This Alone 04. I Will Be Heard 05. A Call For Blood 06. Below The Bottom 07. Final Prayer For The Human Race 08. Swarm Of Terror 09. Unloved 10. Condemned Until Rebirth 11. Bloodsoaked Memories 12. Hollow Ground 13. Smash Your Enemies 14. Healing to Suffer Again.</p>
+
+Автор: Yermola
+
+### 29.08.2001 news HATEBREED have officially confirmed their split with Victory Records ...
+
+<p>HATEBREED have officially confirmed their split with Victory Records and have announced a new deal with Universal Records via vocalist Jamey Jasta’s own Stillborn label, who will issue the group’s next studio effort, entitled Perseverance, in January 2002. HATEBREED are presently in pre-production for the album at Planet Z Studios with their old drummer Matt Byrne, who is assisting the group during the recording process but will not be permanently rejoining the group following Rigg Ross’ recent departure from the fold. A producer and studio will be announced in the next few days. Here is the tentative track listing for Perseverance: 01. Unbreakable 02. Remain Nameless 03. Never In This Alone 04. I Will Be Heard 05. A Call For Blood 06. Below The Bottom 07. Final Prayer For The Human Race 08. Swarm Of Terror 09. Unloved 10. Condemned Until Rebirth 11. Bloodsoaked Memories 12. Hollow Ground 13. Smash Your Enemies 14. Healing to Suffer Again. In a recent interview with www.rightupfront.com, Jasta offered the reasons for their split with Victory Records. According to the frontman, "It's just basically that we needed to get out of our deal because they [Victory Records] were ripping us off… We just want to get it out and not live like bums anymore. So we can get paid for what we do rather than having someone else get paid for us." Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 24.09.2002 news SLAYER, SOULFLY, MOTORHEAD, DOWN Among Artists Confirmed For Japan&#39;s BEAST FEAST 2002 ...
+
+<p>SLAYER, SOULFLY, MOTORHEAD, DOWN, HATEBREED, and ARCH ENEMY are among the artists confirmed to appear at Beast Feast 2002, a two-day festival set to take place on December 14-15 at Makuhari Messe Event Hall in Tokyo, Japan. <BR><BR> The full lineup of acts currently scheduled to perform at the event is as follows:<BR><BR> SLAYER<BR> SOULFLY<BR> MOTORHEAD<BR> DOWN<BR> HATEBREED<BR> ARCH ENEMY<BR> CONVERGE<BR> BURNT BY THE SUN<BR> BATCAVE<BR> COCOBAT<BR> PULLING TEETH<BR> SUNS OWL<BR> UNDOWN<BR> UNITED<BR> YELLOW MACHINEGUN</p>
+
+Автор: Yermola
+
+### 24.09.2002 news Фестиваль Зверя в Японии...
+
+<p>SLAYER, SOULFLY, MOTОRHEAD, DOWN, HATEBREED и ARCH ENEMY уже окончательно подтвердили свое участие в японском фестивале Beast Feast 2002. Двухдневное шоу будет проходить 14-15 декабря в зале Makuhari Messe Event Hall в Токио. <BR><BR> Состав участников на сегодняшний день:<BR><BR> SLAYER<BR> SOULFLY<BR> MOT&Ouml;RHEAD<BR> DOWN<BR> HATEBREED<BR> ARCH ENEMY<BR> CONVERGE<BR> BURNT BY THE SUN<BR> BATCAVE<BR> COCOBAT<BR> PULLING TEETH<BR> SUNS OWL<BR> UNDOWN<BR> UNITED<BR> YELLOW MACHINEGUN<BR><BR> Более подробную информацию смотрите на сайте фестиваля: <A HREF="http://www.beastfeast.net/">http://www.beastfeast.net/</A></p>
+
+Автор: Yermola
+
+### 21.03.2007 articles Международный рок-фестиваль «EXTREME POWER» в Киеве: пресс-релиз.
+
+<P>РЕЗЮМЕ.</P>
+<P>Название: Международный рок-фестиваль «EXTREME POWER».<BR>Дата проведения фестиваля: 15 апреля 2007 года.<BR>Место проведения: Киевский Дворец Спорта<BR>Зрители фестиваля: более 8 000 человек<BR>Возраст аудитории:&nbsp; от 14 до 50 лет <BR>Доход: средний и выше среднего<BR>География фестиваля: Украина и ближнее зарубежье (Россия, Беларусь, Молдова)</P>
+<P>Хедлайнеры фестиваля:</P>
+<P>- GAMMA RAY (Германия)</P>
+<P>О команде:&nbsp; Монстры&nbsp; мировой рок сцены немецкая группа Gamma Ray (проект основателя Helloween и одного из лучших гитаристов мира, Кая Хансена) более 15 лет является ведущим представителем своего стиля музыки. В свое время команда была&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; образована участниками группы «Helloween». В январе 2007 года Gamma Ray впервые доехали до Москвы, где собрали на своем концерте около 20 000 человек , и вот спустя несколько месяцев, в апреле , украинские поклонники «Gamma Ray» также&nbsp; впервые смогут увидеть своими&nbsp; глазами легенду мирового рока которая завоевала сердца миллионов слушателей по всему земному шару.</P>
+<P>Дискография: <BR>1990 - "Heading For Tomorrow" <BR>1991 - "Sign No More" <BR>1993 - "Insanity And Genius"&nbsp; <BR>1995 - "Land Of The Free"&nbsp; <BR>1996 - "Alive 95"&nbsp; <BR>1997 - "Somewhere Out In Space"&nbsp; <BR>1999 - "Powerplant" <BR>2000&nbsp; - "Blast From The Past"<BR>2001 - "No World Order!" <BR>2003 - "Skeletons In The Closet" <BR>2005 - "Majestic" </P>
+<P>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; </P>
+<P>&nbsp;</P>
+<P>- HATEBREED (CША) </P>
+<P>О команде: Команда из Нью-Хэвена(США) "Hatebreed" образовалась в конце 1993 года, кто тогда знал что через 10 лет после своего существования эти ребята будут диктовать стиль в коровой музыке во все мире, а именно так и случилось. На сегодня группа&nbsp; "Hatebreed" является хедлайнерами многих <BR>фестивалей по всему миру, в прошлом году они были главной командой на самом масштабном и престижном фестивале “OzzFest”, команды на который выбирает сам Оззи Озборн.<BR>Более 1 млн. проданных дисков, а в 2006 году альбом "Hatebreed", «Supremacy», занял 17 место в штатовских чартах. Ребята даже сумели поучаствовать саундтреком к голливудском екшену «ХХХ-2».<BR>Конечно приезд такой команды в Киев вызвал ажиотаж среди всех любителей «хардкор» музыки, и учитывая то , что в апреле будет первый концерт группы на территории СНГ, фанаты&nbsp; "Hatebreed" из Москвы, Минска также спешат в столицу Украины. </P>
+<P>Дискография: <BR>1995 - HATEBREED / NEGLECT split 7" <BR>1995 - HATEBREED / INTEGRITY split 7" <BR>1996 - Under the Knife 7"EP <BR>1997 - Satisfaction is the Death of Desire <BR>2002 - Perseverance <BR>2003 - The Rise of Brutality <BR>2006 - Supremacy </P>
+<P>А также на фестивале : </P>
+<P>- SINISTER (Голландия), легенда Европейского масштаба, команда основана в 1988 году.</P>
+<P>- DARK FUNERAL (Швеция), Всемирно известное имя, одна из лучших команд в стиле “black metal”.</P>
+<P>- FLESHGORE (Украина), лидеры экстремальной сцены СНГ, более 100 концертов и фестивалей в 17 странах, <BR>всемирная дистрибуция, единственная группа на территории СНГ сумевшая прорваться в Европу.</P>
+<P>&nbsp;</P>
+<P><BR>ОРГАНИЗАТОР: Рекламное агентство&nbsp; «Лаборатория рекламы» </P>
+<P>Контакты:<BR>Официальный сайт фестиваля: <A href="http://www.extremepowerfestival.com/">http://www.extremepowerfestival.com</A><BR>Адрес электронной почты : <A href="mailto:info@extremepowerfestival.com">info@extremepowerfestival.com</A></P>
+<P>Телефоны: + 38 044 531 61 71<BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; + 38 067 230 86 32<BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; + 38 050 386 18 70</P>
+Автор: Vit Belov
+
+### 31.01.2009 news HATEBREED выпустят альбом каверов
+
+<P>В мае на <STRONG>Koch Records</STRONG> выйдет новый альбом <STRONG>HATEBREED "For the Lions"</STRONG>, состоящий целиком из кавер-версий на&nbsp;хиты тяжёлой музыки. Среди авторов композиций: <STRONG>SLAYER, MISFITS, METALLICA, JUDGE, CRO-MAGS, D.R.I., NEGATIVE APPROACH, AGNOSTIC FRONT, MADBALL, SHEER TERROR</STRONG>&nbsp;и<STRONG> OBITUARY</STRONG>.</P>
+Автор: Vit Belov
+
+### 10.02.2009 news В HATEBREED вернулся гитарист
+
+<P>Оригинальный гитарист<STRONG> HATEBREED</STRONG> <STRONG>Wayne Lozinak </STRONG>вернулся в группу. Он заменил <STRONG>Sean M. Martin.</STRONG></P>
+Автор: Vit Belov
+
+### 25.02.2009 news Дата релиза HATEBREED
+
+<P>Кавер-альбом <STRONG>HATEBREED "For The Lions"</STRONG> выйдет 11 мая на <STRONG>Century Media</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.04.2009 news HATEBREED спели SLAYER
+
+<P><STRONG>HATEBREED</STRONG> сняли клип на кавер-версию на песню <STRONG>SLAYER "Ghosts Of War"</STRONG>. Версия попала на новейший альбом каверов от <STRONG>HATEBREED</STRONG> <STRONG>"For The Lions".</STRONG></P>
+<P><STRONG></STRONG>
+<CENTER><EMBED src=http://media.mtvnservices.com/mgid:uma:video:mtv.com:369847 width=512 height=319 type=application/x-shockwave-flash flashVars="configParams=type%3Dnormal%26vid%3D369847%26uri%3Dmgid%3Auma%3Avideo%3Amtv.com%3A369847%26startUri=mgid%3Auma%3Avideo%3Amtv.com%3A369847" allowFullScreen="true" allowScriptAccess="always" base="."></EMBED> 
+<DIV style="FONT-SIZE: 12px; MARGIN: 0px; WIDTH: 500px; FONT-FAMILY: Arial,sans-serif; TEXT-ALIGN: center"><A href="http://www.mtv.com/music/artist/hatebreed/artist.jhtml" target=_blank>Hatebreed</A> - <A href="http://www.mtv.com/music/" target=_blank>New Music</A> - <A href="http://www.mtv.com/music/video/" target=_blank>More Music Videos</A></DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.05.2009 news HATEBREED 58-е
+
+<P>Кавер-альбом<STRONG> HATEBREED "For The Lions"</STRONG> продался в первую неделю в США в количестве 10000 копий, что позволило дебютировать ему в чартах на 58-ом месте. Предыдущие работы группы выступали более впечатляюще, было реализовано в первую неделю более 30000 экземпляров альбомов.</P>
+Автор: Vit Belov
+
+### 23.06.2009 news HATEBREED на Roadrunner
+
+<P><STRONG>HATEBREED </STRONG>заключили новое соглашение с <STRONG>Roadrunner</STRONG>. Новый одноимённый альбом выйдет в сентябре/октябре этого года.</P>
+Автор: Vit Belov
+
+### 17.07.2009 news Видео от HATEBREED
+
+<P>Клип на кавер <STRONG>HATEBREED</STRONG> на песню <STRONG>BLACK FLAG</STRONG> <STRONG>"Thirsty And Miserable" </STRONG>можно посмотреть ниже.</P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/H5aw1bEngy4&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/H5aw1bEngy4&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.08.2009 news Новая песня HATEBREED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню <STRONG>HATEBREED</STRONG> <STRONG>"In Ashes They Shall Reap" </STRONG>с нового альбома "<STRONG>Hatebreed</STRONG>", который выйдет осенью, можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/hatebreed">http://www.myspace.com/hatebreed</A></FONT></P>
+Автор: Vit Belov
+
+### 05.09.2009 news Видео HATEBREED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню <STRONG>"In Ashes They Shall Reap" </STRONG>с новейшего альбома <STRONG>HATEBREED</STRONG> можно посмотреть ниже.</FONT></P>
+<P>
+<CENTER><EMBED src=http://media.mtvnservices.com/mgid:uma:video:mtv.com:432916 width=512 height=319 type=application/x-shockwave-flash flashVars="configParams=type%3Dnormal%26vid%3D432916%26uri%3Dmgid%3Auma%3Avideo%3Amtv.com%3A432916%26startUri=mgid%3Auma%3Avideo%3Amtv.com%3A432916" allowFullScreen="true" allowScriptAccess="always" base="."></EMBED> 
+<DIV style="FONT-SIZE: 12px; MARGIN: 0px; WIDTH: 500px; FONT-FAMILY: Arial,sans-serif; TEXT-ALIGN: center"><A href="http://www.mtv.com/music/artist/hatebreed/artist.jhtml" target=_blank>Hatebreed</A> - <A href="http://www.mtv.com/music/" target=_blank>New Music</A> - <A href="http://www.mtv.com/music/video/" target=_blank>More Music Videos</A></DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 04.10.2009 reviews Аккуратный сборник каверов
+
+<P>Популярная hardcore команда HATEBREED выпустила сборник кавер-версий ‘For The Lions’. Группа подошла к составлению этого сборника одним из двух возможных способов. В эти дни выходит сборник CHILDREN OF BODOM, вот он составлен другим способом, в этом способе остаётся место для юмора и некоторой пародии. HATEBREED же записали альбом, который легко мог бы стать их собственной работой. Они собрали всё самое лучшее из музыки, которая имеет отношение к их творчеству – punk/thrash/hardcore.</P>
+<P>Да, вам не удастся посмеяться за прослушиванием этой пластинки, но вы получите эстетическое удовольствие. Если, конечно, вам нравятся эти коренные стили для всего металла. Здесь нет излишней мелодичности, клавишных и чистых вокалов. Здесь несомненный драйв, угар и безмерное бережливое поклонение от HATEBREED. Они только улучшили саунд этой классики и получилось что-то необыкновенное. Редко кому в наши дни удаётся записывать альбомы, которые станут классикой тяжёлой музыки, и это желание наполнить пластинку несомненными хитами приятно и для слушателя и для самого исполнителя. На пластинку попали трэки MISFITS, SLAYER, METALLICA, SEPULTURA, D.R.I., SICK OF IT ALL, AGNOSTIC FRONT и многих других. Всё самое лучшее для вас.</P>
+<P>Готов спорить с каждым, кто скажет, что подобная музыка устарела или неинтересна в наше время. Именно сейчас, во времена всеобщего засилья всего танцевального, симфоничного и псевдометаллического, такие альбомы воспринимаются как глоток свежего воздуха. Советую всем любителям тяжёлого металла и хардкора.</P>
+Автор: Vit Belov
+
+### 07.10.2009 news HATEBREED попали в чарты
+
+<P>Новый одноимённый альбом <STRONG>HATEBREED</STRONG> попал в чарты<STRONG> Billboard</STRONG> на 37-ое место. Продано 15000 копий.</P>
+Автор: Vit Belov
+
+### 05.01.2010 reviews Новогодняя музыка
+
+<P>С запозданием альбомы американской группы HATEBREED шагают по нашей стране. До недавнего времени из свежих релизов у нас в продаже был только сборник каверов “For The Lions” от Союза, но вот под новый год в продаже появился и свежайший полноразмерный альбом этого примечательного коллектива.</P>
+<P>Не скажу чего-то крамольного, если отмечу, что HATEBREED одна из сильнейших групп своего направления в наши дни. Их мощный hardcore на стыке с thrash и даже death-metal не оставит равнодушными любителей подобной музыки. Их даже можно сравнить с классической SEPULTURA, а это многое значит. Мощные энергичные риффы, великолепная реализация, разнообразные запоминающиеся композиции. Каждый должен получить настоящее удовлетворение от музыки HATEBREED в целом, равно как и от их нового альбома. Настоящая новогодняя музыка. Можно встать вокруг елки и дружно подпрыгивать-приплясывать, вовлекая в свой круг самых неожиданных людей: тёщ, свекровей и других значительных персонажей.</P>
+<P>Если серьёзно, то писать здесь совершенно не о чем. Но это «онемение» вашего автора совсем не связано с серостью и малой культурной ценностью материала HATEBREED. Это связано с серостью самого автора этой рецензии, очень сложно передать тот заряд энергии, которые предоставляют HATEBREED всем своим поклонникам.</P>
+Автор: Vit Belov
+
+### 24.04.2010 news Новый клип HATEBREED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео <STRONG>HATEBREED</STRONG> на песню <STRONG>"Everyone Bleeds Now" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT id=AOLVP_79394732001 height=346 width=400 classid=clsid:D27CDB6E-AE6D-11cf-96B8-444553540000><PARAM NAME="_cx" VALUE="10583"><PARAM NAME="_cy" VALUE="9155"><PARAM NAME="FlashVars" VALUE=""><PARAM NAME="Movie" VALUE="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf"><PARAM NAME="Src" VALUE="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf"><PARAM NAME="WMode" VALUE="Transparent"><PARAM NAME="Play" VALUE="-1"><PARAM NAME="Loop" VALUE="-1"><PARAM NAME="Quality" VALUE="High"><PARAM NAME="SAlign" VALUE=""><PARAM NAME="Menu" VALUE="-1"><PARAM NAME="Base" VALUE=""><PARAM NAME="AllowScriptAccess" VALUE="always"><PARAM NAME="Scale" VALUE="ShowAll"><PARAM NAME="DeviceFont" VALUE="0"><PARAM NAME="EmbedMovie" VALUE="0"><PARAM NAME="BGColor" VALUE="000000"><PARAM NAME="SWRemote" VALUE=""><PARAM NAME="MovieData" VALUE=""><PARAM NAME="SeamlessTabbing" VALUE="1"><PARAM NAME="Profile" VALUE="0"><PARAM NAME="ProfileAddress" VALUE=""><PARAM NAME="ProfilePort" VALUE="0"><PARAM NAME="AllowNetworking" VALUE="all"><PARAM NAME="AllowFullScreen" VALUE="true">
+<embed src="http://o.aolcdn.com/videoplayer/AOL_PlayerLoader.swf" type="application/x-shockwave-flash" allowscriptaccess="always" wmode="transparent" allowfullscreen="true" bgcolor="#000000" width="400" height="346" name="AOLVP_79394732001" flashvars="publisherid=1612833736&videoid=79394732001&codever=1&stillurl=http%3A%2F%2Fpdl%2Estream%2Eaol%2Ecom%2Faol%2Fbrightcove%2Fus%2Fmusic%2Fmusicvideos%2Fe1records%2Fhatebreed%2Fhatebreed%5Feveryonebleedsnow%5Fvideo%5Fstill%5F480%2Ejpg&playerid=10032373001"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.04.2011 news Jamey Jasta выпустит сольный альбом
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.04/19231.jpg" width=213 height=300>26 июля на лейбле <STRONG>eOne Music</STRONG> выходит сольный альбом Джеймса Джаста (<STRONG>Jamey Jasta</STRONG>), вокалиста&nbsp;<STRONG>HATEBREED</STRONG> и <STRONG>KINGDOM OF SORROW</STRONG>.</P>
+<P>На альбоме, получившим скромное название <STRONG>"Jasta"</STRONG>, отметятся следующие гостевые музыканты: <B>Tim Lambesis</B> (<B>AS I LAY DYING</B>),&nbsp;профессиональный скейтер&nbsp;<B>Mike Vallely</B>, <B>Philip Labonte</B> (<B>ALL THAT REMAINS</B>), <B>Randy Blythe</B> и <B>Mark Morton</B> (<B>LAMB OF GOD</B>) и легендарный гитарист&nbsp;<B>Zakk Wylde</B>. <BR></P>
+<P><BR>&nbsp;</P>
+Автор: Headcrusher
+
+### 02.08.2011 news Сольник вокалиста HATEBREED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=417 alt="" hspace=0 src="/images/news_rus/2011.08/20420.jpg" width=417 align=right border=0>Дебютный соло-альбом вокалиста <STRONG>HATEBREED</STRONG> и <STRONG>KINGDOM OF SORROW James Jasta</STRONG>, названный просто "<STRONG>Jasta</STRONG>", вышел 26 июля на <STRONG>Century Media Records. </STRONG>Трек-лист:</FONT></P>
+<P>01. <B>Walk That Path Alone</B><BR>02. <B>Mourn The Illusion</B><BR>03. <B>Screams From The Sanctuary</B><BR>04. <B>Nothing They Say</B><BR>05. <B>Anthem Of The Freedom Fighter</B><BR>06. <B>Something You Should Know</B> (feat. Phil Labonte of ALL THAT REMAINS)<BR>07. <B>Set You Adrift</B><BR>08. <B>Enslaved, Dead or Depraved</B> (feat. Randy Blythe of LAMB OF GOD)<BR>09. <B>With A Resounding Voice</B> (feat. Tim Lambesis of AS I LAY DYING)<BR>10. <B>The Fearless Must Endure</B> (feat. Zakk Wylde of BLACK LABEL SOCIETY)<BR>11. <B>Heart Of A Warrior</B> (feat. Mike Vallely)<BR>12. <B>Death Bestowed</B> (feat. Mark Morton of LAMB OF GOD)</P>
+<P>James Jasta рассказал, что на сольнике больше элементов рока и thrash-metal, а сам он чаще поёт чистым голосом.</P>
+Автор: Vit Belov
+
+### 15.02.2012 news Новости фестиваля Brutal Assault
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.02/23062.png" width=300 height=165>Фестиваль <STRONG>Brutal Assault</STRONG> добавил в свой состав участников ещё три группы и они&nbsp;помогут избавиться вам&nbsp;от лишних киллограмов, которые вы возможно набрали во время новогодних праздников. </P>
+<P>Это троица из Штатов и она заставит вас мошиться, как сумашедших: <STRONG>HATEBREED</STRONG>, <STRONG>SUICIDE SILENCE</STRONG> и <STRONG>MUNICIPAL WASTE</STRONG>.</P>
+Автор: Headcrusher
+
+### 15.11.2012 news HATEBREED &quot;The Divinity Of Purpose&quot;
+
+<P>Американцы <STRONG>HATEBREED</STRONG> готовят к выпуску свой новый альбом. Диск получил название <STRONG>"The Divinity Of Purpose"</STRONG> и выйдет 25 января 2013 в Европе на лейбле <STRONG>Nuclear Blast</STRONG> и 29 января 2013 в Северной Америке на лейбле<STRONG> Razor & Tie</STRONG>. Обложку для <STRONG>"The Divinity Of Purpose"</STRONG> нарисовал <STRONG>Eliran Kantor</STRONG> (<STRONG>TESTAMENT</STRONG>, <STRONG>ATHEIST</STRONG>, <STRONG>SIGH</STRONG>, <STRONG>ANACRUSIS</STRONG>).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.11/25053.jpg" width=450 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 07.01.2013 news HATEBREED: клип на трек &quot;Put It To The Torch&quot;
+
+<P>Новый клип <STRONG>HATEBREED</STRONG> на трек <STRONG>"Put It To The Torch"</STRONG>, можно посмотреть ниже. Данная песня увидет свет на альбоме&nbsp;<STRONG>"The Divinity Of Purpose"</STRONG>, который выйдет в конце этого месяца.</P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/ozd-T2k6_JE?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 03.02.2013 reviews Быстрый хук в челюсть
+
+<P>Очередным домом для классиков «метализированного» hardcore из США HATEBREED стали Nuclear Blast. Группа не разочаровала ни лэйбл, ни своих преданных поклонников, выпустив очередной убийственный и тяжёлый альбом.</P>
+<P>Быстрые треки, великолепное металическое звучание, помноженное на панковский угар, это визитная карточка современного HATEBREED. Если на концертах группа продолжает придерживаться «хардкорной» культуры поведения, новые студийные работы музыкантов понравятся также и любителям забойного thrash-metal. Thrash-metal, вообще-то, не требует никаких свежих струй и находок, но у групп подобных HATEBREED получается вдохнуть дополнительную жизнь в этот здоровый организм. </P>
+<P>39 минут жёсткого угара, как хук в челюсть, резкий, быстрый и сшибающий с ног. Отличный вариант для всех поклонников thrash-hardcore.</P>
+Автор: Vit Belov
+
+### 05.08.2014 news Фестиваль &quot;Hellfest&quot;, 2014: фотографии
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.08/27200.jpg" width=450 height=254> 
+<P></P>
+<P>Многоуважаемой публике предлагается фоторепортаж с ежегодного, уже восьмого по счёту,&nbsp;фестиваля <STRONG>"Hellfest" </STRONG>(<A href="http://www.hellfest.fr/">www.hellfest.fr</A>), который проходит&nbsp;неподалёку от&nbsp;французского города <STRONG>Clisson</STRONG>. В этом году фестиваль прошёл, как обычно,&nbsp;по традиции - во второй половине июня. Все фотографии авторства <STRONG>Екатерины Гучок</STRONG>.</P>
+<P>01) <STRONG>POWERMAN 5000</STRONG>: <A href="/ru/galleries/1/1481/">http://musica.mustdie.ru/ru/galleries/1/1481/</A><BR>02) <STRONG>TURISAS</STRONG>: <A href="/ru/galleries/1/1482/">http://musica.mustdie.ru/ru/galleries/1/1482/</A><BR>03) <STRONG>KATAKLYSM</STRONG>: <A href="/ru/galleries/1/1483/">http://musica.mustdie.ru/ru/galleries/1/1483/</A><BR>04) <STRONG>WE CAME AS ROMANS</STRONG>: <A href="/ru/galleries/1/1484/">http://musica.mustdie.ru/ru/galleries/1/1484/</A><BR>05) <STRONG>GORGUTS</STRONG>: <A href="/ru/galleries/1/1485/">http://musica.mustdie.ru/ru/galleries/1/1485/</A><BR>06) <STRONG>BRUTAL TRUTH</STRONG>: <A href="/ru/galleries/1/1486/">http://musica.mustdie.ru/ru/galleries/1/1486/</A><BR>07) <STRONG>TSJUDER</STRONG>, <STRONG>GORGOROTH</STRONG>: <A href="/ru/galleries/21/1487">http://musica.mustdie.ru/ru/galleries/21/1487</A><BR>08) <STRONG>HATEBREED</STRONG>, <STRONG>ELUVEITIE</STRONG>, <STRONG>NILE</STRONG>: <A href="/ru/galleries/21/1488">http://musica.mustdie.ru/ru/galleries/21/1488</A><BR>09) <STRONG>ANNIHILATOR</STRONG>, <STRONG>DARK ANGEL</STRONG>: <A href="/ru/galleries/1/1489">http://musica.mustdie.ru/ru/galleries/1/1489</A><BR>10) <STRONG>BEHEMOTH</STRONG>, <STRONG>EMPEROR</STRONG>: <A href="/ru/galleries/1/1503">http://musica.mustdie.ru/ru/galleries/1/1503</A><BR>11) Посетители и прочее: <A href="/ru/galleries/1/1508">http://musica.mustdie.ru/ru/galleries/1/1508</A></P></CENTER>
+Автор: Headcrusher
+
+### 28.05.2016 reviews Глоток воздуха свободы
+
+<p>Вы не найдёте эту группу на сайте Metal Archives. HATEBREED играют hardcore и в понимании создателей популярного сайта не имеют отношения к металу. Действительно, лет 10-15, а то и 20 назад велись ожесточённые дискуссии, во время которых hardcore коллективы выносились за рамки привычной тяжёлой музыки. Прошли годы, и в каталогах «металических» сайтов каких только зверей не найдёшь, какие-то «металкоры», «маткоры», «фолкроки»... Порой вставляешь в проигрыватель такой метал-альбом и понимаешь, что давно отстал от прогресса и, видимо, перестал слушать тяжёлую музыку довольно давно. А вот альбомы HATEBREED, которые hardcore и вроде бы даже ни разу не метал, проходят «на ура».</p><p>Прямолинейность, тяжесть, трешевый угар, провоцирующие гражданскую сознательность и бунт тексты, на мой вкус, гораздо больше подходят тяжёлой музыке, чем симфонии, женские вокалы и истории про драконов. Новый альбом HATEBREED “The Concrete Confessional”, вышедший на Союзе и Nuclear Blast в середине текущего мая, получился очень тяжёлым, прямолинейным, но ритмически разнообразным. Тексты и настрой композиций продолжают типичную для стиля социальную тему, сам вокал без всякой смысловой нагрузки провоцирует к действию, бодрит и вселяет дух свободы, который в текущей действительности не очень хорошо появляется в душе без воздействия извне. Альбом можно смело именовать глотком этой самой свободы, он бодрит и толкает на необдуманные поступки, хочется прыгать, трясти башкой, «изображать гитариста». Удивительно, что HATEBREED сохраняют этот энергетический запал уже не одно десятилетие, проживая в «сытой америке». В наших условиях, такое впечатление, подобные протогруппы не произрастают. Как можно 20 лет лабать одно и то же, на одной степени накала и не превратиться в убогого робота, производящего бунт по заказу? А ведь в музыке HATEBREED чувствуется искренность и полное отсутствие мотивации к усложнению собственного творчества. Простенькие соло, кач и призывно орущий голос Джасты — больше ничего не требуется.</p><p>Удивительно стандартный, но в то же время духоподъёмный альбом. Кажется, если эта группа не начнёт злоупотреблять чистым вокалом и атмосферными вставками, её альбомы можно будет слушать вечно, а каждая новая пластинка будет занимать своё почётное место в коллекции без всяких допущений.</p>
+Автор: Vit Belov
+
+### 22.07.2016 news Новый клип HATEBREED
+
+<p>Новое видео американцев <strong>HATEBREED</strong> на песню <strong>"Something's Off</strong>" можно посмотреть ниже. Трек взят с новейшего альбома коллектива "<strong>The Concrete Confessional</strong>", который вышел на<strong> Nuclear Blast</strong>.&nbsp;</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/N63Zc5XS-rw" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+### 22.07.2016 news New video by HATEBREED
+
+<p>New video of Americans<strong> HATEBREED</strong> for the song "<strong>Something's Off</strong>" can be viewed below. The track is taken from the latest album "<strong>The Concrete Confessional</strong>", which was released on<strong> Nuclear Blast records</strong>.&nbsp;</p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/N63Zc5XS-rw" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Hatebreed

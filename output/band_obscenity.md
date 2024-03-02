@@ -148,6 +148,28 @@ Oliver Jauch - Vocals
 
 * C группой "Dew-Scented" Alexander Pahl (bass)
 
+## Публикации
+
+### 21.03.2000 reviews 
+
+<p>Дэтстеры не так часто последнее время выпускают альбомы, а уж такие прямолинейные, вообще, не попадают к нам в руки почти никогда. Если вы не любите такие вещи, то и не читайте эту заметку, да и писать много я не стану. 40 минут интенсивной долбёжки без права отвлечься. Бескомпромисное смятение крыши и разрушение мозговой корки. Купите эту пластинку вслед за новым альбом Cannibal Corpse или не покупайте её вообще. Привлекает внимание, только несколько CD-Rom роликов записанных на диск, да и то, ожидая увидеть какой-нибудь кровавый клип, я увидел только поездку группы в автобусе и её обед в Бургер-Квине под дэт-металл. Скучно. Диск предоставлен фирмой "Правительство звука".</p>
+
+Автор: Vit Belov
+
+### 10.01.2002 news Malevolent Creation will go into Abyss Studio?!?!?
+
+<p>Malevolent Creation will be invading the following countries, and then will go into Abyss Studio with producer Peter Tagtgren to record they're 8th studio album. Working title at this time is "The Will To Kill". Florida Death Metal being recorded in Sweden? It should be interesting!<BR><BR> Malevolent Creation//Kataklysm//Catastrophic<BR><BR> March<BR> 3/10/02 UK // T.B.A. <BR> 3/11/02 Ireland // Belfast<BR> 3/12/02 Ireland // Dublin<BR> 3/13/02 UK // Newcastle<BR> 3/14/02 UK // London<BR> 3/15/02 France // Rennes<BR> 3/16/02 Belgium // T.B.A.<BR> 3/17/02 France // Paris<BR> 3/18/02 France // Amneville<BR> 3/19/02 France // Perpignan<BR> 3/20/02 France // T.B.A.<BR> 3/21/02 Spain // Barcelona<BR> 3/22/02 Spain // Murcia<BR> 3/23/02 Spain // Madrid <BR> 3/24/02 Spain // Irun<BR> 3/25/02 France // T.B.A.<BR> 3/26/02 France // T.B.A.<BR> 3/27/02 Switzerland // Wil<BR><BR> No Mercy Festival's<BR> Immortal//Hypocrisy//Vader//Malevolent Creation//Disbelief//Catastrophic//Destroyer 666//Obscenity<BR><BR> March<BR> 3/28/02 Germany // Berlin<BR> 3/29/02 Germany // Engelsdorf<BR> 3/30/02 Germany // Offenbach<BR> 3/31/02 Belgium // Antwerpen<BR><BR> April<BR> 4/1/02 Holland // Tilburg<BR> 4/2/02 Germany // Essen<BR> 4/3/02 Switzerland // Pratteln<BR> 4/4/02 Italy // Milano<BR> 4/5/02 Austria // Vienna<BR> 4/6/02 Austria //Wels<BR> 4/7/02 France // Strasbourg<BR> 4/8/02 Germany // Offenbach<BR><BR> Malevolent Creation will then do a series of dates till May 4th in the following countries: Denmark,Sweden,Norway,Poland,Croatia,Slovenia,Czech Republic and Greece.These dates are being put together at this time,check our website for updates.Then it off to the studio for they're 8th Murderous studio album!</p>
+
+Автор: Yermola
+
+### 08.11.2002 reviews Расчетливое кровавое убийство
+
+<p>В далеком уже 1989 году четверо молодых парней создали известную ныне германскую death-формацию OBSCENITY. И вот ребята вышли из известнейшей флоридской Morrisound Studio, чтобы в шестой раз поразить наши мозги получасовой порцией мощнейшего и беспощадного брутала. За все время существования группа ни разу не отходила от своих корней и не гнушалась своими принципами. Убийственные риффы, бласт-пассажи и бескомпромиссное брутальное рубилово, при этом с изрядными проблесками мелодичности. Плюс ко всему, великолепный жирный саунд. Безусловно, группа не открывает никаких новых стандартов death metal, но она, без сомнений, по-прежнему остается одной из наиболее перспективных и техничных death metal банд на планете. Высококачественная профессиональная работа. Если вам нравится творчество таких команд, как VADER, CANNIBAL CORPSE или BENEDICTION, то смелее приобретайте этот альбом. Не прогадаете...</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

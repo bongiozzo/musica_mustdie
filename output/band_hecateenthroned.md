@@ -99,6 +99,123 @@ Overriding imagination
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.11.2000 articles Восхождение на трон Королей Хаоса
+
+<p> Предоставляю вашему вниманию разговор с вокалистом группы Hecate Enthroned Дэном. Он получился незаконченным из-за того, что у Дэна полетели винды :) и в результате все остальные ответы на вопросы были безвозвратно утеряны, а писать по второму разу ему было, очевидно, не в кайф :(</p>
+<p></p>
+<p> - Ваш альбом "Kings Of Chaos" - это суперкласс! Мне он очень понравился. Что теперь в планах у Hecate Enthroned? Когда можно ожидать ваш новый альбом? В чем заключалась твоя роль в создании "Kings Of Chaos"?</p>
+<p> Спасибо, я рад, что "Kings of Chaos" тебе понравился. Что дальше? Сейчас мы работаем над материалом для нового альбома. В данный момент одна песня полностью готова и три или четыре находятся в процессе написания. Я точно не знаю, когда мы начнем запись... примерно следующим летом. Для "Kings Of Chaos" я только писал вокальные партии и сочинял тексты. Сочинением музыки занимались остальные музыканты.</p>
+<p> - Тебе больше нравится работать в студии или выступать перед людьми на концертах? Вы часто репетируете?</p>
+<p> Лично я думаю, что живые выступления намного лучше. Приятно видеть людей, которые врубаются в твою музыку или даже в тексты песен. В студии всё происходит по-другому. Часто приходится разочаровываться в проделанной работе и переделывать всё заново... бывает, что приходится очень много раз прослушивать одну и ту же песню, и это очень утомительно. Но конечный результат стоит всего этого. Репетируем мы раз в неделю; хотелось бы делать это чаще, но мы все работаем и живем не очень близко друг от друга. Перед концертами мы, естественно, встречаемся и репетируем почаще.</p>
+<p> <img src=/images/articles_rus/2000.11/649.jpg border=1 align=left width=400 height=342 ></p>
+<p> - А как часто вы выступаете? Играли на каких-нибудь летних фестивалях?</p>
+<p> Мы выступаем не так часто, как нам бы этого хотелось. С тех пор, как я присоединился к группе в сентябре 1998, мы выступили на шести концертах в нашей стране. Еще скатались в два турне по Европе. (1998-м году с Enthroned и Usurper, и еще раз в 2000-м году вместе с Satyricon и Behemoth). А сейчас мы практически не выступаем.</p>
+<p> - Расскажи о концепции группы...</p>
+<p> Я бы сказал, что наше творчество не ограничено какими-то рамками. Основное направление нашей лирики - это анти-христианство и всякие тёмные штучки. Слова наших песен нужно воспринимать в прямом смысле. Например: 'I am Born' - по-нашему, это значит быть превыше всех и править всем, 'Conquest Complete' - это уничтожение христианства, 'Perjurer' - враньё церкви.</p>
+<p> - В чем различие музыкантов Hecate Enthroned между образом на сцене и реальной жизнью?</p>
+<p> <img src=/images/articles_rus/2000.11/650.jpg border=1 align=right width=261 height=400 ></p>
+<p> Как ты мог видеть на фотографиях с "Kings of Chaos", имиджа как такового у нас нету. Когда мы выступаем, мы напяливаем на себя все эти шипы, ремни и кожу. Но это только для визуального эффекта. А одевать шипы, когда я, например, иду в магазин, выло бы маразмом по меньшей мере.</p>
+<p> - А почему тогда вы перестали использовать грим? просто лень? или есть другая причина?</p>
+<p> Есть несколько причин. Мы хотели, чтобы на первом месте была музыка а не образ. Мы хотели показать, что можем быть хорошей группой и без таких вещей, как корпспэйнт, и я думаю, что нам это удалось. Также сейчас мы просто не считаем что он нам необходим. После ухода Джона, который был главным нашим идеологом, мы сменили имидж. Самое важное в этом то, что мы честные по отношению к самим себе.</p>
+<p> <img src=/images/articles_rus/2000.11/651.jpg border=1 align=left width=400 height=247 ></p>
+<p> - Чего бы вы хотели добиться в жизни? Вас устраивает ваша жизнь, и что бы вы хотели успеть сделать до смерти?</p>
+<p> Я могу ответить только за себя, поскольку не знаю, что думают по этому поводу остальные ребята. Да, можно сказать, что я счастлив в данный момент. Я никогда не жду от жизни больше, чем делаю сам. А перед смертью я хотел бы попутешествовать, увидеть Пирамиды, Северное Сияние и подобные вещи. Как я уже сказал - я счастлив, и если бы я мог изменить прошлое, то я не стал ничего менять. Хотя может быть я не стал бы жениться...</p>
+<p> - Какую музыку ты слушаешь? я думаю, что это металл! :) Что ты слушаешь сейчас и какие твои самые любимые группы?</p>
+<p> О! Я могу написать список на несколько листов! За последние 24 часа я послушал Primordial, Akercocke, Satyricon, Emperor, Iron Maiden, Atheist, Ulver, Behemoth, Sigh, My Dying Bride и еще несколько других групп. Самые любимые коллективы? Несомненно это Slayer и Iron Maiden, а также Deicide, Morbid Angel, Ripping Corpse, Cynic, Macabre,</p>
+<p> <img src=/images/articles_rus/2000.11/652.jpg border=1 align=right width=400 height=255 ></p>
+<p> Death... и куча других!!! В данный момент я слушаю концертник Morbid Angel. И еще обижаю смотреть музыкальное видео (концерты, клипы и т.п.).</p>
+<p> - А как ты относишься к таким стилям музыки, как gothic и ambient? Что ты думаешь о группах наподобие Dimmu Borgir и Kovenant?</p>
+<p> Я по большей части слушаю металл, хотя я люблю большинство стилей металла, я не чрезмерно увлечен готическими или эмбиентными вещами. Dimmu Borgir - нормальные, я перестал ненавидеть группы, теперь я просто игнорирую их если они мне не нравятся. Kovenant. Мне кажется, что они плевали на всех и делают то, что хотят сами, и мне это нравится!! Я понял, ты спрашиваешь и коммерческой стороне этих проектов, да? Могу только пожелать им еще большего успеха. Как я сказал, я перестал ненавидеть группы.</p>
+<p> - Дэн, расскажи, как ты попал в группу, после ухода её вокалиста Джона? Чем ты занимался раньше, до Hecate Enthroned?</p>
+<p> Вообще я присоединился к группе в сентябре 1998-го года, во время их европейского турне. А официально я принят в состав Hecate Enthroned с февраля 1999-го. Джон ушел примерно в это же время. Мне позвонил один знакомый и спросил, не могу ли я немного попеть на концертах с HE. Остальное - история! А еще раньше у меня была другая группа - Ewoc.</p>
+<p></p>
+<p></p>
+<p> Nybras</p>
+
+Автор: Nybras
+
+### 26.03.2001 news Короли Хаоса - HECATE ENTHRONED....
+
+<p>HECATE ENTHRONED с 7 апреля будут в Ливерпульской Elevator Studios микшировать новый диск (пока без названия). Продюссером будет Pete "Pee Wee" Coleman. Ожидаемая дата выхода - Май 2001 (через PHD / Blackend Records). По словам группы на альбоме будет больше экспериментов: "От меланхолических акустических вставок до грузящих тяжелых гитар...и чистого вокала".</p>
+
+Автор: Yermola
+
+### 26.03.2001 news HECATE ENTHRONED will be back in the studio
+
+<p>The UK’s HECATE ENTHRONED will be back in the studio the weekend of 7th April 2001 to finish the mixing of their new EP with producer Pete "Pee Wee" Coleman at Elevator Studios in Liverpool. The EP reportedly sees quite a change in the bands sound since the Kings Of Chaos CD while “still capturing the qualities of all of the act’s releases so far. According to the group’s official web site, “this EP shows complete maturity and proves that the band are not afraid to experiment; from melancholic acoustic sections, to trancey keyboards, to heavy groove laden guitars to soaring clean vocals.” Expect the EP to be released in May through PHD / Blackend Records.</p>
+
+Автор: Yermola
+
+### 07.05.2001 news Миазмы HECATE ENTHRONED ....
+
+<p>HECATE ENTHRONED завершили запись EP "Miasma" и собираются выпустить его в ближайшее время через PHD/Blackend Records. В него вошли восемь песен (включая секретный бонус-трек): 01. Commence The Chaos 02. Silenced But For Their Cries (I Am Born Pt. II) 03. Designed With Hate 04. New Day Emerges 05. Into Oblivion (Instrumental) 06. So Called Saviour. Кроме того вокалист Dean принял участие при записи альбома "Goat of Mendes" команды AKERCOCKE.</p>
+
+Автор: Yermola
+
+### 07.05.2001 news HECATE ENTHRONED Miasma EP.....
+
+<p>HECATE ENTHRONED will be supporting fellow UK black metallers AKERCOCKE at the London Monarch on May 13th. The band will be premiering tracks from the soon-to-be-released Miasma EP, which was recently completed at Elevator Studios in Liverpool with producer Pete 'Pee Wee' Coleman. An eight-song affair (including a "secret" bonus track), Miasma will consist of the following tracks (among others): 01. Commence The Chaos 02. Silenced But For Their Cries (I Am Born Pt. II) 03. Designed With Hate 04. New Day Emerges 05. Into Oblivion (Instrumental) 06. So Called Saviour. Expect the EP to be released this summer through PHD/Blackend Records. In other HECATE ENTHRONED news, vocalist Dean will be appearing on AKERCOCKE's new album Goat of Mendes as a guest vocalist on the track "The Serpent". The album will be released later this month through Peaceville Records. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 10.10.2001 news Новый мини-альбом Hecate Enthroned
+
+<p>Новый EP Hecate Enthroned "Miasma" выйдет 22 октября на Blackend/PHD. Мини-альбом представит слушателям довольно заметные изменения в музыке группы, произошедшие со времён "Kings Of Chaos". При сохранении достоинств всех предыдущих альбомов, этот EP демонстрирует полную зрелость и доказывает, что группа не боится идти по пути экспериментов с меланхоличными акустическими вставками, с атмосферными клавишными, с утяжелением звучания гитар, с высоким чистым вокалом и т.д.</p>
+
+Автор: Morsus
+
+### 10.10.2001 news News about longawaited EP of Hecate Enthroned
+
+<p>The new EP titled "Miasma" will be released through Blackend/PHD on the 22nd October. The EP sees quite a change in the bands sound since "Kings Of Chaos". While still capturing the qualities of all of the bands releases so far this EP shows complete maturity and proves that the band are not afraid to experiment; from melancholic acoustic sections, to trancey keyboards, to heavy groove laden guitars to soaring clean vocals...</p>
+
+Автор: Morsus
+
+### 22.08.2002 news CONQUER FEST II in UK
+
+<p>BENEDICTION ( legend of death metal - UK ) <BR> HELL-BORN ( one of the best old school of black metal - Poland )<BR> IMMEMORIAL ( death metal - Poland )<BR> EPITOME ( pathological grind / gore - Poland )<BR> HECATE ENTHRONED ( black metal - UK )<BR> DAM ( UK )<BR><BR> 26,10,2002 London Camden the UNDERWORLD<BR> doors open at 17.00 ( 5 PM )<BR> more @ WWW.CONQUEREC.COM<BR><BR> Tomasz Podolecki<BR> & Conquer Records UK<BR> WWW.CONQUEREC.COM<BR> PO BOX 33904<BR> LONDON<BR> NW9 7ZU<BR> Great Britain<BR></p>
+
+Автор: Yermola
+
+### 03.02.2004 news Новое творение HECATE ENTHRONED
+
+<P>Английский sympho-black metal секстет <B>HECATE ENTHRONED</B> наконец-то начал работу над новым альбомом. 3 января группа отправилась в Манчестер в <B>Blueroom Studios</B>, где в течение трех недель должен быть завершен процесс записи новых песен. Спродюсируют альбом сами участники коллектива. Бас-гитарист <B>Dylan</B>: "<I>После длительных дискуссий и раздумий мы решили, что альбом спродюсируем сами. Работая с очень хорошими продюсерами над прошлыми альбомами, мы набрались достаточно опыта и уверены, что самостоятельно справимся с этим не хуже, чем раньше. Все наши прошлые продюсеры оставили свои следы в работе над материалом, но теперь наша очередь. Мы сможем полностью контролировать процесс работы, что позволить придать песням именно такое звучание, которое нравится нам</I>."<BR>Альбом был назван <B>'Redimus'</B>, что означает "мы возвращаемся". Новая работа намного лучше и сильнее предыдущих. Соединяя в себе все положительные черты как <B>'Kings of Chaos'</B>, так и <B>'Miasma' (EP)</B>,<B> 'Redimus'</B> наверняка не разочарует никого из тех, кто любит брутальный, эпический и атмосферный sympho-black metal.</P>
+<P>Трэк-лист:</P>
+<P>1. <B>No One Hears</B><BR>2. <B>An Eternal Belief - I Am Born (Part III)<BR></B>3. <B>The Shining Delight</B> <BR>4. <B>Headhunter <BR></B>5. <B>Soil of Sin <BR></B>6. <B>The Face of Betrayal</B> <BR>7. <B>Choose Misanthropy</B> <BR>8. <B>As Fire</B> <BR>9. <B>Overriding Imagination</B> </P>
+<P>Также на альбоме будет пристутствовать еще три безымянных трэка, два из которых инструментальные.</P>
+Автор: Darkfall
+
+### 26.02.2004 news Hecate Enthroned ищут нового вокалиста
+
+<P><B>HECATE ENTHRONED</B> покинул вокалист <B>Dean</B>. Он был несогласен с музыкальным направлением, в котором двигалась группа.</P>
+Автор: Vit Belov
+
+### 26.02.2004 news HECATE ENTHRONED are looking for singer
+
+<B>HECATE ENTHRONED</B> are looking for singer, 'cause their old frontman <B>Dean</B> left the band. He wasn't agree with musical direction of the band.&nbsp;
+Автор: Vit Belov
+
+### 12.04.2004 news Hecate Enthroned выложили песню
+
+<B>HECATE ENTHRONE</B> выложили в сеть одну песню со своего нового альбома '<B>Redimus</B>'. "<B>An Eternal Belief</B>" с участием вокалиста <B>AKERCOCKE Jason</B> можно скачать на нашем сайте <A href="/samples/h/hecate_enthroned/2004_1046.mp3">http://musica.mustdie.ru/samples/h/hecate_enthroned/2004_1046.mp3</A>
+Автор: Vit Belov
+
+### 09.03.2010 news HECATE ENTHRONED закончили работу
+
+<P>Англичане <STRONG>HECATE ENTHRONED</STRONG> закончили работу над новым альбомом <STRONG>"Virulent Rapture". </STRONG>Пластинка должна выйти в этом году, но контракт на её издание ещё не подписан. </P>
+Автор: Vit Belov
+
+### 01.11.2013 news HECATE ENTHRONED в этом месяце
+
+<P>Долгожданный альбом британцев<STRONG> HECATE ENTHRONED</STRONG> <STRONG>"Virulent Rapture" </STRONG>выйдет 25 ноября на <STRONG>Crank Music</STRONG>. Трек-лист:</RIGHT></P>
+<P>01. <B>Thrones Of Shadow</B><BR>02. <B>Unchained</B><BR>03. <B>Abyssal March</B><BR>04. <B>Plagued By Black Death</B><BR>05. <B>Euphoria</B><BR>06. <B>Virulent Rapture</B> (feat. Sarah Jezebel Deva) <BR>07. <B>Life</B><BR>08. <B>To Wield The Hand Of Perdition</B><BR>09. <B>Of Witchery And The Blood Moon</B><BR>10. <B>Immateria</B><BR>11. <B>Paths Of Silence</B></P>
+<P><B></B>
+<CENTER><B><IMG border=0 hspace=0 alt="" src="/images/news_rus/2013.11/26294.jpg" width=450 height=461></B> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

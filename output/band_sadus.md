@@ -101,6 +101,62 @@ In Jan.-Feb. '92
 * C группой "Faust [ITA]" Steve DiGiorgio (bass)
 * C группой "Dragonlord" Steve DiGiorgio (bass)
 
+## Публикации
+
+### 22.05.1999 news 
+
+<p>Control Denied покинул басист Скотт Кленденин. Чак Шульдинер уже нашёл замену - это Стив ДиДжорджио, известный по работе с Sadus и Testament. Также рассматривается возможности игры Стива на будущем альбоме Death.</p>
+
+Автор: Vit Belov
+
+### 29.10.1999 reviews 
+
+<p>Привет всем, кто любит техно-дэт, ибо группа Sadus это образец в этом интересном и не очень популярном стиле, даже, среди метал-фэнов, всем остальным тоже привет. Альбом не новый и я не претендую на супер-новостную рецензию, но поскольку ее нет в списке, я решил, что НАДО. Кто знает эту команду по предыдушим альбомам -- "Illusions" 88, ? "Swallowed In Black" 90, -- "A Vision Of Misery" 92, тот помнит как неистово они играли на альбомах 90-го и 92-го года, ребята играют вчетвером, среди которых Стив Диджорджио - басс гитарист, на мой вгляд, да и не только на мой, один из лучших бас-гитаристов металлического мира. Он нарезал вместе с Чаком Шульдинером в команде Death на альбомах "Human" и "Individual Thought Patterns". Чак его приглашал и на последний альбом "The Sound Of Perseverance", но Стиви отказался, сосредоточившись на альбоме "Element of Anger" в своей родной команде. Группа имеет тенденцию делать перерывы в выпусках альбомов, на этот раз тоже не обошлось и разрыв был очень долгий - целых 7 лет, поскольку я не считаю compilation "Chronicals of Chaos", 97-го года выпуска, полноценным альбомом, это всего лишь сборник из песен 88, 90, 92 годов. Сборник не плох, но сейчас не о нем. Он и новый альбом выпущен студией "Mascot Records". Они ушли с "Roadrunner", это лишний раз доказывает, что для этой комнда музыка важнее денег. Итак "Element of Anger"... ребята стали играть чуть медленне, ранее скорость была свехзвуковой, и не одна speed-metal группа , на мой взгляд, не могла с ними сравниться по скорости. При этом проффесионализм вырос очень и даже очень, композиции стали более интересными, более тяжелыми, которые можно сравнить с надвигающейся грозовой тучей черного цвета. Стиви использует всякого рода басс-гитары, в том числе и безладовую, которая кстати позволяет извлекать очень интересное звучание. Звук замечательно спродюссирован, все чисто, отполировано, отточено, слаженно. Одним словом альбом представляет собой высокотехничный death с довольно своеобразным (то очень грубым, то передавленным) вокалом. Если сравнивать этот альбом с "пирожками" других команд, то это пожалуй смесь из Atheist "Elements" и Napalm Death "Fear, Emptiness, Despair" только медленне. Рекомендовано тем, кого интересует не только забой и рык, но и музыкальная сложность. После прослушивания, я обещаю вам состояние человека, которого расплющил паровой молот. Меньше чем 10 из 10 поставить не могу, даже если бы хотел. CoRONeR.</p>
+
+Автор: Vit Belov
+
+### 05.12.2000 news Хорошее приобретение для &quot;ICED EARTH&quot;
+
+<p>Хорошее приобретение для "ICED EARTH". Помимо нового драммера Richard Christy (DEATH и CONTROL DENIED) в команде появился супер-басист Steve DiGiorgio (SADUS, TESTAMENT). Кроме того, уже практически закончена работа над полноформатником "Horror Show", дата релиза которого передвинута на май 2001.</p>
+
+Автор: Yermola
+
+### 30.03.2001 news Петерс Поп Шоу продолжается...
+
+<p>Бэй Ариа легенда Эрик Петерсон ("Testament") родил новый проект "DRAGONLORD". Уже достигнута договоренность со "Spitfire Records" на выпуск дебютника "Rapture" летом 2001. Эрику помогают братья по оружию: Jon Allen ("Sadus") - барабаны, Lyle Livingston ("Psypheria") - оркестровки, Steve Smyth ("Vicious Rumors") - соло гитара и сам Петерсон - вокал и ритм гитара. "Идея Dragonlord появилась у меня еще во время записи 'The Gathering' в 1998 году" - говорит Эрик. "Я кое что делал вместе с Дэйвом Ломбардо и ему очень понравился мой вокал. "Ты должен создать собственный проект!" - сказал он."</p>
+
+Автор: Yermola
+
+### 30.03.2001 news Testament&#39;s Eric Peterson forges his own musical vision with DRAGONLORD
+
+<p>As the founding guitarist of Bay Area metal legends Testament, Eric Peterson has helped to keep the heavy metal flame burning for nearly two decades. Spitfire Records is proud to announce plans for Peterson's brand new project, DRAGONLORD. The bands debut album, "Rapture", is scheduled for a summer 2001 release.<BR><BR>Brought to life with comrades Jon Allen (Sadus) on drums, Lyle Livingston (Psypheria) on orchestrated keys of oblivion, Steve Smyth (Vicious Rumors) on lead guitar, Steve DiGiorgio (who needs no introduction) on fretless bass guitar and Peterson on vocals and rhythm/lead guitar, DRAGONLORD monolithically embraces classical and goth, while simultaneously dealing out some deathened blackness to provide controlled melodic insanity.<BR><BR>"Dragonlord was an idea I had floating around at about the time Testament was getting ready to record 'The Gathering' in mid 98," says Peterson. "I was playing some stuff for (drummer) Dave Lombardo and he was like 'dude that's you singing? You should do a project!' He kinda sparked the idea for me again. I wanted to do something more goth mixed with classical influences, more Euro sounding type stuff. I didn't want to lay that down on Testament since we got our knack back, so I decided to form Dragonlord. Now that the songs are born and I'm hearing them, they are exactly the way I pictured them! Beautifully eerie!"</p>
+
+Автор: Yermola
+
+### 11.04.2001 news Заявление Steve DiGiorgio ....
+
+<p>Супер-пупер бассист Steve DiGiorgio (TESTAMENT, SADUS, ICED EARTH, CONTROL DENIED) опубликовал на своем сайте следующее заявление: "Альбом "ICED EARTH" - Horror Show готов и ждет своего релиза на Century Media в июне. Я больше не работаю в проекте SPASTIC INK (с гитаристом WATCHTOWER - Ron Jarzombek). Не спрашивайте почему... Запись нового СД CONTROL DENIED пока приостановлена из за проблем с графиком. Но многое уже сделано и вообще работа будет завершена в ближайшие месяцы. Также сейчас мы где-то посередине процесса записи альбома DRAGONLORD (почти все участники TESTAMENT кроме Чака). Барабаны и гитары уже записаны. В течении следующей недели я буду записывать басс (одновременно с клавишами). Сами TESTAMENT отказались от участия в шоу до выздоровления Чака. Также я и Darren сочиняем материал для нового альбома SADUS...."</p>
+
+Автор: Yermola
+
+### 11.04.2001 news Steve DiGiorgio has posted the following update on his official site....
+
+<p>Bassist extraordinaire Steve DiGiorgio (i.e. TESTAMENT, SADUS, ICED EARTH, CONTROL DENIED) has posted the following update on his official web site: “The ICED EARTH album, Horror Show is done and awaiting a mid June release on Century Media. I am no longer working on [WATCHTOWER guitarist Ron Jarzombek’s] SPASTIC INK project... Don't ask. CONTROL DENIED's newest recording is still in limbo because of some weird scheduling problems. But some of it is done, and we'll be finishing it up in the coming months. We're right in the middle of the recording of DRAGONLORD [featuring TESTAMENT’s Eric Peterson on guitar/vocals, plus most of the remaining TESTAMENT members, minus vocalist Chuck]. Drums and most of the guitars are done. I'll be starting bass this week sharing time with Lyle's keyboards. TESTAMENT hasn't officially pulled out of the shows coming up at the end of May/early June [in Europe]. We're waiting on Chuck [Billy]'s word and condition. For those of you who don't know about what's befallen Chuck, you can read all about it on www.testamentlegions.com. Writing is still going on between me and Darren for the new SADUS album. Slowly, but slowly.”</p>
+
+Автор: Yermola
+
+### 08.05.2003 news SADUS пишут новый альбом
+
+<p>Ветераны-трэшеры из Сан-Франциско SADUS начали работу над материалом для своего следующего альбома. Выход альбома планируется в конце 2003 или в начале 2004 года.</p>
+
+Автор: Dimas
+
+### 22.04.2005 news SADUS пишут новый альбом
+
+<P>Ветераны&nbsp;&nbsp;американского Bay Area thrash metal <B>SADUS</B> записывают в <B>Trident Studios</B> свой пятый альбом, пока не имеющий названия, выход которого ожидается в конце лета на&nbsp;<B>Mascot Records</B>. Продюсером записи выступил <B>Borge Finstad</B> (известный по работе с <B>MAYHEM</B>, <B>BORKNAGAR</B>, <B>VINTERSORG</B>, <B>EXTOL</B>). После записи, альбом пройдет микширование в норвежской <B>Toproom</B> <STRONG>studios</STRONG>. А ближе к концу года, музыкантами планируется выпуск концертного dvd.</P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### Адский Sadus...

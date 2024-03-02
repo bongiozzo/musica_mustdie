@@ -8,6 +8,17 @@ Italian heavy metal band
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.07.2011 news Дебютный альбом CRAWLER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.07/20296.jpg" width=400 align=right border=0>Итальянские heavy-metal'исты <STRONG>CRAWLER</STRONG> выпустили свой дебютный альбом "<STRONG>Knight of the Word</STRONG>" на <STRONG>SG records</STRONG> 15 июля. Продюсером работы выступил <STRONG>Beau Hill</STRONG>, а лирическая основа была вдохновлена произведением <STRONG>Терри Брукса</STRONG>. Лэйбл обещает нам классический heavy-metal.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Подробнее об альбоме: <A href="http://www.sgrecords.it/index.php?option=com_muscol&view=album&id=36&Itemid=73">http://www.sgrecords.it/index.php?option=com_muscol&view=album&id=36&Itemid=73</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>1. <STRONG>Crawler</STRONG> &nbsp;5:01&nbsp; <BR>2.&nbsp;<STRONG>Speed</STRONG> &nbsp;4:20&nbsp; <BR>3.&nbsp;<STRONG>Danger! (On Elm Street)</STRONG> &nbsp;7:19&nbsp; <BR>4.&nbsp;<STRONG>Burst </STRONG>&nbsp;5:36&nbsp; <BR>5.&nbsp;<STRONG>Angels In Paradise</STRONG> &nbsp;4:58&nbsp; <BR>6.&nbsp;<STRONG>Cagliostro </STRONG>&nbsp;4:42&nbsp; <BR>7.&nbsp;<STRONG>Masters Of The Night</STRONG> &nbsp;4:09&nbsp; <BR>8.&nbsp;<STRONG>Sick Song</STRONG> &nbsp;3:46&nbsp; <BR>9.&nbsp;<STRONG>Undeads </STRONG>&nbsp;4:00&nbsp; <BR>10.&nbsp;<STRONG>The King Will Come</STRONG> &nbsp;8:42&nbsp; <BR>11.&nbsp;<STRONG>Knight Of The Word</STRONG> &nbsp;5:19&nbsp; </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

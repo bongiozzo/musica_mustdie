@@ -98,6 +98,381 @@ Artwork and design by Marcus Losbjer.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.12.2000 news WOLVERINE заключила новый контракт
+
+<p>Шведская progressive-metal группа WOLVERINE заключила новый контракт с Emerald Factory из Германии. В контракте оговорено три релиза, первым из которых станет переиздание альбома "Fervent Dream" в начале следующего голда. Далее в июле группа отправится в Германию для записи первого полнометражного альбома. Он будет называться "The Windo Purpose" и выйдет в октябре.</p>
+
+Автор: Vit Belov
+
+### 19.12.2000 news Wolverine has decided to choose a deal with a new record label
+
+<p>Swedish progressive band Wolverine has decided to choose a deal with a new record label based in Germany, called EMERALD FACTORY. The deal is based on 3 albums. First EMERALD FACTORY will re-release "Fervent Dream" as a digipack early next year. In July 2001 WOLVERINE will travel to Germany to enter Spacelab Studio (from the EVERON-guys) to record the first full-length album. This album will be entitled "The Windo Purpose" and will see daylight in october 2001.</p>
+
+Автор: Vit Belov
+
+### 22.08.2002 news DVS Records news....
+
+<p>* DVS Records signgs Chrome Shift from Denmark!<BR> We are proud to announce a new band that joins us, Danish band Chrome Shift. The band recently signed a management deal with Intromental Management and now have signed a worldwide deal with us for the release of their debut album early 2003. More about this when we are closer to the release date.<BR><BR> * Preview Heaven's Cry album<BR> Well, the promotion for the Heaven's Cry CD "Primal Power Addiction" will start now in Europe, the promo copies just arrived and the result is great! We are not sure when the album will be officially out in the USA, we are waiting for the announcement from our partner MetalHertz. Those who can't wait, check out the DVS website, we have uploaded one sampler from the album. Still one week to go to win a signed copy of this long awaited new CD. Check it out!<BR><BR> * Wolverine signs to Elitist / Earache<BR> With a little sadness we have to announce that Wolverine signs to Elitist / Earache records for the next album, with an option for 3 more. But on the other hand we are proud that the band can sign to a major label and because our philosophy is helping young bands with their first steps in the music scene we helped them out with this deal. After Into Eternity who will sign to Century Media it is the second band that will sign to a major label, and that is just what we wanted when we started DVS Records.<BR><BR> Greetings,<BR> DVS Records<BR><BR> DVS records<BR> Vergelt 5a<BR> 5991 PJ BAARLO<BR> The Netherlands<BR> tel. +31 774778311<BR> fax. +31 774778310<BR><BR> <A HREF="http://www.dvsrecords.com/">http://www.dvsrecords.com/</A><BR> info@dvsrecords.com</p>
+
+Автор: Yermola
+
+### 06.04.2003 news Новая работа WOLVERINE
+
+<p>Шведская группа WOLVERINE закончила запись своего второго альбома под названием "Cold Light Of Monday". Выход альбома намечен на июнь 2003 года через Elitist Records. Окончательный трэк-лист альбома выглядит следующим образом:</p>
+<P> 1. Dawn<BR> 2. Sarah <BR> 3. New Best Friends <BR> 4. Tightrope <BR> 5. Carousel <BR> 6. Pantomime <BR> 7. Red Canvas<BR> 8. Dusk <BR> 9. Tied With Sin <BR> 10. The Final Redemption</>
+<P> В качестве бэк-вокалистов на альбоме отметились Fredrik Sjoholm (VENI DOMINE) и Urban Breed (TAD MOROSE).</>
+
+Автор: Dimas
+
+### 09.04.2003 news Новости от Elitist Records
+
+<p>Окончательно определилась дата выхода нового альбома обнинской группы RAKOTH "Tiny Deaths". Третья работа музыкантов-авангардистов-экспериментаторов выйдет 19 мая 2003 года.</p>
+<P> WOLVERINE закончили запись своего третьего альбома "Cold Light Of Monday". Материал альбома радикально отличается от предыдущего творчества группы. Выход его намечен на июнь 2003 года.</>
+<P> Вскоре выходит дебютный альбом многообещающей финской группы FARMAKON под названием "A Warm Glimpse". Группа играет довольно оригинальный и высокотехничный melodic death metal.</>
+
+Автор: Dimas
+
+### 08.08.2003 news WOLVERINE завершили перезапись
+
+<p>Шведские прогрессоры WOLVERINE завершили перезапись своего нового творения "Cold Light Of Monday". Альбом выйдет в октябре через Elitist Records. Трэк-лист остался тем же:</p>
+<p> <IMG SRC="/images/news_rus/2003.08/4690.jpg" ALT="pho" width=250 height=250 hspace="15" vspace="5" border="1" align="right">1. Dawn<BR> 2. Sarah<BR> 3. New Best Friends<BR> 4. Tightrope<BR> 5. Carousel<BR> 6. Trust<BR> 7. Pantomime<BR> 8. Red Canvas<BR> 9. Dusk<BR> 10. Tied With Sin<BR> 11. The Final Redemption</p>
+<p> <A HREF="http://musica.mustdie.ru/samples/w/wolverine/2003_845.mp3">На нашем сайте</A> можно ознакомиться с одной из композиций с этого альбома под названием "Tied With Sin".</p>
+
+Автор: Dimas
+
+### 21.09.2003 news Wolverine выпускают новый альбом
+
+<P class=theText><IMG height=200 alt="" hspace=0 src="/images/news_rus/2003.09/4853.jpg" width=200 align="right" border=0>17 ноября 2003 года на <B>ELITIST RECORDS</B> выйдет новый альбом <B>WOLVERINE</B> <B>'Cold Light of Monday'</B>. Группа закончила съёмки видео-клипа на песню с этого альбома <B>'New Best Friends'.</B> Режисёром стал барабанщик группы <B>Marcus Losbjer.</B> Трэк-лист альбома<B>:</B><BR>01. <B>Dawn</B><BR>02. <B>Sarah</B><BR>03. <B>New Best Friends</B><BR>04. <B>Tightrope</B><BR>05. <B>Carousel</B><BR>06. <B>Trust</B><BR>07. <B>Pantomime</B><BR>08. <B>Red Canvas</B><BR>09. <B>Dusk</B><BR>10. <B>Tied With Sin</B><BR>11. <B>The Final Redemption</B> </P>
+Автор: Vit Belov
+
+### 28.10.2003 news WOLVERINE new album
+
+<B>WOLVERINE</B> are gearing up for the November 17th release of their Elitist debut "<B>Cold Light Of Monday</B>".
+Автор: Vit Belov
+
+### 12.03.2004 articles TOP-50 лицензионных дисков за февраль
+
+<TABLE cellSpacing=0 cellPadding=0 width=622 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 152pt" width=203>
+<COL style="WIDTH: 218pt" width=291>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=203><B>ЭПИДЕМИЯ</B></TD>
+<TD width=291><B>ЭЛЬФИЙСКАЯ РУКОПИСЬ</B></TD>
+<TD width=64><B>Moroz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>KING OF FOOLS (mini CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PRIMAL FEAR</B></TD>
+<TD><B>DEVIL'S GROUND</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HYPOCRISY</B></TD>
+<TD><B>THE ARRIVAL</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THUNDERSTONE</B></TD>
+<TD><B>THE BURNING</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>BESEECH</B></TD>
+<TD><B>DRAMA + multimedia section</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EXODUS</B></TD>
+<TD><B>TEMPO OF THE DAMNED</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AXEL RUDI PELL</B></TD>
+<TD><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>9 (1)</B></TD>
+<TD><B>СЕРГЕЙ МАВРИН (ex-АРИЯ)</B></TD>
+<TD><B>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (10)</B></TD>
+<TD><B>DRACONIAN</B></TD>
+<TD><B>WHERE LOVERS MOURN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>SALTATIO MORTIS</TD>
+<TD>ERWACHEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DVAR</TD>
+<TD>RAKHILIM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>ONE OF THE 18 ANGELS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIARY OF DREAMS</TD>
+<TD>FREAK PERFUME</TD>
+<TD>Irond-DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (2)</TD>
+<TD width=203>ICED EARTH</TD>
+<TD width=291>THE GLORIOUS BURDEN</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>L'AME IMMORTELLE</TD>
+<TD>SEELENSTURM</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE CROWN</TD>
+<TD>POSSESSED 13</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>LAST TRIBE</TD>
+<TD width=291>THE UNCROWNED</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MYSTIC PROPHECY</TD>
+<TD>VENGEANCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>ZZYZX + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BELPHEGOR</TD>
+<TD>LUCIFER INCESTUS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (3)</TD>
+<TD>ANDRE ANDERSEN</TD>
+<TD>OCEANVIEW</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>THE ART OF CREATING CONFUSING SPIRITS</TD>
+<TD>Irond -DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>25 (23)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26(4)</TD>
+<TD>POVERTY'S NO CRIME</TD>
+<TD>THE CHEMICAL CHAOS</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (7)</TD>
+<TD>ZYKLON (ex-EMPEROR)</TD>
+<TD>AEON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (11)</TD>
+<TD width=203>TVANGESTE</TD>
+<TD width=291>FIRESTORM</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>WOLVERINE</TD>
+<TD width=291>COLD LIGHT OF MONDAY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ZEROMANCER</TD>
+<TD>EUROTRASH</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>31 (20)</TD>
+<TD>KORPIKLAANI</TD>
+<TD>SPIRIT OF THE FOREST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SABBTAIL</TD>
+<TD>NIGHTCHURCH</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MERCYFUL FATE</TD>
+<TD x:num>9</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE BLACK LEAGUE</TD>
+<TD>MAN'S RUIN REVISITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>MANDRAKE</TD>
+<TD width=291>CALM THE SEAS</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAMSCAPE</TD>
+<TD>END OF SILENCE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (39)</TD>
+<TD>NEGATIVE</TD>
+<TD>WAR OF LOVE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>PINK CREAM 69</TD>
+<TD width=291>THUNDERDOME</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>UFO</TD>
+<TD>YOU ARE HERE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (Re)</TD>
+<TD>CATHARSIS</TD>
+<TD>ИМАГО +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>ILLNATH</TD>
+<TD>CAST INTO FIELDS OF EVIL PLEASURE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>WOLFSHEIM</TD>
+<TD>CASTING SHADOWS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MELECHESH</TD>
+<TD>DJINN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>CADAVERIA</TD>
+<TD width=291>FAR AWAY FROM CONFORMITY</TD>
+<TD>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGELLAN</TD>
+<TD>IMPOSSIBLE FIGURES</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIABOLICAL MASQUERADE</TD>
+<TD>RAVENDUSK IN MY HEART</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (15)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>TENHI</TD>
+<TD width=291>KAUAN</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (9)</TD>
+<TD width=203>DARK MOOR</TD>
+<TD width=291>DARK MOOR</TD>
+<TD width=64>CD-Max</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=203>DREAMTIDE</TD>
+<TD width=291>DREAMS FOR THE DARING</TD>
+<TD width=64>CD-Max</TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Второй месяц подряд в нашем рейтинге побеждает российский исполнитель. На этот раз это 'Эльфийская Рукопись' от ЭПИДЕМИИ. Не знаю, как где, а в Москве был создан дикий ажиотаж вокруг этого альбома. Поздравления, группе. Им удалось обогнать EP от EDGUY (очень высокое место для мини-альбома), PRIMAL FEAR и других коллег по жанру. Радует высокое место re-union альбома от thrash-группы EXODUS. Совсем не удивляет место в десятке BESEECH (gothic-metal), THUNDERSTONE (power-metal), HYPOCRISY (death-metal). Маврин немного упал, что и не удивительно. А AXEL RUDI PELL только начинает своё движение наверх - альбом вышел только в конце месяца. Уже&nbsp;третий месяц в десятке gothic-metal от DRACONIAN - немногие группы могут похвастаться подобной статистикой.</P>
+<P>Не удивляетесь, месту MY DYING BRIDE - у него&nbsp;тот же случай, что и у Акселя. ICED EARTH начинает падать, но у этого альбома ещё есть перспективы. Также третий месяц в 50 TVANGESTE и KORPIKLAANI, DEATHSTARS, DARK MOOR,&nbsp;а KING DIAMOND на плаву уже четвёртый месяц. Скоро падёт рекорд GRAVEWORM&nbsp;и&nbsp;HELLOWEEN (6 месяцев) -&nbsp;обе эти позиции вылетели из 50 только в феврале.</P>
+<P>Касаться, деятельности фирм-лэйблов наверное сильно не стоит. Всем видно, что в феврале грамотно отработали только Irond и Soyuz. Остальные просто отдохнули в прямом и переносном стиле. AMG сделал только три новинки. Fono - 6-7. А CD-Maximum, как обычно, cделал много, но работает скорее вширь, чем вглубь.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 31.01.2005 news Earache переиздадут дебютник WOLVERINE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первый альбом <STRONG>WOLVERINE 'The Window Purpose'</STRONG> будет переиздан на<STRONG> Earache</STRONG> 14 марта. Пластинка выйдет с бонус-трэками.</FONT></P>
+Автор: Vit Belov
+
+### 15.02.2005 reviews Поклонникам старого доброго прога
+
+<P>Удивительно, что данный коллектив вышел на Earache - обычно диски с таким музыкальным содержанием выпускает лейбл InsideOut. Стилистика группы - довольно интересный прогрессив - рок с металлическими вкраплениями. Немногочисленные клавишные партии имеют характерный "хаммондовский"&nbsp; саунд, чистый хард - роковый вокал, изредка сменяющийся в некоторых композициях глубоким гроулингом а-ля Аморфис. Построение вокальных партий&nbsp; почему-то напомнило мне местами Вебберовский "Jesus Christ Superstar". Одним словом -&nbsp; музыка, уходящая корнями в далекие 70-е. Альбом ранее издавался небольшим&nbsp; тиражом и имел хождение в андеграундной тусовке, но теперь, после подписания контракта с Elitist, можно надеяться, что группу ждет если не сногсшибательный успех, то уж гарантированно достойное место в прог - металлической среде. </P>
+<P>Диск предоставлен Концерном "Группа СОЮЗ"</P>
+Автор: Fucker
+
+### 04.07.2005 news WOLVERINE записывают новый альбом
+
+<P><STRONG>WOLVERINE </STRONG>продолжают запись новой пластинки, которая увидит свет в этом году на <STRONG>Earache</STRONG>. Подробности пока не сообщаются.</P>
+Автор: Vit Belov
+
+### 04.07.2005 news WOLVERINE are recording new album
+
+<P><STRONG>WOLVERINE</STRONG> are recording new album to release it through <STRONG>Earache</STRONG> this year.</P>
+Автор: Vit Belov
+
+### 11.08.2005 news Подробности о новом альбоме WOLVERINE
+
+<P>Шведы <STRONG>WOLVERINE</STRONG>&nbsp;закончили запись (в немецкой <STRONG>Spacelab</STRONG> <STRONG>studio</STRONG>)&nbsp;своего нового альбома <STRONG>"Still". </STRONG>На конец августа запланировано микширование альбома, а его выход ожидается в октябре-ноябре на <STRONG>Elitist</STRONG>/<STRONG>Earache Records</STRONG>. &nbsp;В альбом войдут следующие вещи:</P>
+<P>1. <B>A House of Plague</B><BR>2. <B>Bleeding</B><BR>3. <B>Taste of Sand</B><BR>4. <B>Nothing More</B><BR>5. <B>Sleepy Town</B><BR>6. <B>Liar on the Mount</B><BR>7. <B>Hiding</B><BR>8. <B>This Cold Heart of Mine</B><BR>9. <B>And She Slowly Dies</B> </P>
+Автор: Dimas
+
+### 08.03.2006 news WOLVERINE на Candlelight
+
+<P><STRONG>WOLVERINE </STRONG>заключили сделку с <STRONG>Candlelight</STRONG> на выпуск нового альбома "<STRONG>Still</STRONG>". Трэк-лист:</P>
+<P>01. <B>A House of Plague</B><BR>02. <B>Bleeding</B><BR>03. <B>Taste of Sand</B><BR>04. <B>Nothing More</B><BR>05. <B>Sleepy Town</B><BR>06. <B>Liar on the Mount</B><BR>07. <B>Hiding</B><BR>08. <B>This Cold Heart of Mine</B><BR>09. <B>And She Slowly Dies</B> </P>
+Автор: Vit Belov
+
+### 18.07.2006 reviews В лапах шведской росомахи
+
+<P>Wolverine по-английски означает "росомаха", утверждает словарь. Нет-нет, наша отечественная группа тут совершенно не при чем, речь идет о шведском проговом коллективе. Собственно, "The Window Purpose" уже издавался - в 2001-ом году на лейбле DVS Records.&nbsp; Но вот вездесущий Earache, продолжая действовать по принципу "беру всё, что плохо лежит", решил переиздать этот альбом, утверждая, что его тираж был крайне мал и давно уже распродан. Ну, чего не знаем, о том и не говорим. Распродан так распродан. Тем более, что это более чем вероятно, ибо в каталоге у DVS всего-навсего 14 позиций. В любом случае, с "The Window Purpose" мы имеем прекрасный образчик прогрессива, made in Sweden, короче, сделано с умом, как гласит реклама. Многие сравнивают Wolverine с Dream Theater, но это скорее традиционное сравнение, ведь у шведов куда больше заходов именно в прог как таковой, а не в прог-метал. Можно даже говорить о прогроке, только сильно утяжеленном и более жестком, чем о прогрессив-метале. Да и такие потрясающие баллады, как 'Leaving Yesterday' (с очень красивым женским вокалом), более типичны для артроковых коллективов. В общем и целом, дебютник у "шведской росомахи" удался. Пусть резкие переходы "быстро-медленно" не являются сегодня чем-то особенным, как и сочетание чистого вокала с гроулингом. Но на пластинке нет, слава Богу, долгих и нудных инструментальных кружений на одном месте, вокал Mikael'а Zell'а тоже выгодно отличает его от коллег по жанру (если мы все-таки говорим о прог-метале). Я слышал о сравнении группы, как о смеси Opeth, Pain Of Salvation и Evergrey, но это, по большому счету, также притянуто за уши, ибо многие критики видят свою задачу только в том, чтобы найти "а на кого это похоже", припоминая все более-менее известные команды из соответствующей страны. Лучше просто слушайте и наслаждайтесь, альбом действительно этого стоит. А от оригинального варианта он отличается бонус-трэком 'Again!', который, впрочем, вы могли слышать на EP шведов 'Fervent Dream' (также 2001-года; возможно, поэтому композиция так удачно вписалась в основной материал). Кстати, нельзя не отметить шведское чувство юмора: не каждая группа рискнет назвать открывашку 'End' и так заливисто похохотать в том же 'Again!'</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 02.01.2009 news WOLVERINE возобновили работу
+
+<P><IMG height=225 alt="" hspace=0 src="/images/news_rus/2009.01/13269.jpg" width=300 align=left border=5>Барабанщик <STRONG>WOLVERINE</STRONG> <STRONG>Marcus Losbjer </STRONG>распространил предновогодний "апдэйт" о ситуации дел в группе:</P>
+<P>"<EM>После трёхлетнего отсутствия вдохновения мы вновь возвращаемся к идее о новом альбоме. Будущий альбом станет самым сложным в нашей карьере, в отличии от предыдущего "Still", который был сочинён и записан очень быстро и легко. У нас были и личные проблемы в прошлом году. У дочери вокалиста Stefan Zell обнаружились проблемы с сердцем. Смешавшись со сложностями в сочинении материала, эти проблемы образовали один большой взрывоопасный ком, который, к счастью, не взорвался. После октябрьского фестиваля ProgPower мы ощутили некоторый прилив творческих сил и возвращаемся к работе</EM>".</P>
+Автор: Vit Belov
+
+### 02.02.2009 news WOLVERINE записали демо
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Prog-metal банда <STRONG>WOLVERINE</STRONG> записала демо к своему новому альбому и готовит его к отправке на издающий лэйбл для одобрения.</FONT></P>
+Автор: Vit Belov
+
+### 25.02.2009 news WOLVERINE назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>WOLVERINE</STRONG>, о работе над которым мы уже рассказывали, получил название <STRONG>'Communication Lost'</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

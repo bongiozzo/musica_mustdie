@@ -59,6 +59,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.03.2016 news BROKEN BONES: доски для скейборда
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2016.03/29010.jpg" width=400 height=469>Британские панки <STRONG>BROKEN BONES</STRONG>, которые по сути являются дочерним предприятием легендарной группы <STRONG>DISCHARGE</STRONG>, совместно с американской конторой <STRONG>"Aces & 8's Customs"</STRONG>, выпустили доски для скейтборда.</P>
+<P>Всего было сделано 100 штук.</P>
+<P>Заказать можно связавшись через контактную форму на сайте компании:<BR><A href="http://acesand8scustoms.weebly.com/contact.html">http://acesand8scustoms.weebly.com/contact.html</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -28,6 +28,9 @@ Recorded At Time Capsule Studios,Denver,Colo.
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

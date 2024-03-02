@@ -21,6 +21,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.09.2011 news Дебютный альбом LOST REFLECTION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=393 alt="" hspace=0 src="/images/news_rus/2011.09/21017.jpg" width=400 align=right border=0>Итальянская hard'n'heavy команда<STRONG> LOST REFLECTION</STRONG> выпустила свой дебютный альбом "<STRONG>Florida</STRONG>" на <STRONG>SG Records</STRONG>. Коллектив предлагает американский вариант стиля, рекомендуемый к прослушиванию на скорости 130 миль в час. Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Media Violence</STRONG>&nbsp; 02:59&nbsp;&nbsp; <BR>2. <STRONG>Bad Love</STRONG>&nbsp; 03:49&nbsp;&nbsp;&nbsp; <BR>3. <STRONG>On Your Skin</STRONG>&nbsp; 03:16&nbsp; <BR>4. <STRONG>Blame It On Love</STRONG>&nbsp; 02:54&nbsp; <BR>5. <STRONG>Crucified</STRONG>&nbsp; 03:02&nbsp; <BR>6. <STRONG>Don't Leav Me Alone</STRONG>&nbsp; 03:52&nbsp; <BR>7. <STRONG>Here We R</STRONG>&nbsp; 02:17&nbsp; <BR>8. <STRONG>Wings Of Glory</STRONG>&nbsp; 03:40 <BR>9. <STRONG>Our Drug Is Our Heart</STRONG>&nbsp; 02:51 <BR>10. <STRONG>Nitefall</STRONG>&nbsp; 05:17 </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MySpace</STRONG>: <A href="http://myspace.com/lostreflectionband">http://myspace.com/lostreflectionband</A></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

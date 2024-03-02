@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.04.2006 news Новый альбом GRIND INC.
+
+<P>Немецкие брутальные дэтстеры&nbsp;<B>GRIND INC.</B> подготовили к выпуску свой второй альбом под названием <STRONG>"Inhale the Violence".</STRONG> Он выйдет 25 мая на <STRONG>Morbid Records</STRONG>. После его записи, <STRONG>GRIND INC.</STRONG> распрощались с гитаристом <B>Jochen Pelser, </B>&nbsp;которого заменил <B>Thomas Granzow</B>, занятый также в составе <B>RESURRECTED</B>. Трек-лист нового альбома:<BR></P>
+<P><IMG height=249 alt="" hspace=15 src="/images/news_rus/2006.04/10203.jpg" width=250 align=left border=0>1. <B>Intro - Absorbing Brutality</B><BR>2. <B>Dead Body Costume</B><BR>3. <B>Rebirth of an Ancient Time</B><BR>4. <B>Cold Irregular Truth</B><BR>5. <B>Glorification of Violence</B><BR>6. <B>Congregation of The Extreme</B><BR>7. <B>Intro - Harbinger for the Doomed</B><BR>8. <B>Inhale the Swarm</B><BR>9. <B>Scanning the Molecules</B><BR>10. <B>While the Vile Wept</B><BR>11. <B>The Grinding Process</B><BR>12. <B>Peace by Pieces</B><BR><BR></P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

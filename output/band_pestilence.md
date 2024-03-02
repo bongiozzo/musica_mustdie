@@ -200,6 +200,155 @@ Artwork designed by Marko Saarelainen.
 * C группой "Mayan" Jeroen Paul Thesseling (bass)
 * C группой "Obscura" Jeroen Paul Thesseling (bass)
 
+## Публикации
+
+### 16.07.2003 news Roadrunner Records восстанавливает корни - 2
+
+<p>9 сентября Roadrunner Records подготовила вторую серию по изданию архивного материала. Напомню, первая серия состояла из выпуска семи сборников "The Best Of". Вторая серия представляет собой выпуск двух классических альбомов одной группы на одном диске. Среди них:</p>
+<p> ANNIHILATOR – "Alice In Hell" + "Neverland" <BR> CARNIVORE - "Carnivore" + "Retaliation" <BR> EXHORDER - "Slaughter In The Vatican" + "The Law" <BR> FRONT LINE ASSEMBLY - "Caustic Grip" + "Gashed Senses & Crossfire" <BR> GANG GREEN - "You Got It" + "Older" <BR> KING DIAMOND - "Abigail" + "Fatal Portrait" <BR> MERCYFUL FATE - "Melissa" + "In The Beginning" <BR> OBITUARY - "Slowly We Rot" + "Cause Of Death" <BR> PESTILENCE - "Consuming Impulse" + "Testimony Of The Ancients" <BR> SUFFOCATION - "Effigy Of The Forgotten" + "Pierced From Within"</p>
+
+Автор: Dimas
+
+### 11.02.2005 news Новый проект бывших музыкантов PESTILENCE
+
+<P>Бывшие участники голландского коллектива &nbsp;<B>PESTILENCE</B> - вокалист <B>Martin Van Drunen</B>&nbsp;и басист&nbsp;<B>Jeroen Paul Thesseling</B>&nbsp;присоединились к&nbsp;новому проекту под названием&nbsp;<B>PROJEKT TABUN</B>. Он был создан<STRONG>&nbsp;</STRONG>продюсером и гитаристом <B>Niels Drieenhuizen (KING LOCUST)</B>. Планируется запись в местной&nbsp;студии <B>Het Lab</B>. </P>
+Автор: Dimas
+
+### 21.01.2008 news PESTILENCE вернулись
+
+<P>Гитарист/вокалист <STRONG>Patrick Mameli</STRONG> решил возродить свой проект <STRONG>PESTILENCE</STRONG>. На новом этапе в группу войдут также басист <STRONG>Tony Choy</STRONG> (<B>ATHEIST</B>, <B>CYNIC</B>) и барабанщик <STRONG>Peter Wildoer</STRONG> (<B>DARKANE</B>, <B>NON-HUMAN LEVEL</B>). Новый альбом группы будет записан вместе с <STRONG>Jacob Hansen</STRONG> (<B>RAUNCHY</B>, <B>INVOCATOR</B>) и выйдет в ближайшее время на <STRONG>Mascot</STRONG>.</P>
+Автор: Vit Belov
+
+### 24.09.2008 news PESTILENCE войдут в студию
+
+<P>Вновь воссоединившиеся <STRONG>PESTILENCE</STRONG> войдут в студию Hansen в Дании в середине октября для записи новой пластинки "<STRONG>Resurrection Macabre</STRONG>". Альбом выйдет в 2009 году на <STRONG>Mascot</STRONG>.</P>
+Автор: Vit Belov
+
+### 02.12.2008 news Новый альбом PESTILENCE
+
+<P><STRONG>PESTILENCE</STRONG> вошли в студию <STRONG>Hansen</STRONG> в Дании в прошлом месяце для записи новой работы <STRONG>"Resurrection Macabre"</STRONG>. Пластинка выйдет 16 марта на Mascot.&nbsp;На первое лимитированное издание альбома войдёт 14 вещей, 11 новых песен и 3 перезаписанных классических боевика <STRONG>"Out Of The Body"</STRONG>, <B itxtvisited="1">"Chemo Therapy"</B>&nbsp;и <B itxtvisited="1">"Lost Souls"</B>.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 07.01.2009 news Новая песня PESTILENCE
+
+<P>Воссозданная группа<STRONG> PESTILENCE</STRONG> выложила на своей <STRONG>MySpace</STRONG> страничке новую песню <STRONG>"Horror Detox"</STRONG>, которая войдёт в новый альбом группы <STRONG>"Resurrection Macabre"</STRONG>, выходящий 13 марта на <STRONG>Mascot</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/pestilenceofficial">http://www.myspace.com/pestilenceofficial</A></P>
+Автор: Vit Belov
+
+### 04.02.2009 news Ещё одна новая песня PESTILENCE
+
+<P><STRONG>PESTILENCE</STRONG> выложили на свою <STRONG>MySpace</STRONG> страничку ещё одну новую песню <STRONG>"Hate Suicide (Last Hours Of A Suicide-Bomber)". </STRONG>Трэк попадёт на будущий альбом <STRONG>"Resurrection Macabre"</STRONG>, выходящий 13 марта на<STRONG> Mascot</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/pestilenceofficial">http://www.myspace.com/pestilenceofficial</A></P>
+Автор: Vit Belov
+
+### 03.03.2009 news Новая песня PESTILENCE
+
+<P><STRONG>PESTILENCE</STRONG> выложили ещё одну новую песню <STRONG>"Devouring Frenzy" </STRONG>на своей <STRONG>MySpace </STRONG>страничке. Новый альбом <STRONG>"Resurrection Macabre" </STRONG>выйдет 13 марта на<STRONG> Mascot</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/pestilenceofficial">http://www.myspace.com/pestilenceofficial</A></P>
+Автор: Vit Belov
+
+### 18.04.2009 news Новое видео PESTILENCE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео<STRONG> PESTILENCE</STRONG> на песню <STRONG>"Devouring Frenzy" </STRONG>можно посмотреть ниже. Композиция попала на последний альбом группы, вышедший 13 марта.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/j0AOaCNXygA&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/j0AOaCNXygA&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.07.2009 reviews Возвращение ещё одних классиков
+
+<P>Одним из несомненных событий прошлого года стало реформирование знаменитой голландской группы PESTILENCE. Любители прогрессивного death-metal имеют всё больше и больше поводов для оптимизма. CYNIC, ATHEIST, теперь PESTILENCE. Киты стиля возвращаются в строй.</P>
+<P>В новом составе PESTILENCE все знакомые лица. Нет только оригинального барабанщика Marco Foddis. Его место занял занятой шведский музыкант Peter Wildoer. Музыка на новом альбоме голландцев достаточно ожидаемая. Они не стали уходить практически в чистый progressive, как сделали CYNIC, они просто вновь порадовали любителей techno-death-metal. Кривые ходы, несомненная тяжесть звучания… Фанаты интеллектуального death-metal не прогадают, приобретя этот альбом, но саунд PESTILENCE настолько жестокий, что и люди не знакомые со славным прошлым голландцев, но просто любящие death-metal не останутся в стороне. Жаль только, что лично мне не показалось, что у PESTILENCE не было достаточного количества интересных идей перед записью “Resurrection Macabre”. Всё-таки то, что в начале альбома кажется свежим и интересным, уже приедается к его окончанию.</P>
+<P>Несомненный ‘must have’ для коллекционеров и фанатов старых death-metal групп, а также просто интересующихся историей тяжёлой музыки. Назвать же этот альбом триумфальным возвращением вряд ли получится.</P>
+Автор: Vit Belov
+
+### 05.09.2009 news PESTILENCE начали сочинять
+
+<P>Лидер <STRONG>PESTILENCE</STRONG> <STRONG>Patrick Mameli</STRONG> начал сочинять материал для нового альбома группы. Он обещает альбом с музыкой, которою никто ещё от <STRONG>PESTILENCE</STRONG> не слышал. Также сообщается о некой "перегруппировке" в составе группы. Суде по всему, <STRONG>Patrick</STRONG> будет набирать новых музыкантов.</P>
+Автор: Vit Belov
+
+### 30.10.2009 news В PESTILENCE вернулся басист
+
+<P>Басист <STRONG>Jeroen Paul Thesseling</STRONG>&nbsp;вернулся в <STRONG>PESTILENCE. </STRONG>Он играл на четвёртом альбоме группы<STRONG> "Spheres"</STRONG> 15 лет назад.</P>
+Автор: Vit Belov
+
+### 10.05.2010 news PESTILENCE назвали альбом
+
+<P><STRONG>PESTILENCE</STRONG> назвали свой будущий альбом <STRONG>"Doctrine". </STRONG>Пластинка выйдет в феврале 2011 года и будет спродюсирована <STRONG>V. Santura</STRONG> (<B itxtvisited="1">DARK FORTRESS</B>, <B itxtvisited="1">TRIPTYKON</B>).</P>
+Автор: Vit Belov
+
+### 05.01.2011 news PESTILENCE сняли фильм о Москве
+
+<P><STRONG>PESTILENCE </STRONG>выложили в сеть любительское видео о своём посещении Москвы 20 ноября. Каждый может увидеть знакомые места и знакомых людей. Например, при внимательно просмотре заметен наш вездесущий фотокорреспондент <STRONG>Headcrusher</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/f_WegQdGVes?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/f_WegQdGVes?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 04.03.2011 news Новый альбом PESTILENCE
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2011.03/18791.jpg" width=450 align=right border=0>Новый альбом голландцев <STRONG>PESTILENCE</STRONG> <STRONG>"Doctrine" </STRONG>выходит в конце апреля на <STRONG>Mascot</STRONG>. Пластинка была записана и сведена в <STRONG>Woodshed Studio </STRONG>продюсером <STRONG>Victor Bullok</STRONG> (<B>TRIPTYKON</B>, <B>DARK FORTRESS</B>). Обложку CD нарисовал <STRONG>Marko Saarelainen. </STRONG>Лидер группы <STRONG>Patrick Mameli </STRONG>сообщил, что новый альбом, как обычно, будет отличаться от своих предшественников. Трек-лист:</P>
+<P>01. <B>The Predication</B> (intro)<BR>02. <B>Amgod</B><BR>03. <B>Doctrine</B><BR>04. <B>Salvation</B><BR>05. <B>Dissolve</B><BR>06. <B>Absolution</B><BR>07. <B>Sinister</B><BR>08. <B>Divinity</B><BR>09. <B>Deception</B><BR>10. <B>Malignant</B><BR>11. <B>Confusion</B></P>
+<P>В составе коллектива сейчас:</P>
+<P><STRONG>Patrick Mameli</STRONG> - Guitar/Vocals<BR><B>Jeroen Paul Thesseling</B> - Fretless Bass<BR><B>Patrick Uterwijk</B> - Guitar<BR><B>Yuma Van Eekelen</B> - Drums</P>
+Автор: Vit Belov
+
+### 26.09.2011 news Члены PETILENCE и SADIST организовали новый проект
+
+<P>Басист<STRONG> Jeroen Paul Thesseling (PESTILENCE)</STRONG> объединил свои усилия с гитаристом/клавишником/продюсером <STRONG>Tommy Talamance (SADIST)</STRONG> в новом проекте <STRONG>NUFUTIC</STRONG>. Музыканты займутся поисками в стиле fusion-metal при помощи своих progressive-metal корней. Дуэт ищет барабанщика для своих целей.</P>
+<P><center><IMG height=199 src="/images/news_rus/2011.09/21277.jpg" width=300 border=0></P>
+<P><center><IMG height=376 src="/images/news_rus/2011.09/21278.jpg" width=250 border=0></P>
+Автор: Vit Belov
+
+### 07.12.2011 news PESTILENCE: новый альбом &quot;Obsideo&quot; в работе
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.12/22274.jpg" width=216 height=316>На своей странице в социальной сети Facebook, лидер группы <STRONG>PESTILENCE</STRONG> Патрик Мамели (<STRONG>Patrick Mameli</STRONG>) сообщил, что во всю работает над материалом к новому альбому, который уже получил название - <STRONG>"Obsideo"</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Патрик обещает, что новый альбом будет самым злым, техничным и быстрым за всю историю группы. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Голландцы, так же, ищут подходящий лейбл для выпуска нового полноформатника.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Два последних альбома <STRONG>PESTILENCE</STRONG> - <STRONG>"Ressurection Macabre"</STRONG> (2009) и <STRONG>"Doctrine"</STRONG> (2011), вышли на <STRONG>Mascot Records</STRONG>.</FONT></P>
+Автор: Headcrusher
+
+### 22.02.2012 news PESTILENCE: замена басиста и барабанщика
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.02/23109.jpg" width=203 height=300>Patrick Mameli</STRONG> <EM>(на фото)</EM>&nbsp;- гитарист/вокалист&nbsp;голландской команды <STRONG>PESTILENCE</STRONG> сделал следующее заявление:</P>
+<P><EM>"Басист <STRONG>Jeroen Paul Thesseling</STRONG> (<STRONG>NUFUTIC</STRONG>, <STRONG>OBSCURA</STRONG>) и барабанщик <STRONG>Yuma van Eekelen</STRONG> (<STRONG>EXIVIOUS</STRONG>, <STRONG>THE NEW DOMINION</STRONG>) приняли решение посвящать больше времени своим основным проектам,&nbsp;поэтому басист <STRONG>Stephan Fimmers</STRONG> (<STRONG>NECROPHAGIST</STRONG>) и барабанщик<STRONG> Tim Yeung</STRONG> (<STRONG>MORBID ANGEL</STRONG>, <STRONG>DIVINE HERESY</STRONG>, <STRONG>VITAL REMAINS</STRONG>, <STRONG>HATE ETERNAL</STRONG>) присоединятся к <STRONG>PESTILENCE</STRONG> для записи нового альбома <STRONG>"Obsideo"</STRONG> и живых выступлений."</EM></P>
+Автор: Headcrusher
+
+### 23.12.2012 news PESTILENCE: обложка альбома &quot;Obsideo&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист/гитарист и лидер легендарной голландской формации <STRONG>PESTILENCE</STRONG>, <STRONG>Patrick Mameli</STRONG>, опубликовал у себя на facebook-странице обложку нового альбома своего детища.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обложка принадлежит авторству конторы&nbsp;<A href="http://www.facebook.com/triple6design">"Triple Seis Design"</A>,&nbsp;за вывеской которой скрывается человек по имени <STRONG>Santiago Francisco Jaramillo</STRONG>.</FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.12/25182.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 19.02.2013 news PESTILENCE: новый лейбл и состав
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.02/25448.jpg" width=350 height=424>Death metal&nbsp;легенда <STRONG>PESTILENCE</STRONG> заключила договор с лейблом <STRONG>Candlelight</STRONG> о распространении своего нового,&nbsp;пока ещё не записанного&nbsp;альбома по всему Миру. Предыдущие два альбома голландцев вышли в свет на <STRONG>Mascot Records</STRONG>.</P>
+<P>В настоящее время <STRONG>PESTILENCE</STRONG> готовятся, чтобы войти в студию и начать работу над своим седьмым альбомом, названным <STRONG>"Obsideo"</STRONG>. Диск будет спродюсирован вокалистом/гитаристом группы Патриком Мамели (<STRONG>Patrick Mameli</STRONG>).&nbsp;На него войдёт&nbsp;десять песен. Вот названия некоторых из них: <STRONG>"Necromorph"</STRONG>, <STRONG>"Saturation"</STRONG>, <STRONG>"Soulrot"</STRONG>, <STRONG>"Laniatus"</STRONG> и <STRONG>"Superconcious"</STRONG>. По словам <STRONG>Mameli</STRONG>, лирика альбома будет посвящена <EM>"путешествию человеческой души."</EM> Точная дата выпуска альбома пока не определена. </P>
+<P>Комментарии группы <STRONG>PESTILENCE</STRONG>: <EM>"<STRONG>PESTILENCE</STRONG>&nbsp;очень рады сообщить, что они заключили сделку с лейблом <STRONG>Candlelight</STRONG>. Мы чувствуем, что наш новый материал очень особенный и инновационный и то, что нам нужна поддержка солидной компании, такой, как <STRONG>Candlelight</STRONG>, для того,&nbsp;чтобы донести его до всего металлического мира."</EM></P>
+<P>За&nbsp;последние несколько месяцев&nbsp;в сети анонсировались самые разные музыканты, которые войдут в состав <STRONG>PESTILENCE</STRONG>, чтобы записать <STRONG>"Obsideo".</STRONG> Но похоже, что только сейчас ситуация устаканилась и обновлённая группа&nbsp;выглядит следующим образом:</P>
+<P><STRONG>Patrick Mameli</STRONG> - гитара, вокал |&nbsp;<STRONG>Patrick Uterwijk</STRONG> - гитара | <STRONG>George Maier</STRONG> - бас | <STRONG>Dave Haley</STRONG> - ударные. </P>
+<P>Комментарии <STRONG>Mameli</STRONG> по поводу нового состава: <EM>"<STRONG>PESTILENCE</STRONG> очень рады заполучит Дейва Хэйли в группу.&nbsp;Дейв&nbsp;входит в мировую пятёрку лучших ударников экстремальной музыки и его талант поможет достичь <STRONG>PESTILENCE</STRONG>&nbsp;нового уровня, этого бы не произошло, не будь его с нами. <STRONG>Georg Maier</STRONG> - молодой и таланливый басист, который свернёт кое-кому головы.&nbsp;Оба парня очень просты в общении и легки на подьём. И конечно же, <STRONG>Patrick Uterwijk</STRONG>, мой самый уважаемый и давнишний друг и музыкант."</EM></P>
+Автор: Headcrusher
+
+### 14.09.2013 news PESTILENCE изменили обложку для альбома &quot;Obsideo&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Голландские death metal легенды <STRONG>PESTILENCE</STRONG> выпускают свой новый альбом <STRONG>"Obsideo"</STRONG> 21 октября на <STRONG>Candlelight Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Тем временем, группа заменила первоначальную обложку на новую <EM>(см. ниже)</EM>, объяснив это тем, что не хотят, чтобы она была похожа на те,&nbsp;которые уже имеются у других&nbsp;известных коллективов. Художник остался всё тем же - <STRONG>Santiago Francisco Jaramillo</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>01. <STRONG>Obsideo</STRONG> | 02. <STRONG>Soulrot</STRONG> |&nbsp;03. <STRONG>Transition</STRONG> |&nbsp;04. <STRONG>Necromorph</STRONG> | 05. <STRONG>Laniatus</STRONG> | 06. <STRONG>Distress</STRONG> |&nbsp;07. <STRONG>Superconscious</STRONG> |&nbsp;08. <STRONG>Aura Negative</STRONG> | 09. <STRONG>Saturation</STRONG> | 10. <STRONG>Displaced</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.09/26163.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Pestilence "Comsuming Impulse"

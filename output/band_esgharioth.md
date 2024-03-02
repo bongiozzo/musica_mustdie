@@ -18,6 +18,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.02.2009 news Дебютный альбом ESGHARIOTH
+
+<P><SPAN class=h1><IMG height=376 alt="" hspace=0 src="/images/news_rus/2009.02/13621.jpg" width=380 align=right border=5>MUSICA Production представляет</SPAN></P>
+<P><FONT face=Tahoma color=#ffffff>Дебютный альбом atmospheric post black-metal <STRONG>ESGHARIOTH "Asylum Of The Wretched"</STRONG>. Одна из самых перспективных black-metal групп московского региона, её&nbsp;музыка понравится всем любителям мелодичного и тяжёлого материала. Симфонические аранжировки и почти death-metal звучание. Комплексные и навороченные композиции. Группа активно концертирует в Москве и других городах. Трэк-лист:</FONT></P>
+<P>1. <STRONG>The Raven</STRONG><BR>2. <STRONG>Blood On The Snow</STRONG><BR>3. <STRONG>Cathedral Of The Lost Souls</STRONG><BR>4. <STRONG>Bloodline</STRONG><BR>5. <STRONG>Through the Pain</STRONG><BR>6. <STRONG>Dievarication<BR></STRONG>7. <STRONG>Outro</STRONG></P>
+<P>Ссылки: <A href="http://www.myspace.com/esghariothband">http://www.myspace.com/esghariothband</A></P>
+<P><A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A></P>
+<P>MP3: <A href="/ru/band/esgharioth/14286/#samples">http://musica.mustdie.ru/ru/band/esgharioth/14286/#samples</A></P>
+<P>Дата релиза: 25 февраля</P><SPAN class=h1>Встречайте<STRONG> ESGHARIOTH</STRONG> в Казани, Самаре и Рязани!!!! 
+<P></P>
+<P></SPAN>21.03.09 Казань, клуб "Арт-Салон"<BR>22.03.09 Самара, рок-бар "Подвал"<BR>23.03.09 Рязань, арт-клуб "Планетарий"</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

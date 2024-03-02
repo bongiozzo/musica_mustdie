@@ -55,6 +55,34 @@ Vocals on this recording by Dennis
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.06.2002 reviews Команда профессиональных мясников
+
+<p>Хорошо, но… чертовски мало! "Church Of Deviance" – не первая работа шведского квартета, но ни о каком прогрессе речи не идёт. И это правильно. Какой к чертям прогресс, когда к делу подключается команда профессиональных мясников?! О каких находках можно говорить, когда ваши уши подвергаются беспощадному террору? Зачем что-то писать, рассказывать, с кем-то сравнивать, что-то пророчить, если язык вырван, руки пропущены через мясорубку, а слуховые рецепторы уже не могут воспринимать ничего, кроме жесточайшего, дьявольского death metal'а?.. Конечно, незачем. Но повторюсь: три песни (ха, и _это_ называется песней?!) на девять минут – мало. Душа требует продолжения банкета. И чем быстрее, тем лучше.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 25.06.2011 news SPAWN OF POSSESSION выйдет на Relapse
+
+<P><STRONG><IMG height=170 alt="" hspace=0 src="/images/news_rus/2011.06/19721.jpg" width=320 align=right border=0>SPAWN OF POSSESSION</STRONG> некоторое время назад подписали контракт на выпуск альбом с американским лэйблом <STRONG>Relapse Records</STRONG>. Шведская группа, образованная в 1997 году, только что вошла в студию для записи третьего альбома. Запись проходит с продюсером <STRONG>Mankan Sedenberg</STRONG> в шведской <STRONG>Pama Studios</STRONG>.</P>
+<P>В составе коллектива бывшие и нынешние участники <STRONG>BLOOD RED THRONE, DEEDS OF FLESH, DISMAL EUPHONY, UNMOORED, CIVILIZATION ONE</STRONG> и <STRONG>VISCERAL BLEEDING</STRONG>. Предыдущая работа группы "<STRONG>Noctambulant</STRONG>" вышла в 2006 году на <STRONG>Neurotic</STRONG>.</P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 04.01.2012 news Новый альбом SPAWN OF POSSESSION
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.01/22462.jpg" width=400 align=right border=0>Шведские технари <STRONG>SPAWN OF POSSESSION</STRONG> подготовили к релизу третий альбом "<STRONG>Incurso</STRONG>". Пластинка выйдет на <STRONG>Relapse Records</STRONG> в 2012 году. Альбом был записан в<STRONG> Pama Studios</STRONG>&nbsp;с продюсером <STRONG>Magnus Sedenberg</STRONG>. Обложку нарисовал <STRONG>Par Olofsson (IMMORTAL, IMMOLATION, DYING FETUS)</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>Abodement</STRONG><BR>2. <STRONG>Where Angels Go Demons Follow</STRONG><BR>3. <STRONG>Bodiless Sleeper<BR></STRONG>4. <STRONG>The Evangelist<BR></STRONG>5. <STRONG>Servitude Of Souls<BR></STRONG>6. <STRONG>Deus Avertat<BR></STRONG>7. <STRONG>Spiritual Deception</STRONG><BR>8. <STRONG>No Light Spared<BR></STRONG>9. <STRONG>Apparition</STRONG></P>
+Автор: Vit Belov
+
+### 18.01.2012 news Новая музыка SPAWN OF POSSESSION
+
+<P>Шведы<STRONG> SPAWN OF POSSES</STRONG>SION выпускают новый альбом "<STRONG>Incurso</STRONG>" 13 марта на<STRONG> Relapse Records</STRONG>. Трек с этой работы "<STRONG>Where Angels Go Demons Follow</STRONG>" можно послушать ниже.</P>
+<P><center><object height="81" width="600%"><param name="movie" value="https://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F33679046&"></param><param name="allowscriptaccess" value="always"></param><embed allowscriptaccess="always" height="81" src="https://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F33679046&" type="application/x-shockwave-flash" width="100%"></embed></object>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### мясники студёной скандинавии

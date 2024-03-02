@@ -28,6 +28,21 @@ Outro
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.07.2000 reviews Black-metal из Америки....
+
+<p>Black-metal из Америки....Всегда я относился к нему с недоверием. Да и впредь буду. Нормальных black-актов раз-два и обсчелся. Вроде и стараются ребята играть хорошую злобную музыку, да не совсем получается. Зло получается, но не хорошо. Да еще и эти постоянные сбивки в сторону флоридского brutal-death-metal. Это уже и не black-metal получается, а скорее злой death-metal с задушенным black-вокалом. Вроде все ничего, довольно качественно и злобно, но слушать почти неинтересно за исключением самой середины альбома, когда звучит самая длинная композиция, она же единственная хорошая вещь на альбоме.</p>
+
+Автор: Dimas
+
+### 22.07.2000 reviews Black-metal From America....
+
+<p>Black-metal From America.... Always I fell into to it with disbelieving. And henceforth I shall be. The normal black-acts times - two and all. Like and the guys try to play good bitter music, yes not absolutely receives. Angrily receives, but it is not good. Moreover and these constants left-off in the party Floridian brutal-death-metal. It already and not black-metal receives, and without delay malicious death-metal with strangled black-voice. Like all anything, rather qualitatively and rage, but to listen almost not interesting except for the middle of an album, when the most lengthy composition, she an alone good thing on an album sounds.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 ### SUMMONING

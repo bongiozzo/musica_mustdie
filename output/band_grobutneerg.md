@@ -33,6 +33,18 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.01.2012 news Новый альбом GROBUT NEERG
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2012.01/22856.jpg" width=400 align=right border=0>11 февраля - дата релиза нового альбома развеселой рязанской brutal beer metal команды<STRONG> GROBUT NEERG</STRONG>. Альбом называется <STRONG>"Схрон"</STRONG> и содержит 9 абсолютно новых песен.</P>
+<P>Трек-лист:</P>
+<P>01 - <STRONG>Лес Есть Лес<BR></STRONG>02 - <STRONG>Подхвати Мой Клич<BR></STRONG>03 - <STRONG>Нам Туда<BR></STRONG>04 - <STRONG>Сотня Бочек<BR></STRONG>05 -<STRONG> Схрон<BR></STRONG>06 - <STRONG>Rock De Brasiliaen<BR></STRONG>07 - <STRONG>Образы Ветра<BR></STRONG>08 - <STRONG>Пока Тлеют Угли<BR></STRONG>09 - <STRONG>Фартовая Грамота</STRONG></P>
+<P>Презентация альбома состоится 19 февраля в клубе Планетарий, Рязань.</P>
+<P>Диск издан силами самих музыкантов и будет распространяться лейблом<STRONG> SoundAge</STRONG> и уже сейчас доступен для предзаказа на сайте лейбла <A href="http://soundage.org/">http://soundage.org/</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

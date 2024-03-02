@@ -40,6 +40,9 @@ Recorded and Mixed at Metro Sound Studio
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

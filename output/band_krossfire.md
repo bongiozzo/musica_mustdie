@@ -36,6 +36,27 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.06.2016 news Второй альбом KROSSFIRE
+
+<P><FONT style="BACKGROUND-COLOR: rgb(0,0,0)" color=#ffffff>Новый альбом болгарской power prog metal команды <STRONG>KROSSFIRE "Shades Of Darkness"</STRONG> вышел 3 июня на <STRONG>Pure Steel Records</STRONG>. Ниже можно послушать трек с этой пластинки "<STRONG>One More Time</STRONG>". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: rgb(0,0,0)" color=#ffffff></FONT>&nbsp;<FONT style="BACKGROUND-COLOR: rgb(0,0,0)" color=#ffffff>Трек лист:</FONT></P>
+<P>1. The Ninth (The Lost Eagle, Part I) <BR>2. The Last Ride (The Lost Eagle, Part II)<BR>3. King Will Come (The Lost Eagle, Part III)<BR>4. Destiny's Calling <BR>5. One More Time <BR>6. Farewell&nbsp; <BR>7. Fall from Grace<BR>8. Annabelle&nbsp; <BR>9. Glory to Heavens <BR>10. Like a Shadow&nbsp; <BR>11. Rule the Dark&nbsp; <BR>12. Heaven Halls</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2016.06/29356.jpg" width=400 height=400> 
+<CENTER>
+<P></P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/c4jifArFbzQ" frameBorder=0 width=600 allowfullscreen=""></IFRAME></CENTER></CENTER></CENTER>
+Автор: Vit Belov
+
+### 14.06.2016 news KROSSFIRE released second album
+
+<p>The new album of Bulgarian power prog metal band <strong>KROSSFIRE "Shades Of Darkness"</strong> was released on 3 of June via<strong> Pure Steel Records</strong>. Below you can listen to a track from this album "<strong>One More Time</strong>". </p><p>Track listing:</p><p>1. The Ninth (The Lost Eagle, Part I) <br>2. The Last Ride (The Lost Eagle, Part II)<br>3. King Will Come (The Lost Eagle, Part III)<br>4. Destiny's Calling <br>5. One More Time <br>6. Farewell&nbsp; <br>7. Fall from Grace<br>8. Annabelle&nbsp; <br>9. Glory to Heavens <br>10. Like a Shadow&nbsp; <br>11. Rule the Dark&nbsp; <br>12. Heaven Halls</p><p>&nbsp;<center><img width="400" height="400" src="/images/news_rus/2016.06/29356.jpg" border="0"><center><p></p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/c4jifArFbzQ" frameborder="0" allowfullscreen=""></iframe></center></center></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

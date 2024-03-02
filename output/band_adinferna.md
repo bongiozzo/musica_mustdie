@@ -36,6 +36,26 @@ Last Episode Productions, 2001
 
 * C группой "Seth" 
 
+## Публикации
+
+### 30.08.2001 news Ad Inferna записали новый альбом
+
+<p> Французы Ad Inferna закончили запись альбома "L'Empire des Sens" в голландской студии Excess. Сейчас альбом находится в стадии сведения / мастеринга и выйдет осенью этого года на лейбле Last Episode. В записи принимал участие новый вокалист Vicomte Vampyr Arkames, ранее певший в другой французской команде Seth. Женские вокалы выполнила Robynne из Daeonia. Оркестровое вступление сочинил и исполнил Marco из Obsidian Gate. Всего альбом будет содержать 10 композиций, включая кавер Falkenbach "Baldurs Tod".</p>
+
+Автор: Morsus
+
+### 30.08.2001 news The new album of Ad Inferna is almost done
+
+<p> Ad Inferna has finished to record the album "L'Empire des Sens" at the Excess Studio on The Netherlands. The album is actually in current mix / mastering and will be available around the autumn of this year through Last Episode. The vocals was performed Vicomte Vampyr Arkames, the former singer of the french band Seth. The album will contain some female vocals from Robynne of Daeonia and some other exciting combinaisons on vocals on most songs. The orchestral introduction of "L'Empire des Sens" has been composed & performed by Marco from the german band Obsidian Gate. The album will contain 10 tracks enclosing a cover from Falkenbach "Baldurs Tod".</p>
+
+Автор: Morsus
+
+### 04.02.2009 news AD INFERNA закончили альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>AD INFERNA</STRONG> заканчивают запись второго альбома в студии <STRONG>Drudenhaus Studio. </STRONG>После сведения и мастеринга группа начнёт искать лэйбл и рассчитывает издать альбом уже весной.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

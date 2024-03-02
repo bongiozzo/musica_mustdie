@@ -27,6 +27,14 @@ Johannes Jungreithmeier : Batterie
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.01.2007 news IN SLUMBER подписали соглашение с MASSACRE RECORDS
+
+<P>Австрийский коллектив&nbsp;<B>IN SLUMBER</B>, в рядах которого числится вокалист <B>Wolfgang Rothbauer</B> (<B>THIRDMOON</B>, <B>EISBLUT</B>),&nbsp;подписали договор на выпуск нового альбома с немецкой конторой&nbsp;<B>Massacre Records</B>.&nbsp;Релиз под названием&nbsp;<B>"Scars: Incomplete" </B>поступит в продажу с 23 марта.</P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

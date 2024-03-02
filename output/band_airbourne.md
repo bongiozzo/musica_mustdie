@@ -33,6 +33,71 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.07.2010 news Подарок любителям хоккея
+
+<P>Ведущий производитель игровых спортивных симуляторов для компьютеров и приставок<STRONG> EA Sports</STRONG> объявил саундтрэк к новой версии <STRONG>NHL 11</STRONG>. Как обычно, в игре можно будет услышать множество интересных композиций с тяжёлой гитарой. Вот их список:</P>
+<P>* <B>IN WHISPERS</B> - "Here I Stand"<BR>* <B>AIRBOURNE</B> - "Bottom Of The Well"<BR>* <B>BULLET FOR MY VALENTINE</B> - "Your Betrayal"<BR>* <B>MEGADETH</B> - "Dialectic Chaos"<BR>* <B>PANTERA</B> - "Walk"<BR>* <B>DANKO JONES</B> - "Full of Regret"<BR>* <B>2 UNLIMITED</B> - "Twilight Zone"<BR>* <B>BLACK Box</B> - "Strike It Up"<BR>* <B>BLACK REBEL MOTORCYCLE CLUB</B> - "Mama Taught Me Better"<BR>* <B>BOUNCING SOULS</B> - "Ole!"<BR>* <B>DARUDE</B> - "Sandstorm"<BR>* <B>DROPKICK MURPHYS</B> - "Shipping Up To Boston (Live)"<BR>* <B>EUROPE</B> - "The Final Countdown"<BR>* <B>FOXY SHAZAM</B> - "Unstoppable"<BR>* <B>RAMONES</B> - "Blitzkrieg Bop"<BR>* <B>THE BLACK KEYS</B> - "Howlin’ For You"</P>
+<P>Создатели игры утверждают, что в этой музыке можно услышать "настоящий звук Национальной Хоккейной Лиги". Это верно. Я даже слышал<STRONG> DIMMU BORGIR</STRONG> на одном из хоккейных матчей за океаном.</P>
+Автор: Vit Belov
+
+### 29.12.2010 news Итоги 2010 года от артистов лейбла Roadrunner
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>Roadrunner</STRONG> опубликовал топ-листы своих сотрудников и некоторых музыкантов лейбла. Среди прочих, там можно отыскать лучшие альбомы 2010 года по мнению:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17981.jpg" width=180 height=180><U>Dave Ellefson</U></STRONG><U> (<STRONG>MEGADETH</STRONG>)</U>:</FONT></P>
+<P>10. <STRONG>MOTORHEAD</STRONG> - The World Is Yours <BR>09. <STRONG>AVENGED SEVENFOLD</STRONG> - Nightmare <BR>08. <STRONG>THERION</STRONG> - Sitra Ahra <BR>07. <STRONG>SOULFLY</STRONG> - Omen <BR>06. <STRONG>PANTERA</STRONG> - A Decade of Dominance <BR>05. <STRONG>HALFORD</STRONG> - Halford IV, Made of Metal <BR>04. <STRONG>DISTURBED</STRONG> - Asylum <BR>03. <STRONG>ACCEPT</STRONG> - Blood of the Nations <BR>02. <STRONG>MEGADETH</STRONG> - Rust In Peace Live&nbsp; <BR>01. <STRONG>The Big Four</STRONG>: Live From Sofia, Bulgaria (DVD) </P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17982.jpg" width=180 height=180><U>Joel O’Keeffe</U></STRONG><U> (<STRONG>AIRBOURNE</STRONG>)</U>:</P>
+<P>10. <STRONG>TOM PETTY AND THE HEARTBREAKERS</STRONG> - Mojo<BR>09. <STRONG>JERRY LEE LEWIS</STRONG>&nbsp;- Last Man Standing<BR>08. <STRONG>AC/DC </STRONG>- Backtracks<BR>07. <STRONG>RATT</STRONG> - Infestation<BR>06. <STRONG>BRUCE SPRINGSTEEN</STRONG>&nbsp;- The Promise<BR>05. <STRONG>LYNYRD SKYNYRD</STRONG> - God & Guns<BR>04.&nbsp;<STRONG>KISS</STRONG> - Sonic Boom<BR>03. <STRONG>THE POOR</STRONG> - Round One<BR>02. <STRONG>SLASH</STRONG> - Slash <BR>01. <STRONG>MEAT LOAF</STRONG> - Hang Cool Teddy Bear</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17983.jpg" width=180 height=180><U>Mikael Akerfeldt</U></STRONG><U> (<STRONG>OPETH</STRONG>)</U>: </P>
+<P>10. <STRONG>TEARS FOR FEARS</STRONG> - Seeds of Love<BR>09. <STRONG>TOSHI ICHIYANAGI</STRONG> - Flowers<BR>08. <STRONG>THE DREAM</STRONG> - Get Dreamy<BR>07. <STRONG>YONIN BAYASHI</STRONG> - Isshoku Sokuhatsu<BR>06. <STRONG>SERGE GAINSBOURG</STRONG>&nbsp;- Historie de Melody Nelson<BR>05. <STRONG>PAIN OF SALVATION</STRONG> - Road Salt Pt. 1<BR>04. <STRONG>THE CHURCHILLS</STRONG> - s/t<BR>03. <STRONG>VASHTI BUNYAN</STRONG> - Just Another Diamond Day<BR>02. <STRONG>WIL MALONE</STRONG> - Wil Malone <BR>01. <STRONG>DAVID CROSBY</STRONG> - If I Could Only Remember My Name</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17984.jpg" width=180 height=180><U>JB</U></STRONG><U> (<STRONG>GRAND MAGUS</STRONG>)</U>:</P>
+<P>10. <STRONG>PAUL GILBERT</STRONG> - Fuzz Universe<BR>09. <STRONG>JOHN NORUM</STRONG> - Play Yard Blues<BR>08. <STRONG>CATHEDRAL</STRONG> - The Guessing Game<BR>07. <STRONG>DARKTHRONE</STRONG> - Circle The Wagons<BR>06. <STRONG>WITCHERY</STRONG> - Witchkrieg<BR>05. <STRONG>SPIRITUAL</STRONG> <STRONG>BEGGARS</STRONG> - Return To Zero<BR>04. <STRONG>WATAIN</STRONG> - Lawless Darkness<BR>03. <STRONG>NECRONAUT</STRONG> - Necronaut<BR>02. <STRONG>ACCEPT</STRONG> - Blood of the Nations <BR>01. <STRONG>UNLEASHED</STRONG> - As Yggdrasil Trembles</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17985.jpg" width=180 height=180><U>Steven Wilson</U></STRONG><U> (<STRONG>PORCUPINE TREE</STRONG>)</U>:</P>
+<P>10. <STRONG>MASSIVE ATTACK</STRONG> - Heligoland<BR>09. <STRONG>NECRO</STRONG> <STRONG>DEATHMORT</STRONG> - This Beat is Necrotronic<BR>08. <STRONG>OCEANSIZE</STRONG> - Self Preserved While the Bodies Float Up<BR>07. <STRONG>SALEM</STRONG> - King Night<BR>06. <STRONG>CHROME HOOF</STRONG> - Crush Depth<BR>05. <STRONG>LCD</STRONG> <STRONG>SOUNDSYSTEM</STRONG> - This is Happening<BR>04. <STRONG>ORGANUM</STRONG> - Sorow<BR>03. <STRONG>FOALS</STRONG> - Total Life Forever<BR>02. <STRONG>HANS ZIMMER</STRONG> - Inception Soundtrack <BR>01. <STRONG>SHEARWATER</STRONG> - The Golden Archipeligo</P>
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.12/17986.jpg" width=180 height=180><U>Matt Heafy</U></STRONG><U> (<STRONG>TRIVIUM</STRONG>)</U>:</P>
+<P>10. <STRONG>RATATAT</STRONG> - LP4<BR>09. <STRONG>VAMPIRE WEEKEND</STRONG> - Contra<BR>08. <STRONG>ANIMALS AS LEADERS</STRONG>&nbsp;- Wave Of Babies<BR>07. <STRONG>AS I LASY DYING</STRONG> - The Powerless Rise<BR>06. <STRONG>A DAY TO REMEMBER</STRONG> - What Separates Me From You<BR>05. <STRONG>AVENGED SEVENFOLD</STRONG> - Nightmare<BR>04. <STRONG>MY CHEMICAL ROMANCE</STRONG> - Danger Days...<BR>03. <STRONG>STONE SOUR</STRONG> - Audio Secrecy<BR>02. <STRONG>BLIND GUARDIAN</STRONG> - At The Edge Of Time <BR>01. <STRONG>TIMES OF GRACE</STRONG> - The Hymn Of A Broken Man</P>
+Автор: Headcrusher
+
+### 22.03.2013 news AIRBOURNE: подробности альбома &quot;Black Dog Barking&quot;
+
+<P>Австралийские рок-н-ролл раздолбаи <STRONG>AIRBOURNE</STRONG> работают над своим новым студийным альбомом. Он получил название <STRONG>"Black Dog Barking"</STRONG> и выйдет 21 мая на лейбле <STRONG>Roadrunner</STRONG>. Продюсер альбома: <STRONG>Brian Howes</STRONG>. Обложку диска можно увидеть ниже.</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.03/25563.jpg" width=450 height=450> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 30.07.2016 news Новая песня AIRBOURNE
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Новый сингл<strong> AIRBOURNE "Breakin' Outta Hell”</strong> можно послушать в лирик-видео ниже. Новый одноимённый полноформатный альбом выйдет 23 сентября на<strong> Spinefarm</strong>.</font></p><p>Фоторепортаж с концерта AIRBOURNE, состоявшегося в клубе VOLTA в Москве 21 июля, можно <a href="/ru/galleries/1/1765/">посмотреть здесь.</a><p><center><img width="600" height="400" src="/images/news_rus/2016.07/29696.jpg" border="0"></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/gTYZWJEaOUA" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 30.07.2016 news AIRBOURNE: New single and new photo-set from Moscow
+
+<p><strong>AIRBOURNE</strong>'s new single "<strong>Breakin' Outta Hell</strong>” can be heard in a lyric video below. New full-length album will be released September 23 on<strong> Spinefarm</strong>.</p><p>Photos from the AIRBOURNE concert at <strong>club VOLTA</strong> in Moscow on July 21, <a href="/en/galleries/1/1765/">can be seen here.</a></p><p><center><img width="600" height="400" src="/images/news_rus/2016.07/29696.jpg" border="0"></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><iframe width="560" height="315" src="https://www.youtube.com/embed/gTYZWJEaOUA" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 16.09.2016 news Новый клип AIRBOURNE
+
+<p>Новый ролик<strong> AIRBOURNE</strong> на песню "<strong>Rivalry</strong>" можно посмотреть ниже. Трек взят с выходящего альбома "<strong>Breakin' Outta Hell</strong>", который выйдет 23 сентября на <strong>Spinefarm</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/SZvBIgEPLrA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 16.09.2016 news New video of AIRBOURNE
+
+<p>New <strong>AIRBOURNE</strong> clip for the song "<strong>Rivalry</strong>" can be viewed below. The track is taken from the forthcoming studio album "<strong>Breakin' Outta Hell</strong>" which will be released September 23 on <strong>Spinefarm</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/SZvBIgEPLrA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 30.08.2017 news AIRBOURBE: выпускают deluxe box
+
+<P>В честь десятилетия своего дебютного альбома <STRONG>"Runnin' Wild"</STRONG>, австралийцы <STRONG>AIRBOURNE</STRONG> выпускают deluxe box под названием<STRONG> "Diamond Cuts"</STRONG>. Бокс будет выпущен в двух вариантах: на виниле и компакт-дисках. Как виниловое издание, так и издание бокса на CD, будет&nbsp;содержать&nbsp;в себе три первых альбома группы&nbsp;- <STRONG>"Runnin 'Wild"</STRONG>, <STRONG>"No Guts No Glory"</STRONG>, <STRONG>"Black Dog Barking"</STRONG>, а также пластинку <STRONG>"Diamond Cuts - B-Sides"</STRONG> с двумя новыми, ранее не&nbsp;публиковавшимися синглами под названием<STRONG> "Money"</STRONG> и<STRONG> "Heavy Weight Lover"</STRONG>. Плюс в оба издания войдёт документальный DVD <STRONG>"It's All For Rock 'n' Roll"</STRONG>.</P>
+<P>Дата выхода: 29 сентября 2017.</P>
+<P>Российские концерты <STRONG>AIRBOURNE </STRONG>уже в сентябре месяце! Подробности: <A href="/ru/shows/#74333">http://musica.mustdie.ru/ru/shows/#74333</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2017.08/30744.jpg" width=660 height=490> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

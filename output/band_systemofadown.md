@@ -64,6 +64,196 @@ Splendid american-armenian nu metal band
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.03.2001 news System of a Down head into the studio
+
+<p>SYSTEM OF A DOWN and producer Rick Rubin entered a Los Angeles studio to record one of the most highly-anticipated albums of this year—the follow-up to the group’s self-titled debut album which was released in 1998 on the Sony-distributed American Recordings label. Fueled by near non-stop touring and the radio hit “Sugar,” “System of a Down” has sold in excess of 850,000 copies worldwide. System of a Down—Serj Tankian/vocals, Daron Malakian/guitars, Shavo Odadjian/bass, John Dolmayan/drums ­ have been holed up in a rehearsal studio since last October, taking only a short break to play a special benefit show in November to shed more light on the issue of the Armenian Genocide. The band has been spending five to six hours every night writing and rehearsing some 25 new songs, all of which will be recorded, some of which will make it to the CD’s final track listing. No one knows yet what songs will end up on the final album, and the songs that the band plan to record still have only working titles. Nonetheless, the subject matter and lyrical content of the new album will run the gamut from the U.S. prison system (“Prison Song”) to a song about groupies (“Psycho”), to an ode to pajamas (“P.J.s”), to the talking car in the Њ80s TV show, “Knight Rider” (“K.I.T.T.”). The new System of a Down CD, as yet untitled, is expected to be released this summer.</p>
+
+Автор: Yermola
+
+### 01.03.2001 news SYSTEM OF A DOWN в студии...
+
+<p>Американские трэшеры SYSTEM OF A DOWN с культовым продюссером Rick Rubin засели в Лос-Анджелесской студии для записи второго полноформатника. Предыдущий одноименный альбом SYSTEM OF A DOWN разошелся тиражом более 850 000 копий. К настоящему моменту готово 25 песен часть из которых и войдет на релиз. Пока известно что точно будут Prison Song, Psycho, P.J.s, Knight Rider (K.I.T.T.). Новый диск пока не имеет названия и выйдет ориентировочно летом 2001.</p>
+
+Автор: Yermola
+
+### 04.04.2001 news Serj Tankian появился на просторах Интернет....
+
+<p>Вокалист "SYSTEM OF A DOWN" Serj Tankian 1-го Апреля (ха-ха!) открыл собственный сайт -- serjicalstrike.com --, на котором певец выложил лирику, тексты и музыку отличные от основного направления деятельности. Первые проекты - 96 страничная книга "Cool Gardens", и малоизвестные команды "BAD ACID TRIP" и "BIG ELF".</p>
+
+Автор: Yermola
+
+### 04.04.2001 news Serj Tankian launched his own website....
+
+<p>SYSTEM OF A DOWN vocalist Serj Tankian launched his own website on Sunday, April 1 -- serjicalstrike.com -- specifically "to introduce words and music that have been otherwise unavailable in stores," according to the singer. The first project available at serjicalstrike.com will be Serj's self-published poetry book, Cool Gardens, 96-pages of very personal reflections and considerations that give the reader a glimpse into Serj's life and thoughts over the past seven or eight years. Cool Gardens is available now and is priced at $15.00. “I chose to title it Cool Gardens,” explained Serj, "because I love the thought of spending my life walking around surrounded by Cool gardens. When I think of that term, it relaxes me." Nearly half of the tome is original artwork created by Sako Shahinian, a young L.A.-based artist. Topics include a mix of spiritual, political, and humorous. Serj plans an initial run of 5,000 copies, with the first 500 personally signed by the singer. CDs by three of Serj's favorite unknown bands will also be available on the site in the coming weeks: BAD ACID TRIP, "One of the best undiscovered secrets from L.A.'s thrash/punk scene. Their name says it all;" KITTENS FOR CHRISTIAN, "I often describe them as SONIC YOUTH meets JESUS LIZARD or the BIRTHDAY PARTY. They're very interesting and drivy;" and BIG ELF, "The best progressive classic rock band of this era. Amazing songwriting, arranging, and harmonies."</p>
+
+Автор: Yermola
+
+### 05.11.2001 news Награды Ассоциации Звукозаписывающей Индустрии...
+
+<p>Американская Ассоциация Звукозаписывающей Индустрии (Recording Industry Association Of America) выдала следующие золотые и платиновые сертификаты:<BR> <BR> Золото (500,000 проданных копий):<BR> JUDAS PRIEST - Priest...Live! (дата выхода: 6/9/87) <BR> PUDDLE OF MUDD - Come Clean (дата выхода: 8/28/01)<BR><BR> Платина (1,000,000 проданных копий):<BR> SYSTEM OF A DOWN - Toxicity (дата выхода: 9/4/01) <BR> P.O.D. - Satellite (дата выхода: 9/11/01)<BR> SLIPKNOT - Iowa (дата выхода: 8/28/01)<BR><BR> Мульти-платина:<BR> DISTURBED - The Sickness (дата выхода: 3/7/00) (2x platinum) <BR> JUDAS PRIEST - Screaming For Vengeance (дата выхода: 6/23/82) 2x platinum</p>
+
+Автор: Yermola
+
+### 05.11.2001 news Here are some of the latest official gold and platinum certification from the RIAA ...
+
+<p>Here are some of the latest official gold and platinum certification from the RIAA (Recording Industry Association Of America): <BR><BR> Gold (500,000 copies sold):<BR> JUDAS PRIEST - Priest...Live! (release date: 6/9/87) <BR> PUDDLE OF MUDD - Come Clean (release date: 8/28/01)<BR><BR> Platinum (1,000,000 copies sold):<BR> SYSTEM OF A DOWN - Toxicity (release date: 9/4/01) <BR> P.O.D. - Satellite (release date: 9/11/01) <BR> NICKELBACK - Silver Side Up (release date: 9/11/01) <BR> SLIPKNOT - Iowa (release date: 8/28/01)<BR><BR> Multi Platinum:<BR> DISTURBED - The Sickness (release date: 3/7/00) (2x platinum) <BR> JUDAS PRIEST - Screaming For Vengeance (release date: 6/23/82) 2x platinum</p>
+
+Автор: Yermola
+
+### 13.11.2001 news Некоторые цифры продаж...
+
+<p>Вот вам цифры американских продаж некоторых металлических и не очень групп... Данные на начало Ноября. Предоставлены Soundcscan (цифра в скобках означает количество недель в чартах): <BR> <BR> SYSTEM OF A DOWN – Toxicity: 817,286 (9) <BR> OZZY OSBOURNE – Down To Earth: 269,374 (3) <BR> SLIPKNOT – Iowa: 553,043 (10) <BR> SLIPKNOT – Slipknot: 1,345,891 (123) <BR> METALLICA – Metallica: 12,890,072 (484) <BR> MISFITS – Cuts From The Crypt: 4,811 (1) <BR> SOIL – Scars: 34,433 (8) <BR> MACHINE HEAD – Supercharger: 24,202 (5) <BR> QUEENSRYCHE – Live Evolution: 20,727 (6) <BR> SLAYER – God Hates Us All: 121,179 (8)</p>
+
+Автор: Yermola
+
+### 25.12.2001 articles Серж Талакян (SYSTEM OF A DOWN) Интервью журналу Rolling Stone
+
+<p>Разговаривать с фронтмэном SYSTEM OF A DOWN Сержем Танкяном все равно, что читать шуточные предсказания из «счастливых печений». Невозможно даже предположить, то ли он сам смущен, то ли пытается привести в замешательство тебя такими высказываниями, как "Эмоции – это временный опыт," или "Мышление может быть опасным."</p>
+<p> Сейчас группа занята туром в поддержку своего нового альбома «Toxicity», который продолжил линию дебютника 1998 года. Ломанные ритмы, витиеватые структуры песни, звуки банджо и ситара – «Toxicity» не имеет аналогов в современном тяжелом роке.</p>
+<p> В музыкальном плане SYSTEM OF A DOWN звучат очень агрессивно и угрожающе, а как люди… Приветливый 33-летний Танкян словно источает спокойствие. Хотя в песнях он рычит и беснуется в ярости, сам Серж утверждает, что в жизни все иначе. "Я всего лишь обостряю отношения со слушателем," говорит он.</p>
+<p class="crem"> - Вы довольны тем, как расходиться ваш альбом?</p>
+<p> - Я просто счастлив.</p>
+<p class="crem"> - Да? И почему именно?</p>
+<p> - Из-за всего. Я счастлив из-за этого альбома. Я счастлив быть здесь, в Нью-Йорке. Я просто счастлив.</p>
+<p class="crem"> - А что делает вас несчастным?</p>
+<p> - Лицемерие. Несправедливость.</p>
+<p class="crem"> - Что вы противопоставите этому?</p>
+<p> - Любовь.</p>
+<p class="crem"> - Вы похожи на философа…</p>
+<p> - Я так не думаю. Но мне нравятся falafel sandwiches.</p>
+<p class="crem"> - Falafel? Это что такое?</p>
+<p> - О, это очень близкая к философии вещь – falafel.</p>
+<p class="crem"> - Toxicity – песня, протестующая против минимальных тюремных приговоров для всех, кто связан с наркотиками, и в то же время она звучит так, словно это выражение симпатии к Чарлзу Мэнсону. SYSTEM – политическая группа?</p>
+<p> - Не понимаю, почему мы должны восприниматься только в таком качестве?! Посмотрите - если я напишу "Мегаполис слишком густонаселен. Это приводит к страху", это будет общественное заявление. Рядом я напишу «Ударь меня», вот здесь – «Я голоден» и здесь «Вот здорово! Какой великолепный день!». Вот теперь вместе собраны четыре разных фразы. Можно ли их все рассматривать как политические только потому, что первое заявление из области политики?</p>
+<p class="crem"> - Но все же вам нравится такая возможность для заявлений?</p>
+<p> - Если мы сталкиваемся с несправедливостью и кто-то может научиться на этом, то… Это просто великолепно.</p>
+<p class="crem"> - Вы чувствуете себя отчужденными от собственных песен, когда они полностью завершены?</p>
+<p> - И да, и нет. Мне нравится ощущение, что песни живут сами по себе – это заставляет меня не дремать по жизни.</p>
+<p class="crem"> - Почему вы предпочитаете такое «пробужденное» состояние?</p>
+<p> - С детства музыка течет в моей голове – порой это даже мой злейший враг. И это меня пробуждает.</p>
+<p class="crem"> - Как вы считаете, ваша музыка - отражение вас самого?</p>
+<p> - Полагаю, ничто в полной мере не отражает моей сущности. Хотя в любом случае то, что ты делаешь – часть тебя самого, даже если ты сам не знаешь, кто ты.</p>
+
+Автор: Tornado
+
+### 25.12.2001 reviews Неправильная музыка
+
+<p>Неправильная музыка. Так играть не положено. Если хардкор – то только беспредельный забой. Если что-то интеллектуальное – то только заморочки. А вот так вот – не по правилам!<BR> Лучшее определение концепции "Toxicity" – хардкор-гротеск. Вокруг жестких и плотных риффов, которым позавидуют S.O.D., завиваются мелодии, щедро сдобренные нервным пением. Изюминка диска – аранжировки и восточная мелодика. Контраст между почти трэшевыми ломовыми риффами, панковскими ходами и великолепными тоскливыми мелодиями такой, что впору усомниться в психическом здравии квартета. Хотя когда узнаешь, что все участники группы – представители армянской диаспоры США, все становится на свои места. Эти ребята гармонично соединили мелодику армянского фольклора с кривлянием панк-рока и жесткостью трэш-метал, получив экзотический и токсичный коктейль – "Toxicity".<BR> Обилие контрастов впечатляет: от классического хардкора в духе S.O.D. к nu-metal, от злобы – к лирике, от пародийных фрагментов (в первой же песне музыканты смачно плюнули в сторону LIMP BIZKIT) до трагичных распевов. Никакого рэпа и прочих хип-хоп-гнусавостей! Буквально с первых нот слышно, что группа не страдает обилием серьезного отношения к творчеству и к самим себе – и потому все интонации переполнены иронии. <BR> В некотором роде диск можно сравнить с альбомом FAITH NO MORE "King for a Day… Fool for a Lifetime", но только вот и по драйву, и по эмоциональной напряженности, трагизму и театральности подачи материала SYSTEM OF A DOWN значительно опередили своих предтеч. SOAD – сплошная оригинальность, музыка без правил. Оцените хотя бы "Deer Dance". Полторы минуты "Jet Pilot" – лихо закрученная спираль между скоростной молотилкой и все тем же фольклором. Любителям высокого искусства адресованы лиричные и богато аранжированные отступления на "Chop Survey", правда, с сюрпризом – переходом в истерику. Тем не менее, гармония от таких перепадов только выигрывает.<BR> В итоге можно признать – это лучший хардкоровый коллектив, в музыке которого интеллект и драйв идут рука об руку., а "Toxicity" – одно из лучших творений стиля за всю историю.</p>
+
+Автор: Tornado
+
+### 22.02.2002 news ЦРУ слушает System of a Down?
+
+<p>Серж Танкян, вокалист группы SYSTEM OF A DOWN, сделал сенсационное заявление в интервью журналу "Kerrang!": "Я думаю, что ФБР завели на нас дело, и достаточно давно. Им кажется, что мы ведем подрывную деятельность. Также когда-то они говорили о DOORS, Джоне Ленноне… Теперь я иногда ловлю себя на мысли: черт, что я говорю? Но если я не буду искренен, то что мне вообще остается делать?". Вот так вот тяжко живется в самой демократичной стране мира… Кстати, годом раньше Том Йорк из RADIOHEAD говорил, что британские спецслужбы также следят за группой. Хотя... Возможно, среди сотрудников ЦРУ просто появились особо ярые фэны группы?</p>
+
+Автор: Tornado
+
+### 15.04.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending April 15th (as reported by Rock Hard magazine):<BR> <BR> 10. NICKELBACK - Silver Side Up<BR> 15. DIE HAPPY - Beautiful Morning<BR> 17. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 19. PUDDLE OF MUDD - Come Clean <BR> 22. P.O.D. - Satellite <BR> 27. LINKIN PARK - Hybrid Theory<BR> 30. IRON MAIDEN - Rock In Rio <BR> 34. SYSTEM OF A DOWN - Toxicity <BR> 42. STAIND - Break The Cycle<BR> 63. BLIND GUARDIAN - A Night At The Opera <BR> 79. RHAPSODY - Power Of The Dragonflame <BR> 80. RAMMSTEIN - Mutter<BR> 84. MILLENCOLIN - Home From Home <BR> 94. FARIN URLAUB - Endlich Urlaub <BR> 100. MEGAHERZ - Herzwerk II<BR></p>
+
+Автор: Yermola
+
+### 28.05.2002 news German Media Control Chart ...
+
+<p>Вот так представлены хард-рок/метал в German Media Control (Top 100) chart по состоянию за прошедшую неделю: <BR><BR> 04. BОHSE ONKELZ - Dopamin<BR> 08. P.O.D. - Satellite <BR> 12. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 14. PUDDLE OF MUDD - Come Clean <BR> 25. NICKELBACK - Silver Side Up<BR> 33. SYSTEM OF A DOWN - Toxicity <BR> 45. SENTENCED - The Cold White Light<BR> 46. RAGE - Unity<BR> 63. LINKIN PARK - Hybrid Theory <BR> 80. COAL CHAMBER - Dark Days <BR> 88. RAMMSTEIN - Mutter<BR> 90. IRON MAIDEN - Rock In Rio <BR> 91. AXEL RUDI PELL - Shadow Zone <BR> 96. CRADLE OF FILTH - Lovecraft & Witch Hearts<BR></p>
+
+Автор: Yermola
+
+### 28.05.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending May 27th (as reported by Rock Hard magazine): <BR><BR> 04. BЦHSE ONKELZ - Dopamin<BR> 08. P.O.D. - Satellite <BR> 12. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 14. PUDDLE OF MUDD - Come Clean <BR> 25. NICKELBACK - Silver Side Up<BR> 33. SYSTEM OF A DOWN - Toxicity <BR> 45. SENTENCED - The Cold White Light<BR> 46. RAGE - Unity<BR> 63. LINKIN PARK - Hybrid Theory <BR> 80. COAL CHAMBER - Dark Days <BR> 88. RAMMSTEIN - Mutter<BR> 90. IRON MAIDEN - Rock In Rio <BR> 91. AXEL RUDI PELL - Shadow Zone <BR> 96. CRADLE OF FILTH - Lovecraft & Witch Hearts<BR></p>
+
+Автор: Yermola
+
+### 01.06.2002 reviews Выживут лишь безумные!
+
+<p> Мудреное и почти философское предисловие на обложке настораживает. Содержание “лазера” опасения подтверждает – нездоровая музыка с разнообразнейшей ритмикой, суровым «металлическим» забоем и трагикомизмом армянской фольклорной мелодики. <BR> Это переиздание дебютной пластинки группы 1998 года сегодня вполне уместно – последыш этого диска, "Toxicity" 2001 года рождения, стал платиновым и нагло прет ко второму миллиону, группа в очередной раз отправилась в турне фестиваля OZZFEST (жаль, в Москве эти ребята не выйдут на сцену). Однако, помимо коммерческого расчета, переизданию есть и более достойное оправдание – диск до сих пор звучит актуально и оригинально.<BR> “Know”, вторую песню диска, стоит занести в анналы современного звукоубийства – безумнейшая вещь альбома и безусловный хит, смешавший ломаную ритмику хардкора, жесткость и напористость трэш-метал с самым обычным безумием (правда, высшей пробы). Слишком страшно? Однако следующий за этим “Сахар” (“Sugar”) не подсластит пилюли – нервно-истеричное чтение текста поверх тяжелейшего раскачанного ритма. Расслабьтесь на почти балладе «Пауки» («Spiders») и снова ныряйте в море истерии – “Ддьявол” (“Ddevil”) не даст вам покоя. Чем ближе к финалу – тем больше безумия: чего стоит псевдовальс “Peephole”! Возможно, это слишком, но столь оригинальной группы миру не доводилось слышать со времен рождения RAGE AGAINST THE MACHINE в 1992 году. <BR> Музыка SOAD до безумия драматична – словно группа не исполняет песни, а по каждой ставит небольшую пьесу. Вокалист Серж Танкян распинается вовсю, чтобы в три минуты сыграть пять-шесть персонажей, и у каждого – свой голос и свои “заскоки”. Успокойтесь – ничего нормального здесь нет. Только-только вы услышите мелодию, достойную детской сказки, как эта четверка армян тут же аранжирует ее под издевку и через секунду переиграет на сверхтяжелых низких частотах. Ну, кто тут смеется?! Правильно делаете – единственный способ дожить до конца. Если, конечно, смех нездоровый. И пусть здесь всего одного соло на гитаре на весь альбом, не расстраивайтесь – это от того, что помыслы гитариста направлены не на погоню за давно сгнившими лаврами лучшего укротителя шести струн. Гитарист Малакян сосредоточен только на том, чтобы вскипятить кровь в вашем сердце. Судя по результату, перед вами – непризнанный гений кардиологии. <BR> <BR> Впечатляет, что все сыграно классическим рок-форматом - квартетом, никакой электроники и сэмплов. Хотя сегодня такое живье и кажется неактуальным, но… Ищите диск – доказательство обратного.</p>
+
+Автор: Tornado
+
+### 18.07.2002 news Металл&#x2F;Хард Рок в Германских чартах Медиа Контрол...
+
+<p>Представляем вашему вниманию жанр Металл/Хард Рок в Германских Медиа Контрол чартах (топ 100) по состоянию на текущюю неделю: <BR><BR> 01. (новичок) RED HOT CHILI PEPPERS - By The Way<BR> 11. (6) PAPA ROACH - Lovehatetragedy<BR> 15. (13) NIGHTWISH - Century Child<BR> 17. (12) KORN - Untouchables<BR> 30. (24) MANOWAR - Warriors Of The World<BR> 37. (77) RED HOT CHILI PEPPERS - Californication<BR> 38. (23) SOULFLY - 3<BR> 40. (32) B&Ouml;HSE ONKELZ - Dopamin<BR> 43. (41) ROBERT PLANT - Dreamland<BR> 49. (51) DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 51. (53) DONOTS - Amplify The Good Times<BR> 56. (60) SYSTEM OF A DOWN - Toxicity<BR> 59. (57) PUDDLE OF MUDD - Come Clean<BR> 87. (50) SUB7EVEN - Free Your Mind<BR> 99. (90) OZZY OSBOURNE - Live At Budokan<BR><BR> Число в скобках показывает позицию на прошлой неделе...</p>
+
+Автор: Yermola
+
+### 18.07.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart* for the week ending July 22nd (as reported by Rock Hard magazine): <BR><BR> 01. (new) RED HOT CHILI PEPPERS - By The Way<BR> 11. (6) PAPA ROACH - Lovehatetragedy<BR> 15. (13) NIGHTWISH - Century Child<BR> 17. (12) KORN - Untouchables<BR> 30. (24) MANOWAR - Warriors Of The World<BR> 37. (77) RED HOT CHILI PEPPERS - Californication<BR> 38. (23) SOULFLY - 3<BR> 40. (32) BЦHSE ONKELZ - Dopamin<BR> 43. (41) ROBERT PLANT - Dreamland<BR> 49. (51) DIE TOTEN HOSEN - Auswдrtsspiel<BR> 51. (53) DONOTS - Amplify The Good Times<BR> 56. (60) SYSTEM OF A DOWN - Toxicity<BR> 59. (57) PUDDLE OF MUDD - Come Clean<BR> 87. (50) SUB7EVEN - Free Your Mind<BR> 99. (90) OZZY OSBOURNE - Live At Budokan<BR><BR> * number in parenthesis indicates last week's chart position</p>
+
+Автор: Yermola
+
+### 02.08.2002 news Metal&#x2F;Hard Rock в германском Media Control Chart ...
+
+<p>Вот так на текущей неделе выглядит German Media Control (Top 100) чарт в жанре металл/хард рок: <BR><BR> 16. PAPA ROACH – Lovehatetragedy<BR> 22. DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 23. NIGHTWISH - Century Child<BR> 30. SYSTEM OF A DOWN - Toxicity<BR> 31. KORN - Untouchables<BR> 39. MANOWAR - Warriors Of The World<BR> 40. B&Ouml;HSE ONKELZ - Dopamin<BR> 45. NICKELBACK - Silver Side Up<BR> 54. SOULFLY - 3<BR> 61. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 70. PUDDLE OF MUDD - Come Clean<BR> 75. DONOTS - Amplify The Good Times<BR> 83. DARK TRANQUILLITY - Damage Done</p>
+
+Автор: Yermola
+
+### 20.08.2002 news Metal&#x2F;Hard Rock в Германских Чартах...
+
+<p>Вот так выглядит Топ-100 Германских Медиа Контрол Чартов по состоянию на текущую неделю... <BR><BR> 06. LINKIN PARK - Reanimation<BR> 16. DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 19. DEF LEPPARD - X<BR> 26. SYSTEM OF A DOWN - Toxicity<BR> 27. PAPA ROACH - Lovehatetragedy<BR> 32. FILTER - The Amalgamut<BR> 34. NIGHTWISH - Century Child<BR> 36. SILVERCHAIR - Diorama<BR> 39. B&Ouml;HSE ONKELZ - Dopamin<BR> 48. KORN - Untouchables<BR> 55. NICKELBACK - Silver Side Up<BR> 56. MANOWAR - Warriors Of The World<BR> 57. PUDDLE OF MUDD - Come Clean<BR> 60. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 68. SOULFLY - 3<BR> 98. JUDAS PRIEST - Live In London (DVD)</p>
+
+Автор: Yermola
+
+### 20.08.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending August 19th: <BR><BR> 06. LINKIN PARK - Reanimation<BR> 16. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 19. DEF LEPPARD - X<BR> 26. SYSTEM OF A DOWN - Toxicity<BR> 27. PAPA ROACH - Lovehatetragedy<BR> 32. FILTER - The Amalgamut<BR> 34. NIGHTWISH - Century Child<BR> 36. SILVERCHAIR - Diorama<BR> 39. BЦHSE ONKELZ - Dopamin<BR> 48. KORN - Untouchables<BR> 55. NICKELBACK - Silver Side Up<BR> 56. MANOWAR - Warriors Of The World<BR> 57. PUDDLE OF MUDD - Come Clean<BR> 60. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 68. SOULFLY - 3<BR> 98. JUDAS PRIEST - Live In London (DVD)</p>
+
+Автор: Yermola
+
+### 20.09.2002 news Sweden&#39;s Top-Selling Metal&#x2F;Hard Rock Albums For Week Ending 9&#x2F;20 - Sep. 19, 2002
+
+<p>The following is a list of the top-selling hard rock/heavy metal albums in Sweden for the week ending September 20th, 2002 (as reported by the Swedish daily newspaper Aftonbladet): <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS Nґ ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (NEW) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (NEW) STONE SOUR - Stone Sour <BR> 18. (RE-ENTRY) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done <BR></p>
+
+Автор: Yermola
+
+### 20.09.2002 news Что слушают в Швеции?
+
+<p>Вот так на текущей неделе выглядит 20-ка самых продаваемых в Швеции альбомов по информации газеты Aftonbladet: <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS NЃL ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (новинка) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (новинка) STONE SOUR - Stone Sour <BR> 18. (повторно) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done</p>
+
+Автор: Yermola
+
+### 16.10.2002 articles Клинтон не прав!
+
+<p>Армянские экстремисты в полной секретности готовят новую атаку. SYSTEM OF A DOWN, взорвавшие хит-парады всех континентов прошлогодним опусом "Toxicity" (токсичность), готовят парочку новых звуковых бомб.<BR> Неделю назад группа официально заявила, что новый альбом выйдет этой осенью, в ближайшие полтора месяца. Верится с трудом – за пару месяцев до этого SOAD говорили лишь о возможности издания невышедших песен. Одновременно с этим Серж Танкян, вокалист SOAD, готовит к выходу собственный диск, записанный с мультиинструменталистом Арто Танчбоячаном (он сыграл несколько партий на духовых инструментах в песнях "Aerials" и "Sciense" с мультиплатинового "Toxicity"). Во всем остальном эта работа не имеет ничего общего с экстремистским творчеством SOAD: <BR> - Это экспериментальная и в то же время универсальная запись. Можно найти все что угодно: этническую музыку Китая, Японии, Африки, Джамайки, Европы, немного джаза, немного хип-хопа, рока и танцевальных ритмов. Флейта на фоне щебечущих пташек, арфы… В общем, самые разные ароматы и цвета. Все песни (а их всего 15) были записаны всего за две сессии в конце августа, и практически каждая рождалась в ходе импровизаций. <BR> Еще одна характерная черта работы – отсутствие текстов. Серж решил спеть все так, как Бог на душу положил: "смысл этого будет понятен абсолютно всем". <BR> Тем временем SOAD полным составом появились на европейском канале VH-1, где отвечали на вопросы ведущего Яна Робинсона, в основном речь шла о "Toxicity", что до сих пор висит в европейских чартах. - Вы как-то обмолвились, что на "Toxicity" вошли не все песни. Насколько тяжело было решать, какие песни не войдут в диск и что с ними теперь будет?<BR> - Да уж, пришлось поспорить на эту тему. Всего было записано 33 песни, хотя на самом деле мы подготовили еще больше – 45. На мой взгляд, каждая песня заслуживает того, чтобы оказаться в альбоме, но все же хотелось избежать проходных тем – ненавижу, когда ставишь пластинку и затем пропускаешь скучные песни. Вот и пришлось помучиться, зато теперь едва ли не каждую песню можно услышать на радио.<BR> - По вашему клипу "Chop Suey" можно сказать, что вы достаточно близки к своим фанатам, чем может похвастать далеко не каждая группа такого уровня… <BR> - Потому что мы точно такие же люди. Может, кто-то считает иначе, но, в конце концов, вся эта слава мало повлияла на нас как на людей. Те, кто нас знают, лишь подтвердят это – мы так и остались обычными оболтусами. Когда мы в турне, нас частенько можно видеть в зрительном зале, где мы смотрим на группы, что выступают перед нами. Ну а что касается наших поклонников, то их можно уважать только за то, что они готовы проехать полконтинента ради того, чтобы сняться в нашем клипе – там есть люди из Канады, Нью-Мехико… 1400 человек едва ли не со всего света!<BR> - В песне "ATWA" вы выступаете от лица Чарльза Мэнсона, убийцы, сделанного американской прессой антигероем. Вы не прославляете его, но все же поете от его имени – не боитесь непонимания? <BR> - Людям нужно слышать две стороны истории для того чтобы они могли сами сделать выводы. Я два года искал и читал материалы о Мэнсоне и пришел к выводу, что в его поступках и словах есть кое-что, что заслуживает внимания. Вот об этом и песня. Я не могу признать его убийства, но песня – не моя точка зрения. Его. Пресса показала лишь одну сторону Мэнсона, сделала из него клише, воплощение зла. Думаю, это не совсем честно. Я просто попытался понять, что же он хотел сказать, и обнаружил, что в этом есть толика здравого смысла.<BR> - Вы активно критикуете Билла Клинтона, за что?<BR> - За выступления против резолюции №596. Это постановление было принято нижней палатой конгресса, когда Клинтон еще был президентом – в нем идет речь о том, чтобы официально признать действия Турции в 1915 году в Армении геноцидом, преступлением национального масштаба. Накануне голосования по поводу этого акта Билл Клинтон обратился с письмом к конгрессу с просьбой отклонить этот документ. Очень мерзкий поступок – выглядит как попытка спрятать истину и переписать историю заново. <BR> - С чего вдруг рок-группа лезет в вопросы политики, да еще и в историю?<BR> - Посмотрите на нас – четыре армянина, которые, играя рок-музыку, привлекли к себе внимание общества. Почему бы нам не поговорить и о серьезных вещах? Если мы не будем делать этого, то кто? Это что-то вроде ответственности перед самим собой.</p>
+
+Автор: Tornado
+
+### 13.12.2002 reviews Старые песни о том же
+
+<p>Здесь собрано все то, что до недавнего времени музыканты решали оставить за кадром – материал, не вошедший в два предыдущих диска группы. Уточню – отличные песни, не вошедшие в два великолепных диска. <BR> Эта пластинка – лучшее доказательство тому, что группа вышла на уровень, когда даже черновики гениальны – почерк SYSTEM OF A DOWN настолько оригинален, что даже ошибки и помарки такого уровня сделали бы честь десяткам и сотням каких-нибудь "троечников". <BR> С первых же минут театральная шизофрения в самом разгаре: "Покупайте пиццу, все покупайте пиццу!" Дикая энергетика, плясовые ритмы и мелодии, смеющиеся сквозь слезы, – праздник трагикомедии. SOAD остались теми же безумцами (по желанию – придурками), что и были. Что-то сработано по формулам, уже известным по предыдущим работам группы, что-то звучит достаточно ново. <BR> Справедливости ради отмечу, что на этом альбоме акценты и интонации расставлены несколько иначе, нежели на предыдущих работах SOAD: здесь нет того оголенного нерва и безумного надрыва, что когда-то выделил этот квартет из массы новых коллективов. Взамен на первый план вышли совсем другие стороны SOAD, и армянская музыка, переведенная на язык хардкора, зазвучала иначе, нежели до сих пор, – очень мелодично, словно песни написаны где-нибудь в консерватории по всем правилам гармонии. Правда, написаны хулиганом – ритмических вывертов из области народных плясок и дурашливых интонаций, как и прежде, в избытке. <BR> Альбом удачен настолько, что в его успехе сомневаться не приходится. Интересно вот что – SOAD зарекомендовали себя как непредсказуемая группа, но, кажется, на этот раз все вариации на темы армянского фольклора и безумной тяжести исчерпаны. А что, собственно, дальше?.. Так что новый диск не только радует, но и интригует. Коварный расчет!</p>
+
+Автор: Tornado
+
+### 03.04.2003 articles Война слов
+
+<p><B>Бойня в Ираке породила войну мнений во всем мире. Каждый считает долгом высказать умные и не очень мысли насчет Буша, Ирака и прелести демократии, распространяемой с помощью бомб. Коснулась сия напасть и музыкантов - отличный повод посмотреть, у кого из них в голове есть извилины. </B><BR> Война слов началась еще прошлой осенью - тогда Том Морелло (гитарист левацких групп RAGE AGAINST THE MACHINE и AUDIOSLAVE) и Серж Танкян (вокалист SYSTEM OF A DOWN) создали организацию "Огонь правосудия", от имени которой отвечали на все вопросы, связанные с империализмом, эксплуатацией, борьбой за права человека и экспансией США во всем мире. Естественно, все это обильно сдабривалось цитатами из Карла Маркса, речей Че Гевары и примерами из истории. Эта левая пропаганда жутко не понравилась Билли Милано, лидеру старой и бестолковой нью-йоркской команды M.O.D.: "К черту правосудие, пусть эти два миллионера-коммуниста едут в Ирак и там тратят свои миллионы на мир! Да здравствуют бомбы и нефть!". Миллионеры-коммунисты этот выпад проигнорировали, а меломаны прилепили ярлык к Милано - "неофашист". <BR> Вся эта перепалка так и осталась бы в прошлом, но началась война. Как только Буш объявил свой ультиматум, три девицы из DIXIE CHICKS, обладатели "Грэмми", вышли на сцену с плакатами: "Сколько иракцев стоит один галлон нефти?" и "В одной техасской деревне исчез дурачок. Вы его не видели?". Следом среагировал Эминем - парень высказался незамысловато: "Война - фигня, к черту войну, мне не нужны кадры невинных жертв на ТВ - лучше крутите мои клипы!" Поначалу пацифисты вели себя достаточно пассивно, ограничиваясь воспоминаниями об эре хиппи и призывом к миролюбию. Зато их оппоненты показали себя ярыми сторонниками Белого дома и его аргументов. 18 марта Майк Портной, барабанщик великолепной прогрессив-команды DREAM THEATER, начал стыдить всех критиков Буша: "Я не люблю войну. Но то, что было начато 11 сентября, должно быть завершено - США должны разгромить терроризм и защитить свободу! Все, кто против, идите-ка домой и посмотрите еще раз хронику той катастрофы: как горят здания, люди выпрыгивают из окон и рушится символ процветания!". <BR> Как только на головы иракцев посыпались бомбы и кадры войны пошли по ТВ, Фред Дерст, лидер рэпперов LIMP BIZKIT, не удержался от комментариев: "Вы видели это? Сюрреализм какой-то… Я молюсь за народ Ирака и за всех, кто погибнет. Но я молюсь и за победу наших солдат - пусть они скорее возвращаются домой с победой! Не нужно больше протестовать против войны, нужно поддержать нашу страну: вперед, США!". <BR> К числу милитаристов примкнул и Закк Уайлд, гитарист Оззи Осборна: "Войска США будут крушить врагов и господствовать везде! Это лучшая армия в сегодняшнем мире!". Интересно, с какими чувствами этот парень играет с Оззи песни "War Pigs" ("Военные свиньи") и "God thank you for the bomb!" ("Господи, спасибо за бомбу!")? В том же ключе выступил и древний рокер Тед Наджент - мол, во Второй мировой войне вмешательство США помогло спасти миллионы евреев, и на этот раз война поможет спасти невинных! По каким учебникам этот парень учил историю и как он смотрит новости: кого должны спасти американские бомбы? Лучше умереть от оружия свободы, чем жить при диктатуре Хусейна? <BR> В конечном счете большинство американских музыкантов так или иначе поддержали войну. Зато меньшинство принялось активно действовать - Лени Кравиц и R.E.M. отправились в студию писать антивоенные песни, а Зак Де Ла Роша, экс-вокалист RAGE AGAINST THE MACHINE, уже это сделал, назвав при этом Буша палачом, а Серж Танкян и Том Морелло каждый концерт начинают с антивоенных речей. Правда, власти страны образцовой демократии ставят им палки в колеса как могут: с 25 марта на MTV запрещены к показу все песни со словами "Ирак, "война", "бомба" и т.д., а из эфира уже сняты несколько клипов: "Boom!" SYSTEM OF A DOWN и "Holy Wars" MEGADETH (последний, кстати, вышел ровно десять лет назад во время первой иракской войны и содержал жестокие кадры бомбардировок). Хуже всего пришлось группе B-52 - ребята ничего не имеют против войны, но они называются так же, как и бомбардировщики, которые несут 1-тонные заряды свободы иракцам, и потому упоминание этой группы в прессе и эфире сейчас нежелательно… <BR> В Европе иной расклад - антивоенные настроения доминируют. Только шведы MARDUK выпали из общего ряда: "Война не наша проблема - пусть танки действуют!". Зато немцы SODOM в прошлом году выпустили альбом, целиком посвященный американским приемам ведения войны во Вьетнаме - этакий экскурс в историю уничтожения жизни. Теперь эта работа снова актуальна. А их земляки DESTRUCTIОN на днях записали кавер-версию песни британцев THE EXPLOITED с красноречивым названием "Fuck The U.S.A.". <BR> Только Ларс Ульрих, барабанщик METALLICA, высказался наиболее разумно в этой перепалке: "Если ты музыкант и люди слушают твое мнение, это вовсе не значит, что нужно комментировать все подряд. Я уважаю то, что делают Том Морелло и Серж Танкян, всех тех, кто столь эмоционально выступает сегодня по проблеме войны, но я не хотел бы использовать имя METALLICA как трибуну. Читайте газеты, смотрите, что пишут в Интернете, создавайте свое собственное мнение и не слушайте какого-то придурка только потому, что он играет в какой-то рок-группе. Музыканты - не самые умные люди, так что лучше думайте своей головой!". <BR> <B>MAKE MUSIC NOT WAR!</B></p>
+
+Автор: Tornado
+
+### 14.01.2005 news SYSTEM OF A DOWN выпускают новые альбомы
+
+<P><STRONG>SYSTEM OF A DOWN</STRONG> записывают новые песни для нового альбома "<STRONG>Mesmerize/Hypnotize"</STRONG>. Пластинка выйдет по частям: первый диск '<STRONG>Mesmerize</STRONG>' появится в продаже весной, а второй '<STRONG>Hypnotize</STRONG>' полгода спустя. Песню '<STRONG>Cigaro</STRONG>' с этого альбома Вы можете послушать у нас на сайте: <A href="/samples/s/system_of_a_down/2005_1327.mp3">http://musica.mustdie.ru/samples/s/system_of_a_down/2005_1327.mp3</A></P>
+Автор: Vit Belov
+
+### 02.12.2005 news Звёзды metal называют любимые альбомы в 2005 году
+
+<P>Шведский журнал <STRONG>Close-Up</STRONG> попросил известных музыкантов назвать любимые альбомы в 2005 году. Единодушия среди артистов не возникло. Только несколько пластинок было названо в тройки несколькими голосовавшими. Например, альбом <STRONG>OPETH "Ghost Reveries"</STRONG> назвали <STRONG>Leif Edling</STRONG> (<STRONG>CANDLEMASS</STRONG>) и <STRONG>Anders Nystrom</STRONG> (<STRONG>KATATONIA</STRONG>), а альбом <STRONG>SYSTEM OF A DAWN</STRONG> "<STRONG>Mesmerize</STRONG>" - <STRONG>Nergal </STRONG>(<STRONG>BEHEMOTH</STRONG>) и <STRONG>Robert Flynn</STRONG> (<STRONG>MACHINE HEAD</STRONG>). Также по нескольку раз упоминались альбомы <STRONG>SOILWORK</STRONG>&nbsp;и&nbsp;<STRONG>SPIRITUAL BEGGARS</STRONG>.</P>
+<P>В остальном выбор звёзд был хаотичен и слишком разнообразен по стилевым направлениям.&nbsp;&nbsp;</P>
+Автор: Vit Belov
+
+### 30.11.2010 news SYSTEM OF A DOWN возвращаются
+
+<P><IMG border=1 hspace=0 alt="" align=right src="/images/news_rus/2010.11/17697.jpg" width=300 height=225>Американцы армянского происхождения <STRONG>SYSTEM OF A DOWN</STRONG> официально объявили о своём возвращении в строй. Группа находилась в анабиозе с 2006 года, когда музыканты решили заняться собственными проектами. На 2011 год планируется серия "ре-юнион" концертов. Пока объявлен лишь июньский тур по Европе, в рамках которого<STRONG> SYSTEM OF A DOWN</STRONG> выступят на фестивале <STRONG>Download</STRONG> в Донингтоне, фестивале <STRONG>Rock Am Ring</STRONG> на автодроме Нюрбургринг, а также в парижском Берси, в Милане и Берлине.</P>
+<P>Певец <STRONG>Serj Tankian</STRONG> в недавнем интервью рассказал, что идея вернуться к жизни у членов <STRONG>SYSTEM OF A DOWN</STRONG> появилась на свадьбе басиста <STRONG>Shavo Odadjian</STRONG>, состоявшейся пару месяцев назад. </P>
+<P>Музыканты группы не переставали заниматься музыкой всё это время. <STRONG>Serj Tankian</STRONG> выпустил два сольных альбома, <STRONG>Shavo Odadjian </STRONG>записывался с <STRONG>WU-TANG CLAN</STRONG>,&nbsp;а гитарист <STRONG>Daron Malakian</STRONG>&nbsp;и барабанщик<STRONG> John</STRONG> <STRONG>Dolmayan</STRONG> организовали новую группу <STRONG>SCARS ON BROADWAY.</STRONG></P>
+<P>На счету<STRONG> SYSTEM OF A DOWN</STRONG> премия "Грэмми" и два альбома, лидировавших в чартах <STRONG>Billboard</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### System Of A Down

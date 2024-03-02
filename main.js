@@ -12,6 +12,7 @@ const relations_sql = read_content('s_relations.sql');
 const topics_sql = read_content('s_topics.sql');
 const messages_sql = read_content('s_messages.sql');
 const mentions_sql = read_content('s_mentions.sql');
+const contents_sql = read_content('s_contents.sql');
 
 function read_content(filename) {
    return fs.readFileSync(filename).toString();
@@ -58,6 +59,7 @@ async function main() {
             const relations = await conn.query(relations_sql, [band.band_id, band.band_id]);
             const topics = await conn.query(topics_sql, [band.band_id]);
             const mentions = band.band.length > 2 ? await conn.query(mentions_sql, [band.band_id, `%${band.band}%`]) : [];
+            const contents = await conn.query(contents_sql, [band.band_id, band.band_id]);
             
             for (let index = 0; index < topics.length; index++) {
                 const element = topics[index];
@@ -68,6 +70,7 @@ async function main() {
                                                                                      description : band.description,
                                                                                           albums : albums, 
                                                                                        relations : relations, 
+                                                                                        contents : contents, 
                                                                                           topics : topics,
                                                                                         mentions : mentions})));
         }

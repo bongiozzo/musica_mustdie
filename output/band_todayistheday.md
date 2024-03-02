@@ -56,6 +56,16 @@ great artcore band
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.08.2010 news Альбом &quot;In The Eyes Of God&quot; группы TODAY IS THE DAY  будет переиздан
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17021.jpg" width=180 height=186>Классический альбом группы<STRONG> TODAY IS THE DAY</STRONG> <B itxtvisited="1">"In The Eyes Of God"</B> будет переиздан этим сентябрём на лейбле <B itxtvisited="1">Relapse</B>. Ремастированный и получивший новую упаковку, он будет включать в себя шесть демо треков и полноформатное DVD в виде бонусных материалов. Содержание DVD диска было подобрано самим&nbsp;Стивом Остином (основатель <STRONG>TODAY IS THE DAY,</STRONG> на фото<STRONG>)</STRONG>&nbsp;&nbsp;и представит нам редкие концертные и репетиционные съёмки времён альбома <STRONG>"In The Eyes Of God"</STRONG>.</P>
+<P>Данное издание выйдет ограниченным тиражом в 3000 шт. и уже сейчас доступно для предварительного заказа по адресу: <A href="http://shop.relapse.com/store/product.aspx?ProductID=40320">http://shop.relapse.com/store/product.aspx?ProductID=40320</A></P>
+<P>Группа, так же, переиздала свои первые три альбома — <B itxtvisited="1">"Supernova"</B>, <STRONG>"Willpower"</STRONG> и<STRONG> "Today Is the Day"</STRONG> — на 12" виниле.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

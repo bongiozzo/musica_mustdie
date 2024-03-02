@@ -20,6 +20,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.12.2002 news Reclusion News
+
+<p>Here is a news from sweden thrashers RECLUSION. New album "Inventory of the morgue" will be recorded in February at Los Angered Recording located in Gothenburg, Sweden. Andy la Rocque (King diamond) & Risza will produce the album. A sample from the rehearsal recording of a new song called "Five clicks (and you dead)" is available for download.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

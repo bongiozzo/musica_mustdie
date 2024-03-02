@@ -43,6 +43,21 @@ Photos by Bjarne Nielsen
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.11.2001 reviews Умирать или летать?
+
+<p>Умирать или летать? После прослушивания этого альбома только два выхода. Грустная чистая меланхоличная музыка в духе Katatonia, Paradise Lost и Darkseed. Очень хороший вокал, приятные гитарки, красивый клавишный ряд, мистическая атмосфера, богатый выбор мелодий. Крепко сделанный и со вкусом записанный дебютный альбом в стиле gothic metal молодых музыкантов из Швеции. Музыка переполнена чувствами и эмоциями. Здесь и мелодий в достатке, и тяжесть риффов присутствует. Хороший мощный гармоничный звук. Правда, состоит альбом из сплошных стандартов, налицо полное отсутствие оригинальности. Сегодня довольно много подобных групп, например Silentium, но любители подобной музыки обязательно выделят этот альбом во всеобщем потоке ему подобных. Потому что...красиво.</p>
+
+Автор: Dimas
+
+### 16.01.2002 reviews To die or to fly?
+
+<p>To die or to fly? After listening this album only two exits are. Sad pure melancholic music in spirit of Katatonia, Paradise Lost and Darkseed. Very good vocal, pleasant guitars, beautiful keyboard line, mystical atmosphere, rich choice of melodies. Strong made and with taste the written down debut album in style of gothic metal of the young musicians from Sweden. Music is overflowed by feelings both emotions. Here is melodies in a prosperity, and the weight riffes is present. A good powerful harmonious sound. The truth, album consists of the continuous standards, available complete absence of originality. Today there are a lot of similar groups, for example Silentium, but the fans of similar music necessarily will allocate this album in a general flow of similar. Because... Beautifully.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

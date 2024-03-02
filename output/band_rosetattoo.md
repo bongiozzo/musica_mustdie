@@ -8,6 +8,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.11.2007 news Видео от ROSE TATTOO
+
+<P><STRONG>ROSE TATTOO</STRONG> сняли второй клип на песню с последнего альбома <STRONG>"Blood Brothers</STRONG>". Видео на песню <STRONG>"Man About Town"</STRONG> можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/NKAIF1sYu-k&rel=1&border=0"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/NKAIF1sYu-k&rel=1&border=0" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

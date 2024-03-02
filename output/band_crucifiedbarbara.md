@@ -36,6 +36,43 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.01.2011 news Tomas Haake женился
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18322.jpg" width=147 height=250>Барабанщик шведской группы <B itxtvisited="1">MESHUGGAH</B> Томас Хааке (<STRONG>Tomas Haake</STRONG>) женился на басистке&nbsp;по имени&nbsp;<B itxtvisited="1">Ida Evileye</B> (на фото, по паспорту: <B itxtvisited="1">Ida Stenbacka</B>) из шведской девчачьей группы <B itxtvisited="1">CRUCIFIED BARBARA</B>. Произошло это на прошлой неделе в Лас Вегасе.</P>
+Автор: Headcrusher
+
+### 11.04.2012 news CRUCIFIED BARBARA: видео на трек &quot;Into The Fire&quot;. 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведские чиксы из<STRONG> CRUCIFIED BARBARA</STRONG> выпустили новое видео на трек <STRONG>"Into The Fire"</STRONG>. Данная песня войдёт на третий альбом группы <STRONG>"The Midnight Chase"</STRONG>, который будет распространяться американским подразделением <STRONG>Nuclear Blast</STRONG> в Северной Америке, Канаде, мексике, а также, в Новой Зеландии и Австралии. Дата выхода будет сообщена познее.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Японский же и европейский релизы альбома состоятся&nbsp;на других лейблах&nbsp;23 и 28 мая, соответствено.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Диск был записан в студии <STRONG>Music-A-Matic</STRONG> в Гётеборге, Швеция. За продюсирование отвечал <STRONG>Chips Kiesby</STRONG>. Сведение - Henryk <STRONG>Lipp</STRONG>. На альбом вошло 11 треков. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вот, что сказала гитаристка/вокалистка <STRONG>Mia</STRONG> о новом альбоме: <EM>"Я никогда не была так удоволетворена проделанной работой, чем сейчас. Я чертовски горда за наши новые песни и&nbsp;звук на альбоме, лучше чем когда-либо. Мы не можем дождаться, чтобы отправиться в тур и сыграть их живьём".</EM></FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/u3KUajRbTIo" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 04.10.2012 news CRUCIFIED BARBARA: клип &quot;Rock Me Like The Devil&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведки <STRONG>CRUCIFIED BARBARA</STRONG> опубликовали уже второе видео с альбома <STRONG>"The Midnight Chase"</STRONG>, который вышел в мае этого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Съёмки клипа проводились в конце лета&nbsp;в шведском городе Гётеборг.&nbsp;Ответственной за съёмочный процес стала компания&nbsp;<STRONG>11Frames Productions</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/tjL5apEyiig" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 29.05.2014 news CRUCIFIED BARBARA: клип &quot;To Kill A Man&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Скандинавский женский квартет<STRONG> CRUCIFIED BARBARA</STRONG> выпустили видеоклип на песню <STRONG>"To Kill&nbsp;A Man"</STRONG>.&nbsp;Этот трек войдёт в новый студийный альбом группы, который получил название&nbsp;<STRONG>"In The Red"</STRONG> и выйдет 20 августа на <STRONG>Despotz Records</STRONG>.</P>
+<P><EM>“Одна пятая всех женщин на земле, хотя бы раз подвергается насилию или нападению в течении всей&nbsp;своей жизни,”</EM> - комментирует группа.<EM> "Данная тёмная статистика стала основой для нашей песни "To Kill&nbsp;A Man"&nbsp;и самой главной темой нашего видео.&nbsp;Съёмочная группа компании&nbsp;<STRONG>11Frames</STRONG> прекрасно передала наше видение проблемы и мы горды, что имеем возможность поднимать такие нелёгкие темы, как насилие и сексизм, используя для этого hard-rock-видео.”</EM></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/YoUBd6aTJMg?feature=player_embedded" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER></FONT>
+Автор: Headcrusher
+
+### 24.09.2014 news Новинки видео
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.09/27304.jpg" width=200 height=140>В этом постинге предлагаем вам&nbsp;ознакомится с&nbsp;десятью&nbsp;модными видеоклипами в металлической и не только музыке, которые появились за последний месяц на просторах интеренета и заслуживают вашего самого пристального внимания.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>1349 "Slaves"</STRONG> : <A href="http://youtu.be/ajvLJPzgL_o">http://youtu.be/ajvLJPzgL_o</A><BR>02. <STRONG>ACHERON "Satan Holds Dominion"</STRONG> : <A href="http://youtu.be/dIoQHF4YIC8">http://youtu.be/dIoQHF4YIC8</A><BR>03. <STRONG>AMON AMARTH "Deceiver of the Gods" </STRONG>: <A href="http://youtu.be/CpAcxbtXUgQ">http://youtu.be/CpAcxbtXUgQ</A><BR>04. <STRONG>CORROSION OF CONFORMITY "On Your Way"</STRONG> : <A href="http://youtu.be/H5RdqR6I8Uw">http://youtu.be/H5RdqR6I8Uw</A><BR>05. <STRONG>CRUCIFIED BARBARA "I Sell My Kids For Rock'N'Roll"</STRONG> : <A href="http://youtu.be/oVU_8D1aJoU">http://youtu.be/oVU_8D1aJoU</A><BR>06. <STRONG>MORTALS "View From A Tower"</STRONG> : <A href="http://youtu.be/mHPh_aUfGD8">http://youtu.be/mHPh_aUfGD8</A><BR>07. <STRONG>NOCTEM "The Adamantine Doors"</STRONG> : <A href="http://youtu.be/rsNQonZdRNM">http://youtu.be/rsNQonZdRNM</A><BR>08. <STRONG>ORANGE GOBLIN "Sabbath Hex"</STRONG> : <A href="http://youtu.be/2l4Ts2p7jPE">http://youtu.be/2l4Ts2p7jPE</A><BR>09. <STRONG>SPIDERS "Shake Electric"</STRONG> : <A href="http://youtu.be/4IlpVlGTjbA">http://youtu.be/4IlpVlGTjbA</A><BR>10. <STRONG>THE HAUNTED "Eye Of The Storm"</STRONG> : <A href="http://youtu.be/uNAwrj1EUo8">http://youtu.be/uNAwrj1EUo8</A></FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

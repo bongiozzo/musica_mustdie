@@ -309,6 +309,26 @@ Jeff Beck - vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.10.2008 reviews Бородатый концерт из Техаса
+
+<P>ZZ Top это давно не просто группа. Они практически давно уже стали музыкальным символом Техаса. С 1969-го года нарезает это трио свои бесхитростные буги-блюзо-южнороковые номера, являясь одним из рекордсменов по времени сохранения неизменного состава со дня основания. Концертный альбом "Live From Texas" выпускается как&nbsp;бы вдогонку одноименному DVD и содержит 15 вещей из&nbsp;классического наследия ZZ Top. Здесь представлены такие знаковые альбомы группы, как "Eliminator" (целых 4 песни, что неудивительно, ибо альбом этот получили мультиплатиновый, а затем и бриллиантовый статус -&nbsp; т.е. было продано более 10 000 000 копий), "Fandango!" (2), "Tres Hombres" (3), "El Loco" (2), "Deguello" (2), "Rio Grande Mud" (1), "Afterburner" (1). Безусловно, объективно судить о группе, которая почти 40 лет выступает на сцене и участникам которой почти по 60 лет, довольно сложно. Слышны и огрехи исполнения, вокал Билла Гиббонса уже, конечно, совсем не тот, гитарные соло особо не впечатляют, да и особого зажигания не чувствуется. Что ж, годы берут своё... Впрочем, даже самым юным меломанам наверняка знакомы такие вещи, как, например, 'Rough Boy', 'Legs'&nbsp;или 'La Grange', так что, видимо, не зря были эти 40 лет. Нельзя сказать, что песни ZZ Top отличаются таким уж разнообразием, так что потенциальные неофиты вполне могут начать знакомство с бородачами с 76-минутного концертника и уже потом решить, стоит ли им искать студийные работы этого древнего трио. Вообще, не очень понятно, зачем было выпускать на CD "Live From Texas",&nbsp;так как&nbsp;поклонники коллектива уже наверняка приобрели&nbsp;DVD или Blu-ray, тем более, что тут никаких бонусов нет (как раз наоборот, на DVD есть на одну вещь больше, если не ошибаюсь), а остальным он нужен разве что, как упоминалось выше, для краткого ознакомления, хотя те же бестники у ZZ Top, естественно, выходили. Так что решил я оценку не ставить, ибо, объективно говоря, более 5-6 баллов эта пластинка вряд ли заслуживает, но чисто из уважения перед столь древним коллективом ставить ниже 8 рука как-то не поднимается.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 19.01.2011 news Billy F. Gibbons и Nuno Bettencourt в клипе PUSHKING
+
+<P>Отечественная группа<STRONG> PUSHKING</STRONG> вновь собирается порадовать поклонников мелодичного hard-rock по всему миру. Новый альбом коллектива <STRONG>"The World As We Love It" </STRONG>выйдет 1 февраля на <STRONG>Eagle Rock</STRONG>. Пластинка представит перезаписанные версии хитов<STRONG> PUSHKING</STRONG> с участием массы приглашённых звёзд мировой рок-музыки. Вот их список: <STRONG>Paul Stanley</STRONG> (<B>KISS</B>), <B>Billy F. Gibbons</B> (<B>ZZ TOP</B>), <B>Alice Cooper</B>, <B>Steve Vai</B>, <B>Glenn Hughes</B> (<B>DEEP PURPLE</B>), <B>Joe Lynn Turner</B> (<B>RAINBOW</B>), <B>Keri Kelli</B> (<B>ALICE COOPER</B>), <B>Steve Stevens</B> (<B>BILLY IDOL</B>)&nbsp;и <B>Nuno Bettencourt</B> (<B>EXTREME</B>). Прод.сером альбома выступил <STRONG>Fabrizio Grossi</STRONG> (<B>GLENN HUGHES</B>, <B>ALICE COOPER</B>, <B>DAVE NAVARRO</B>, <B>TOTO</B>).</P>
+<P>Ниже можно увидеть видео-клип на песню <STRONG>"It'll Be OK", </STRONG>в съёмках которого приняли участие певец <STRONG>ZZ TOP</STRONG> <STRONG>Billy F. Gibbons</STRONG>&nbsp;и гитарист<STRONG> EXTREME</STRONG>&nbsp;<B>Nuno Bettencourt.</B></P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/dnOInTFOwD4&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/dnOInTFOwD4&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

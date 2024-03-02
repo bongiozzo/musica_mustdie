@@ -14,6 +14,21 @@
 * C группой "TNT" Tony Harnell
 * C группой "Last Tribe" Magnus Karlsson
 
+## Публикации
+
+### 19.01.2005 news STARBREAKER - новое приобретение Frontiers
+
+<P><STRONG>STARBREAKER</STRONG> - новая супер-группа, в которой объединили свои усилия вокалист <STRONG>TNT Tony Harnell</STRONG> и гитарист <STRONG>LAST TRIBE Magnus Karlsson</STRONG>. Дебютный альбом коллектива '<STRONG>Starbreaker</STRONG>' выйдет 21 марта на <STRONG>Frontiers</STRONG>. Обещается самая тяжёлая и агрессивная работа с участием этого певца.</P>
+Автор: Vit Belov
+
+### 12.06.2008 news STARBREAKER закончили альбом
+
+<P><STRONG>Tony Harnell</STRONG> (<B>TNT</B>, <B>WESTWORLD</B>, <B>MORNING WOOD</B>), <B>Magnus Karlsson</B> (<B>ALLEN LANDE</B>, <B>PRIMAL FEAR</B>)&nbsp;и <B>John Macaluso</B> (<B>YNGWIE MALMSTEEN</B>, <B>TNT</B>, <B>ARK</B>) закончили работу над новым альбомом<STRONG> STARBREAKER</STRONG> <STRONG>"Love's Dying Wish"</STRONG>. Пластинка выйдет 1 августа на <STRONG>Frontiers</STRONG>. Новую песню можно послушать на MySpace страничке Tony Harnell. Трэк-лист:</P>
+<P>01. <B>End Of Alone</B><BR>02. <B>Evaporate</B><BR>03. <B>Love's Dying Wish</B><BR>04. <B>Unknown Superstar</B><BR>05. <B>Hide</B><BR>06. <B>Building A Wall</B><BR>07. <B>Beautiful Disaster</B><BR>08. <B>Live Your Life</B><BR>09. <B>Hello, Are You Listening?</B><BR>10. <B>Changes Me</B><BR>11. <B>The Day Belongs To Us</B><BR>12. <B>This Close</B></P>
+<P>Ссылка:<STRONG> </STRONG><A href="http://www.myspace.com/tonyharnellonline">http://www.myspace.com/tonyharnellonline</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

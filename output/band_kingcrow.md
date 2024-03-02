@@ -77,6 +77,47 @@ My War (The story)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.04.2003 news Kingcrow MP3 are available on-line
+
+<p>Kingcrow, classic prog metal band from Rome, Italy, have issued "Matzmariels". The EP is anticipates the forthcoming album, out in the fall.</p>
+<P> You can download a full MP3 ("Lies") from "Matzmariels" at this address: http://www.vitaminic.it/cgi-php/get_file.php3?modo=1&bid=454278&cob=0</>
+<P> "Matzmariels" can be obtained only via the official web site of the band http://www.kingcrow.it</>
+
+Автор: Vit Belov
+
+### 15.10.2003 news KINGCROW news
+
+<B>Kingcrow</B> are in full immersion with the recording session of the new album, "<B>Insider</B>", out in the end of 2003. A "making of" videoclip is available through the official site at this location: <A href="http://www.kingcrow.it/main.htm"><U>http://Www.kingcrow.it/main.htm</U></A>
+Автор: Vit Belov
+
+### 23.05.2004 reviews Поиграем в Judas Priest!
+
+<P>Kingcrow, итальянская команда основанная в 1996 году братьями Диего и Мануэлем Кафолла, в багаже которой 2 демо и один полноформатный альбом “Something Unknown”. </P>
+<P>Музыканты строго позиционируют себя как прог-металическую команду и в 2003 году решаются на потрясающе смелый шаг – записать свою “Operation: Mindcrime”. :^)))</P>
+<P>Я не очень понимаю, почему они сделали тогда звук, характерный даже не концу восьмидесятых, а уж скорее концу 70х - началу 80х. То есть, если вы любитель команд Новой Волны Британского Тяжелого Метала, то суровая скупая мужская слеза просто обязана прокатится по вашей щеке. И не надо ее украдкой смахивать. Ностальгия это дело такое… Собственно по музыке альбом “Insider” и представляет собой очень чисто записанный, с учетом современных технологий, хэви а-ля слегка усложненный Judas Priest. Похожести способствует еще и вокалист Мауро Джельсомини.</P>
+<P>Правда, голос его не обладает столь широким диапазоном, и Мауро не может так же визжать, как Хэлфорд, да он и не старается делать невозможное, поет строго только, что может. И неплохо это делает. Нельзя сказать, что он великолепный вокалист, но, думаю, 2/3 наших хэви-паверных команд передрались бы за такого фронтмена. Внушает уважение и чистенькая работа гитаристов. Никаких оригинальных риффов, но все очень профессионально. Ну и с сонграйторством у команды все в порядке. Вполне приличный, мелодичный материал. Даже хит есть – “Stardust” называется. Ну и очень хорош главный номер альбома “Save Me”, плавно перетекающий в шикарный инструментал.</P>
+<P>Диск категорически не рекомендуется сопливым и самоуверенным миталистам и упертым прог-рокерам. Любители старого доброго хэви могут попытаться найти этот альбом. А это будет не просто. </P>
+Автор: Дофф
+
+### 27.03.2012 news KINGCROW вошли в студию
+
+<P>Итальянские прог-металисты<STRONG> KINGCROW</STRONG> вошли в студию для записи нового альбома "<STRONG>In Crescendo</STRONG>". Пластинка выйдет в свет до конца текущего года.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/OgLdavimQ5E?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 27.06.2016 news Новое видео KINGCROW
+
+<p>Новый клип итальянской progressive группы<strong> KINGCROW</strong> на песню "<strong>If Only</strong>" можно посмотреть ниже. Трек взят с последнего альбома коллектива <strong>"Eidos",</strong> который вышел на<strong> Sensory</strong> в прошлом году.</p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/bT63LOSXo8I" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 27.06.2016 news KINGCROW released clip
+
+New video of the Italian progressive band <strong>KINGCROW</strong> for the song "<strong>If Only</strong>" can be viewed below. The track is taken from the latest album, "<strong>Eidos</strong>", which was released on <strong>Sensory</strong> in the past year.<p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/bT63LOSXo8I" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

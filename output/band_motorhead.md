@@ -649,6 +649,1099 @@ CD2:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.02.1999 news 
+
+<p>MOTORHEAD выпускают свой новый концертный альбом, который был записан во время Snake Bite Love тура в Гамбурге, Германия. Кстати, трэк-лист очень похож на то, что группа исполняла в Москве полтора года назад.</p>
+
+Автор: Vit Belov
+
+### 01.04.1999 news 
+
+<p>Motorhead собираются записать новый альбом в апреле-мае, он выйдет в конце 99 - начале 00 года.</p>
+
+Автор: Vit Belov
+
+### 22.05.1999 news 
+
+<p>"Born To Loose, Live To Win" - так будет называться новый сборник Motorhead. В него войдут все синглы группы времён Бронзовых лет. Начиная с "Louie, Louie" 1978 года и заканчивая "I got mine" 1983 года. Все синглы будут на отдельных CD с оригинальными обложками.</p>
+
+Автор: Vit Belov
+
+### 24.10.1999 news 
+
+<p>Честно говоря, я уже устал сообщать о новых дисках под маркой Motorhead. на этот раз это сборник лучших вещей группы "Protect The Innocent", который выйдет на четырёх CD с 60-страничным буклетом.</p>
+
+Автор: Vit Belov
+
+### 10.04.2000 news 
+
+<p>Новый студийный альбом Motorhead с оригинальным названием "We Are Motorhead" выйдет 16 мая.</p>
+
+Автор: Vit Belov
+
+### 13.09.2000 news Новый диск Illdisposed
+
+<p> Третьего ноября группа Illdisposed выпускает сборник кавер-версий песен своих любимых исполнителей: "Cromlech" (Dark Throne), "None Shall Defy" (Infernal Majesty), "Reek Of Putrefaction" (Carcass), "Nightmare" (Venom), "Rapture" (Paradise Lost), "Open Casket" (Death), "Out Of The Body" (Pestilence), "Gasping For Air" (Autopsy), "Killed By Death" (Motorhead), "Intoxicated" (Obituary) и "Beating Around The Bush" (AC/DC).</p>
+
+Автор: Nybras
+
+### 15.09.2000 news Motorhead стукнуло 25 лет
+
+<p> Легендарная группа Motorhead скоро отпразнует свою 25-ю годовщину специальным концертом в Бикстонской Академии 22-го октября. Концерт будет назваться "25 лет не значат больше ничего". Группа говорит, что приготовила много сюрпризов своим фэнам, в виде специальных гостей и проч.</p>
+
+Автор: Nybras
+
+### 23.09.2000 news Еще один саундрек к еще одному фильму
+
+<p> Шведы Arch Enemy предоставят свою песню "Dead Inside" для саундтрека к новому фильму "Tales From The Crypt". Среди других команд, замеченых в работе над саундреком, такие группы, как The Haunted, WASP, Megadeth, Armored Saint, Entombed, Queensryche, Mercyful Fate, Sepultura, Slipknot, Judas Priest, Prong, Anthrax, Motorhead, Black Sabbath, Dio, Metal Church и Pantera! Этот саундтрэк появится в продаже с 19-октября.</p>
+
+Автор: Nybras
+
+### 22.12.2000 news Motorhead прервали своё турне
+
+<p> MOTORHEAD пришлось прервать оставшуюся часть европейского своего тура (в том числе и три британских даты) из-за крайнего переутомления Лемми Киллмистера. Как известно, тур We Are Motorhead проходил в ознаменование 25-летнего юбилея группы, и команде удалось побывать в очень многих местах, где о ней даже не мечтали до этого - Япония, Россия, Польша, Беларусь, Литва, Финляндия, Швеция, Дания и Норвегия. Как результат - было сыграно 39 шоу за 48 дней, с весьма и весьма напряженным графиком разъездов между концертами. Доктора советуют серьезно отдохнуть, но неугомонный Лемми, вопреки советам, собирается-таки продолжить тур после небольшого, но необходимого отдыха. "Доктора уже долгие годы советуют мне угомониться," сказал Лемми, лежа на больничной койке в итальянском госпитале. "Так что никто не может утверждать, что именно на этот раз они правы. А меня эта проблема весьма и весьма волнует, ибо я не желаю разочаровывать наших фэнов в странах, где уже было объявлено, что мы грядем! На самом деле мне уже пару недель назад нужно было отдохнуть..." Кстати, врачи рекомендовали Лемми успокоиться примерно недельки на четыре, дабы восстановиться полностью. (LEGION ONLINE)</p>
+
+Автор: Nybras
+
+### 23.02.2001 news Лемми - фанат рестлинга???
+
+<p>MOTORHEAD'ы записали песню для звезды рестлинга Triple H. Рестлер обратился к Кильминстеру с готовой идеей 'The Game' и попросил записать ее как тему для своего появления. Mikkey и Phil записали свои партии в Австрии еще в конце 2000 года, затем они были пересланы в Штаты, где Лемми и Боб Кулик добавили басс и соло. Кстати, присутствие Боба Кулика настолько понравилось MOTORHEAD'ам, что они пригласили его поработать над своим следующим альбомом. Так же во время записи Боб и Лемми записали песню трибьют TWISTED SISTER 'Shoot 'Em Down'. Вы можете уже качнуть ее на сайте Моторхэд.</p>
+
+Автор: Yermola
+
+### 23.02.2001 news MOTORHEAD&#39;s song for WWF star
+
+<p>MOTORHEAD's official website has reported on the band's new theme song for WWF star, Triple H. The wrestler came up with the original concepts for 'The Game' and asked Motorhead to record it as his entrance theme. Mikkey and Phil recorded their parts in Austria at the end of 2000. The tapes were sent to the States and the day before his birthday, Lemmy went into the studio with Bob Kulick and layed down his bass tracks and worked up some stunning vocals. Kulick stepped in at the end of the recording sessions of We Are Motorhead to help iron out a few of the tracks. It is looking good for his involvement in the new Motorhead studio album scheduled to begin recording in April. Mikkey and Phil are planning to come to Los Angeles in March to begin work on the album. 'The Game' will appear on WWF: The Music - Vol. 5, due out February 20th.<BR><BR>In addition, when Lemmy was in the studio with Kulick, he reworked one song that he had started some time ago and is intended for a TWISTED SISTER tribute. It's called 'Shoot 'Em Down' and is currently on the Motorhead website!!</p>
+
+Автор: Yermola
+
+### 05.03.2001 news Dynamo Open Air 2001 Festival
+
+<p>После проведения однодневных Dynamo Open в последние годы, в этом году принято решение все-таки вернуться к трехдневной форме. Шестнадцатый фестиваль будет проходить на "De Schans" в Lichtenvoorde с 24 по 26 мая 2001. Уже подтвердили свое участие: CRADLE OF FILTH, SLIPKNOT, TOOL, SAVATAGE, MOTORHEAD, MEGADETH, PAPA ROACH, DYING FETUS , MACABRE, IN EXTREMO, OPETH, NAPALM DEATH, VADER, M.O.D., IGNITE, AFTER FOREVER и WICKED MYSTIC. Не пропустите!</p>
+
+Автор: Yermola
+
+### 05.03.2001 news Dynamo Open Air 2001 Festival
+
+<p>After last years one day-Dynamo we strike back with a full three day -event, with campsite at "De Schans" in Lichtenvoorde. Our 16th edition will simply crush all other summerfestivals this year and takes place on the 24th, 25th and 26th of MAY … Bands Scheduled To Appear: CRADLE OF FILTH, SLIPKNOT, TOOL, SAVATAGE, MOTORHEAD, MEGADETH, PAPA ROACH, DYING FETUS , MACABRE, IN EXTREMO, OPETH, NAPALM DEATH, VADER, M.O.D., IGNITE, AFTER FOREVER feat. Arjen Lucassen, WICKED MYSTIC</p>
+
+Автор: Yermola
+
+### 17.09.2001 news DVD от MOTORHEAD ...
+
+<p>29-го октября MOT&Ouml;RHEAD выпускают DVD содержащий съемки шоу посвященного 25-ой годовщине группы в Лондонской Brixton Academy. Заснятый на 8 (!) видеокамер и со звуком Dolby 5.1. фильм предсавляет гостевое участие Brian May (ex-QUEEN), Fast Eddie Clarke (ex-MOT&Ouml;RHEAD), Whitfield Crane (ex-UGLY KID JOE), Doro Pesch и других. Кроме того, DVD содержит старые фотографии, ТВ-шоу и интервью с комментариями Лемми, бонус-трек - акустическую версию "Ain't No Nice Guys", все видео-клипы, "METALLICA" на праздновании дня рождения Лемми в Whiskey (West Hollywood) и скринсэйвер. Да ... нужная штучка для коллекционеров!</p>
+
+Автор: Yermola
+
+### 17.09.2001 news MOTORHEAD will be releasing a DVD ...
+
+<p>MOTЦRHEAD will be releasing a DVD on October 29th, containing footage from the band’s 25th anniversary show, which took place at the sold-out Brixton Academy in London, UK last year. Filmed with 8 cameras in Dolby 5.1. sound, the concert features guest appearances by Brian May (ex-QUEEN), Fast Eddie Clarke (ex-MOTЦRHEAD), Whitfield Crane (ex-UGLY KID JOE), Doro Pesch and many more. Furthermore this DVD contains old photos, TV show appearances and interviews, all commented on by Lemmy himself. A bonus track, the acoustic version of "Ain't No Nice Guys", fan material, an EPK, all video clips, METALLICA's apperance for Lemmy's 50th birthday party at the Whiskey in West Hollywood, four live songs and a screen saver for download are included as well. <br> <br> MOTORHEAD will be playing six shows in September/October along the west coast of the United States. After the recording of the band’s upcoming studio album is finished, the band will take a journey to play some shows in South Africa and a couple in Greece. The confirmed dates are as follows: <br> Sept. 27 - Seattle, WA @ Showbox <br> Sept. 28 - Portland, OR @ Crystal Ballroom <br> Sept. 30 - San Francisco, CA @ Great American Music Hall <br> Oct. 01 - Chico, CA @ The Brick Works <br> Oct. 03 - Los Angeles, CA @ House of Blues Sunset <br> Oct. 04 - Anahiem, CA @ House of Blues <br> Nov. 02 - Johannesburg, SAF @ Standard Bank Arena <br> Nov. 03 - Johannesburg, SAF @ Standard Bank Arena <br> Nov. 06 - Cape Town, SAF @ Arts <br> Nov. 07 - Cape Town, SAF @ Arts <br> Nov. 09 - Durban, SAF @ Kingspark Outerfield <br> Nov. 17 - Greece @ TBA <br> Nov. 18 - Greece @ TBA<br> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 04.01.2002 news Проект Дэйва Гролла PROBOT ....
+
+<p>Главарь "FOO FIGHTERS" и бывший член NIRVANA - Дэйв Гролл заканчивает работу над диском своего побочного проекта "PROBOT". Диск собрал просто плеяду самых уважаемых вокалистов: Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) и Lee Dorrian (CATHEDRAL). Уже записаны: <BR><BR> 01. Dictatorsaurus (с участием Snake) <BR> 02. Centuries Of Sin (с участием Cronos) <BR> 03. Access Babylon (с участием Mike Dean) <BR> 04. Sweet Dreams (с участием King Diamond) <BR> 05. Ice Cold Man (с участием Lee Dorrian) <BR> 06. My Tortured Soul (с участием Eric Wagner) <BR> 07. Big Sky (с участием Tom G. Fischer) <BR> 08. Emerald Lies (с участием Wino)<BR> 09. Shake Your Blood (с участием Lemmy)</p>
+
+Автор: Yermola
+
+### 04.01.2002 news PROBOT&#39;s Dave Grohl: Lemmy Is God....
+
+<p>FOO FIGHTERS mainman Dave Grohl (ex-NIRVANA) recently posted a message on the band's site describing the experience of working with MOTORHEAD mastermind Lemmy on a song called "Shake Your Blood", which will appear on an upcoming album by Grohl's metal side-project PROBOT. In his diary message, Grohl makes obvious his clear admiration for the rock'n'roll elder, referring to him as "the coolest person I've ever recorded with in my entire life…He is God. He is the reason. He is the last man standing and no one even comes close. That guy is a true rock 'n' roller. Everyone else is just trying. I can't even begin to explain how f.cking life-altering a day in the studio with Lemmy really is. He walks in, kicks the sh.t out of a song and then he's gone… like the goddamned Lone Ranger." <BR><BR> As previously reported, PROBOT's upcoming CD will include a dozen-or-so tracks featuring some of metal's most celebrated and respected vocalists, including Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) and Lee Dorrian (CATHEDRAL). Among the tracks that are set to appear on the effort are the following:<BR><BR> 01. Dictatorsaurus (feat. Snake) <BR> 02. Centuries Of Sin (feat. Cronos) <BR> 03. Access Babylon (feat. Mike Dean) <BR> 04. Sweet Dreams (feat. King Diamond) <BR> 05. Ice Cold Man (feat. Lee Dorrian) <BR> 06. My Tortured Soul (feat. Eric Wagner) <BR> 07. Big Sky (feat. Tom G. Fischer) <BR> 08. Emerald Lies (feat. Wino)<BR> 09. Shake Your Blood (feat. Lemmy)<BR><BR> In related news, FOO FIGHTERS are scheduled to perform at the Winter Olympics in Salt Lake City, which starts February 8th and runs through February 24th. The FOOs will be making their appearance on February 11th.</p>
+
+Автор: Yermola
+
+### 30.01.2002 news Молотом деланные...
+
+<p>"MOTORHEAD" объявили название следующего альбома - "Hammered". Диск выйдет 8-го апреля через SPV/Steamhammer Records в Европе и 9-го в Америке. Записывали его в Лос-Анджелесе Bob Kulick и Bob Marlette. Трек-лист: <BR><BR> 01. Shut Your Mouth<BR> 02. Kill The World<BR> 03. Dr. Love<BR> 04. No Remorse<BR> 05. Walk A Crooked Mile<BR> 06. Down The Line<BR> 07. Brave New World<BR> 08. Voices From The War<BR> 09. Mine All Mine<BR> 10. Red Raw<BR> 11. Serial Killer <BR></p>
+
+Автор: Yermola
+
+### 30.01.2002 news MOTORHEAD Get &quot;Hammered&quot;!
+
+<p>MOTORHEAD have set Hammered as the title of their forthcoming studio album, which is due to be issued on April 8th in Europe (through SPV/Steamhammer Records) and April 9th in North America. Recorded in Los Angeles, California by Bob Kulick and Bob Marlette, Hammered will feature the following track listing: <BR><BR> 01. Shut Your Mouth<BR> 02. Kill The World<BR> 03. Dr. Love<BR> 04. No Remorse<BR> 05. Walk A Crooked Mile<BR> 06. Down The Line<BR> 07. Brave New World<BR> 08. Voices From The War<BR> 09. Mine All Mine<BR> 10. Red Raw<BR> 11. Serial Killer <BR></p>
+
+Автор: Yermola
+
+### 27.04.2002 news Henjo Rihter отказал Helloween
+
+<p>После продолжительных переговоров с лидером Helloween Michael Weikath гитарист Gamma Ray Henjo Rihter отказался перейти в его группу на замену Roland Grapow. Своё будущее он связывает с командой Kai Hansen. Также Gamma Ray объявили даты своих концертов в Европе этим летом. Стоит отметить три итальянских концерта вместе с Motorhead.</p>
+
+Автор: Vit Belov
+
+### 29.04.2002 news Видео Моторхэд...
+
+<p>Видеоклип "MOTОRHEAD" на песню "Brave New World" с альбома Hammered можно посмотреть в виде Real Video <A HREF="http://www.spv.de/eng/motoerhead/video_e.html">здесь.....</A></p>
+
+Автор: Yermola
+
+### 29.04.2002 news MOTORHEAD: New Video Viewable Online...
+
+<p>MOTORHEAD's video clip for the track "Brave New World", taken from the group's current Hammered effort, can be viewed in streaming Real Video at <A HREF="http://www.spv.de/eng/motoerhead/video_e.html">this location....</A></p>
+
+Автор: Yermola
+
+### 30.04.2002 news Моторхэд в шведских чартах поп-альбомов...
+
+<p>MOTОRHEAD достигли 18 позиции в национальном шведском чарте поп-альбомов со своим последним релизом Hammered.</p>
+
+Автор: Yermola
+
+### 15.05.2002 news Larry Wallis из Моторхэд выпустил сольный диск...
+
+<p>Larry Wallis бывший гитарист Моторов (с 1975 по 1976) выпустил новый сольный диск "Death In The Guitarfternoon". Более подробно об этом можно почитать <A HREF="http://www.pinkfairies.co.uk/">здесь.... </A></p>
+
+Автор: Yermola
+
+### 15.05.2002 news Original MOTORHEAD Guitarist Issues Solo CD ....
+
+<p>Original MOTORHEAD guitarist Larry Wallis (who was in the group between May 1975 and February 1976) has issued a new solo CD entitled Death In The Guitarfternoon. For more information on this release, click <A HREF="http://www.pinkfairies.co.uk/">here</A>. <BR><BR> In related news, current MOTORHEAD guitarist Phil Campbell will be joining one of L.A.'s newest bands, DARK32, as they perform live on Thursday, May 23rd, at 9:00 PM at the Coconut Teaser on Sunset Blvd in Hollywood. Also playing that evening are CRASH and LOVE TUNNEL. Phil also supplied some guitar tracks to DARK32's upcoming CD.</p>
+
+Автор: Yermola
+
+### 03.06.2002 news Украдена любимая шляпа Лемми!!!
+
+<p>Не просто черная шляпа - смесь между пиратской шляпой и шляпой ковбоя - "Торговая марка" Лемми похищена! Вы ее все еще можете лицезреть в новом клипе МОТОРОВ "BRAVE NEW WORLD". Сей легендарный головной убор был приобретен Лемми долгие годы назад во время одного из турне. С тех пор не было случая, чтобы музыкант появлялся на публике без своего "знакового головного убора". Этот инцидент произошел несколько дней назад на концерте МОТОРОВ в Сан-Франциско. Лемми только отложил шляпу во время вызова на бис, и вор напал замедлительно.</p>
+
+Автор: Yermola
+
+### 24.09.2002 news SLAYER, SOULFLY, MOTORHEAD, DOWN Among Artists Confirmed For Japan&#39;s BEAST FEAST 2002 ...
+
+<p>SLAYER, SOULFLY, MOTORHEAD, DOWN, HATEBREED, and ARCH ENEMY are among the artists confirmed to appear at Beast Feast 2002, a two-day festival set to take place on December 14-15 at Makuhari Messe Event Hall in Tokyo, Japan. <BR><BR> The full lineup of acts currently scheduled to perform at the event is as follows:<BR><BR> SLAYER<BR> SOULFLY<BR> MOTORHEAD<BR> DOWN<BR> HATEBREED<BR> ARCH ENEMY<BR> CONVERGE<BR> BURNT BY THE SUN<BR> BATCAVE<BR> COCOBAT<BR> PULLING TEETH<BR> SUNS OWL<BR> UNDOWN<BR> UNITED<BR> YELLOW MACHINEGUN</p>
+
+Автор: Yermola
+
+### 24.09.2002 news Фестиваль Зверя в Японии...
+
+<p>SLAYER, SOULFLY, MOTОRHEAD, DOWN, HATEBREED и ARCH ENEMY уже окончательно подтвердили свое участие в японском фестивале Beast Feast 2002. Двухдневное шоу будет проходить 14-15 декабря в зале Makuhari Messe Event Hall в Токио. <BR><BR> Состав участников на сегодняшний день:<BR><BR> SLAYER<BR> SOULFLY<BR> MOT&Ouml;RHEAD<BR> DOWN<BR> HATEBREED<BR> ARCH ENEMY<BR> CONVERGE<BR> BURNT BY THE SUN<BR> BATCAVE<BR> COCOBAT<BR> PULLING TEETH<BR> SUNS OWL<BR> UNDOWN<BR> UNITED<BR> YELLOW MACHINEGUN<BR><BR> Более подробную информацию смотрите на сайте фестиваля: <A HREF="http://www.beastfeast.net/">http://www.beastfeast.net/</A></p>
+
+Автор: Yermola
+
+### 21.09.2003 news DORO празднует юбилей
+
+13 декабря в D&uuml;sseldorf <B>Doro Pesch</B> отпразднует юбилейным концертом 20-летие творческой деятельности. Будут исполнены все хиты из её биографии. В шоу также примут участие <B>SAXON, CIRCLE II CIRCLE</B>, а также <B>Lemmy (MOTORHEAD), Jon Oliva (SAVATGE)</B>&nbsp;и&nbsp;<B>Blaze Bayley (BLAZE).</B>
+Автор: Vit Belov
+
+### 11.11.2003 news Motorhead in Europe
+
+&nbsp; 05.10. UK-Norwich - U.A.E.<BR>&nbsp; 06.10. UK-Folkstone - Leas Cliff Hall<BR>&nbsp; 08.10. UK-Nottingham - Rock City<BR>&nbsp; 09.10. UK-Newcastle - City Hall<BR>&nbsp; 10.10. SCO-Glasgow - Barrowlands<BR>&nbsp; 12.10. UK-Wolverhampton - Civic Hall<BR>&nbsp; 13.10. UK-Manchester - Apollo<BR>&nbsp; 14.10. UK-Leeds - University<BR>&nbsp; 16.10. UK-Bristol - Colston Hall<BR>&nbsp; 17.10. UK-Portsmouth - Guildhall<BR>&nbsp; 18.10. UK-London - Hammersmith Apollo<BR>&nbsp; 21.10. B-Brussels - Ancienne Belgique<BR>&nbsp; 22.10. NL-Tilburg - O13<BR>&nbsp; 23.10. NL-Hardenberg - Podium<BR>&nbsp; 25.10. E-Pamplona - Pabellon de Aitasuna<BR>&nbsp; 26.10. E-Barcelona - Razzmatazz 1<BR>&nbsp; 27.10. E-Murcia - Sala Gamma<BR>&nbsp; 28.10. E-Madrid - Aqualung<BR>&nbsp; 30.10. CH-Z&uuml;rich - X-tra Limmathaus<BR>&nbsp; 25.11. Berlin - Columbiahalle<BR>&nbsp; 26.11. Hamburg - Docks<BR>&nbsp; 28.11. Erfurt - Th&uuml;ringhalle<BR>&nbsp; 29.11. Herford - Kick<BR>&nbsp; 30.11. Dortmund - Soundgarden<BR>&nbsp; 02.12. Dresden - Schlachthof<BR>&nbsp; 03.12. N&uuml;rnberg - Lowensaal<BR>&nbsp; 05.12. Magdeburg - Stadthalle<BR>&nbsp; 06.12. K&ouml;ln - E-Werk<BR>&nbsp; 07.12. Stuttgart - Congresscenter<BR>&nbsp; 09.12. Freiburg - Stadthalle<BR>&nbsp; 10.12. M&uuml;nchen - Zenith<BR>
+Автор: Vit Belov
+
+### 29.12.2003 news Две новые песни от Lemmy
+
+Лидер<B> MOTORHEAD Lemmy Kilmister</B> c пользой провёл время с 15 по 18 декабря в берлинской студии <B>Monongo</B> вместе с<B> SKEW SISKIN</B>.&nbsp; Там была завершена запись&nbsp;двух песен для грядущего сольного альбома.&nbsp;Композиции носят названия <B>"Stand Upon The Mountain"</B>&nbsp;и <B>"Don't Matter To Me".</B> Их авторство принадлежит<B>&nbsp;&nbsp;Lemmy</B>, он же записал на них бас и вокал.
+Автор: Uneral
+
+### 20.04.2004 news MOTORHEAD выпускают новый альбом в июне
+
+<B>MOTORHEAD</B> выпускают свой новый альбом '<B>Inferno</B>'&nbsp;21 июня на <B>SPV</B>.&nbsp;&nbsp;Некоторые названия песен: <B>"Terminal Show"</B> (featuring a guest appearance by <B>Steve Vai</B>), <B>"Smiling Like a Killer"</B>, <B>"In the Name of Tragedy"</B>, <B>"In the Black"</B>, <B>"Year of The Wolf"</B>, <B>"Life's a Bitch"</B>, <B>"Keys to the Kingdom"</B>, <B>"Suicide"</B>&nbsp;и <B>"Whorehouse Blues"</B>.
+Автор: Vit Belov
+
+### 22.06.2004 reviews MOTORHEAD - исполнители своих вещей
+
+<P><I><B>MOTORHEAD</B> - группа, которая уже давно в пребывает в стагнации. Она, сама по себе, существует в этом состоянии. <B>Lemmy and Co</B>. сочиняют песни для своих незабываемых живых выступлений. На этих концертах не важно что, а важно как...</I></P>
+<P>На новом альбоме нет таких хитов, как "<B>Ace Of Spades'</B> или <B>'Overkill'</B>, но этого и не нужно. Быстрый, в меру рок'н'рольный, '<B>Inferno</B>' всё равно займёт своё законное место на полках коллекционеров творчества <B>MOTORHEAD</B>. Есть только некоторые штрихи, которые группа добавила к проверенному эскизу. На двух песнях партии соло-гитары исполняет <B>Steve Vai</B>, последний трэк альбома прикольный blues, а лично мне приглянулась <B>'In The Name Of Tragedy'</B>. В остальном всё тоже самое.</P>
+<P>От <B>MOTORHEAD</B>&nbsp;никогда не ждали ничего нового, зато "свои"&nbsp;вещи они исполняют всё с тем же энтузиазмом.</P>
+Автор: Vit Belov
+
+### 23.06.2004 reviews Music is very special. It&#39;s just like sex in that way (c) Lemmy Kilmister
+
+<P>Про альбомы Motorhead писать всегда и легко, и сложно. Легко потому, что всегда знаешь, что тебя ждет. А сложно... по той же причине, что и легко. Вот уже почти 30 лет Лемми Килмистер ведет свой "локомотив-оргазматрон" по бесконечным и прямым, как ничто в этом мире, рельсам, разрывая динамики и души слушателей мгновенно узнаваемыми риффами и неподражаемым вокалом. Но приближающийся к своему 60-летию мистер Килмистер всегда найдет, чем удивить своих фэнов. На этот раз это участие знаменитого гитариста Стива Вэя (на песнях 'Terminal Show' и 'Down On Me') (Лемми рассказывает о их встрече в знаменитом голливудском Rainbow Bar & Grill: "Я входил в бар, а он выходил оттуда, и мы столкнулись. Я рассказал ему, что мы записываемся, и пригласил присесть в баре. Он принял мое предложение") и быстренький такой блюз, с акустической гитарой и губной гармошкой, который кому-то может напомнить работы Чета Аткинса, а кому-то песни с выпущенного 4 года назад альбома (из серии "поиграем для себя") Лемми, Слим Джима Фантома и Дэнни Би Хэрви ("Мне нравится удивлять людей", говрит Лемми). В любом случае "Inferno" это стопроцентный альбом Motorhead, даже если кому-то покажется, что голос бессменного лидера коллектива звучит несколько устало. "Это альбом, где реальный музыканты играют реальную музыку. Никаких правил там не было", лаконично заявляет Лемми. И выделить какие-то вещи на диске непросто. Каждая из них особая и важная. "Музыка является очень личной. В этом отношении, это типа как секс", утверждает Килмистер, и с ним трудно не согласиться! "Inferno", кроме обычного издания, выходит также в виде двойного альбома, где бонусом является ДВД с тремя клипами и 25-минутной документальной съемкой о Лемми и Со.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ". Цитаты взяты с офциального сайта группы <A href="http://www.imotorhead.com/">http://www.imotorhead.com</A></P>
+Автор: Ixtiandr
+
+### 07.07.2004 articles TOP-50 лицензионных дисков за июнь
+
+<TABLE cellSpacing=0 cellPadding=0 width=597 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 174pt" width=232>
+<COL style="WIDTH: 178pt" width=237>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=232><B>NIGHTWISH</B></TD>
+<TD width=237><B>ONCE</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>LEMURIA</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>SIRIUS B</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>LEAVES' EYES</B></TD>
+<TD><B>LOVELORN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AYREON</B></TD>
+<TD><B>THE HUMAN EQUATION (2 CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>KOTIPELTO</B></TD>
+<TD><B>COLDNESS</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>ATROCITY</B></TD>
+<TD><B>ATLANTIS</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=232><B>MOTORHEAD</B></TD>
+<TD><B>INFERNO</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THEATRES DES VAMPIRES</B></TD>
+<TD><B>NIGHTBREED OF MACABRIA</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>11 (2)</TD>
+<TD>FINNTROLL</TD>
+<TD>NATTFODD</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IMPERANON</TD>
+<TD>STAINED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (10)</TD>
+<TD>SIRENIA (ex-TRISTANIA)</TD>
+<TD>AN ELIXIR FOR EXISTENCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>RHAPSODY</TD>
+<TD>THE DARK SECRET EP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>15 (3)</TD>
+<TD>CREMATORY</TD>
+<TD>REVOLUTION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ES REITEN DIE TOTEN SO SCHNELL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>projectNENIA CALLADHAR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>18 (14)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>MADMEN AND SINNERS</TD>
+<TD width=237>MADMEN AND SINNERS</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAGGARD</TD>
+<TD>AWAKING THE CENTURIES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AETERNITAS</TD>
+<TD>LA DANSE MACABRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS II</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ICH TOETE MICH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>SONGS FROM THE INVERTED WOMB</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>THE INEXPERIENCED SPIRAL TRAVELLER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (9)</TD>
+<TD>MONSTERS OF METAL - 2</TD>
+<TD>THE ULTIMATE METAL COMPILATION (2 DVD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS I</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEICIDE</TD>
+<TD>SCAR OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (36)</TD>
+<TD width=232>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (13)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SARCOMA</TD>
+<TD>TORMENT RIDES FOREVER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (19)</TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (21)</TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (20)</TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>35 (1)</TD>
+<TD>NIGHTWISH</TD>
+<TD>NEMO (single)</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>TODESWUNSCH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (26)</TD>
+<TD width=232>НАТИСК</TD>
+<TD width=237>НЕБО В ОГНЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>TNT</TD>
+<TD>MY RELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (42)</TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (5)</TD>
+<TD width=232>EVERGREY</TD>
+<TD>THE INNER CIRCLE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (44)</TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (45)</TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>WASP</TD>
+<TD>WASP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>ETERNAL FAITH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>BLIND IN PARADISE</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>TASTE OF HEAVEN</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (18)</TD>
+<TD>THE 69 EYES</TD>
+<TD>WASTING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ANVIL</TD>
+<TD>BACK TO BASICS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (4)</TD>
+<TD>SCORPIONS</TD>
+<TD>UNBREAKABLE</TD>
+<TD>BMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>50 (7)</TD>
+<TD width=232>MAYHEM</TD>
+<TD width=237>CHIMERA</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+<P>* Продажи на точке "Metal & Progressive" №100 в Рубине</P>
+Автор: Vit Belov
+
+### 10.09.2004 news Lemmy повредил ногу
+
+<P><STRONG>MOTORHEAD</STRONG> были вынуждены отменить тур по США, из-за болезни <STRONG>Lemmy</STRONG>. Он повредил ногу во время одного из выступлений в Европе. После этого он игнорировал предупреждения врачей и отыграл ещё несколько концертов. В итоге травма усугубилась, и американские фанаты не увидят концертов <STRONG>MOTORHEAD</STRONG>.</P>
+<P>&nbsp;</P>
+Автор: Vit Belov
+
+### 14.09.2004 articles TOP-50 продаж лицензионных компакт-дисков за июль-август 2004 года
+
+<TABLE cellSpacing=0 cellPadding=0 width=661 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 44pt; mso-width-source: userset; mso-width-alt: 2157" width=59>
+<COL style="WIDTH: 202pt; mso-width-source: userset; mso-width-alt: 9837" span=2 width=269>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=59 height=17><STRONG><FONT face="Arial CYR" size=2>1 (1)</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>NIGHTWISH</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ONCE</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><STRONG><FONT face="Arial CYR" size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2>2 (2)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>THERION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>LEMURIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2>3(3)</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>THERION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SIRIUS B</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269 x:str="DIO "><STRONG><FONT size=2><FONT face="Arial CYR">DIO<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>MASTER OF THE MOON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SOPOR AETERNUS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>LA CHAMBRE D ECHO</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>FLOWER KINGS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>ADAM & EVE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>LAKE OF TEARS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>BLACK BRICK ROAD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=59 height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ENSEFERUM</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>IRON</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>THRESHOLD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SUBSURFACE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><STRONG><FONT face="Arial CYR" size=2>ASIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>SILENT NATION</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><STRONG><FONT face="Arial CYR" size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><STRONG><FONT face="Arial CYR" size=2></FONT></STRONG></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ANNIHILATOR</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ALL FOR YOU</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>12 (4)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LOVELORN</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>JORN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>OUT OF EVERY NATION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DREAM EVIL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE BOOK OF HEAVY METAL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>METAL CHURCH</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE WEIGHT OF THE WORLD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LACRIMAS PROFUNDERE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AVE END</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>17 (5)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>HAGGARD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EPPUR SI MUOVE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>18 (8)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ATROCITY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ATLANTIS + multimedia section</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DIABOLICAL BREED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>COMPENDIUM INFERNUS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>BORKNAGAR</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EPIC</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THERION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SIRIUS B & LEMURIA LTD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DARK TRANQUILLITY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EXPOSURES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>23 (18)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>EDGUY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>24 (11)</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>FINNTROLL</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NATTFODD</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>25 (26)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MONSTERS OF METAL - 2</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE ULTIMATE METAL COMPILATION (2 DVD)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MALEVOLENT CREATION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WARKULT</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>GRAVEWORM</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AS THE ANGELS… / ETERNAL WINDS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>28 (6)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AYREON</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE HUMAN EQUATION (2 CD)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>29 (30)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IN FLAMES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SOUNDTRACK TO YOUR ESCAPE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>30 (13)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SIRENIA (ex-TRISTANIA)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AN ELIXIR FOR EXISTENCE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SUSPERIA</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>UNLIMITED</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>32 (21)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AETERNITAS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>LA DANSE MACABRE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>33 (15)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CREMATORY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>REVOLUTION</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DE/VISION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>6 FEET UNDERGROUND</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>35 (Re)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CATHARSIS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" x:str="ПРИЗРАЧНЫЙ СВЕТ +multimedia "><FONT size=2><FONT face="Arial CYR">ПРИЗРАЧНЫЙ СВЕТ +multimedia<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>KEVIN DUBROW (ex-QUIET RIOT)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IN FOR THE KILL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond-DD</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>DVAR</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>TAAI LIIRA</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>VOODOO HILL</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WILD SEED OF MOTHER EARTH</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>WALTARI</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>RARE SPECIES</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>UMBRA ET IMAGO</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MEMENTO MORI</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>MISANTHROPE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SADISTIC SEX DAEMON</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>42 (14)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>RHAPSODY</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE DARK SECRET EP</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>43 (9)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>MOTORHEAD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>INFERNO</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>44 (12)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>IMPERANON</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>STAINED</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SERAPHIM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AI</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>SHYLOCK</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=269><FONT face="Arial CYR" size=2>WELCOME TO ILLUSION</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" width=64><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>POWERQUEST</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NEVERWORLD</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>ASTARTE (DIMMU BORGIR)</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>SYRENS</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>49 (10)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THEATRES DES VAMPIRES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>NIGHTBREED OF MACABRIA</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted" height=17><FONT face="Arial CYR" size=2>50 (32)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>THE 69 EYES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>BLESSED BE</FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted"><FONT face="Arial CYR" size=2>AMG</FONT></TD></TR></TBODY></TABLE>* - в магазин Metal&Progressive в ТВЦ Рубин
+Автор: Vit Belov
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 22.07.2006 news Ждем новый альбом MOTORHEAD в конце августа!
+
+<P>Ветераны тяжелой сцены <B>MOTORHEAD</B> закончили работу над альбомом, названным <B>"Kiss Of Death"</B>. Трэк-лист следующий:</P>
+<P><B>1. Sucker<BR>2. One Night Stand<BR>3. Devil I Know<BR>4. Trigger<BR>5. Under The Gun<BR>6. God Was Never On Your Side<BR>7. Living In The Past<BR>8. Christine<BR>9. Sword Of Glory<BR>10. Be My Baby<BR>11. Kingdom Of The Worm<BR>12. Going Down<BR>13. R.A.M.O.N.E.S.</B></P>
+<P><B></B></P>
+<P>Новая работа Лемми и Со появится в магазинах Европы 29-го августа. А российские фэны будут также ждать и выпуска альбома по лицензии на Союзе!</P>
+Автор: Ixtiandr
+
+### 19.09.2006 reviews Стабильность - признак мастерства
+
+<P>Лемми Килмистер, бессменный лидер Motorhead, которому в прошлом году исполнилось 60 лет, из которых 40 он провел на рок-сцене, не собирается успокаиваться и доказывает на новейшем творении "моторов", что его рано пока сбрасывать со счетов. "Kiss Of Death", уже черт знает какой по счету альбом одной из величайших рок-групп мира, это еще 12 песен в копилку Motorhead. Безусловно, ничего нового на этой пластинке вы не найдете, но любому меломану, которому нравится эта команда, больше ничего и не надо. Думается, что Лемми и Со так и будут сочинять свои, пусть зачастую и похожие друг на друга, рок-н-ролльные боевики, пока будут в состоянии держать в руках гитары (или барабанные палочки). Покупая новый альбом Motorhead, вы можете быть уверены, что&nbsp;не промахнетесь.&nbsp;"Kiss Of Death", тяжелый и не возмутимый, как танк, проедет по вашим ушам, лязгая гитарно-барабанными гусеницами. Внимательный слушатель наверняка отметит кое-какие новшества в&nbsp;работе Фила Кэмпбелла, которому, кстати, помогал (а, точнее, сыграл ведущую партию) на вещи 'God Was Never On Your Side' гитарист C.C. DeVille (Poison). Среди гостей замечен также довольно известный сессионный музыкант, гитарист Mike Inez. Добавлю, что "Kiss Of Death" выходит, кроме обычного стекла, в формате лимитированный диджипак (бонусом идет кавер металликовской вещи 'Whiplash'); также ожидается еще одно издание, но уже на Sanctuary, где бонусом будет 'R.A.M.O.N.E.S'.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 05.10.2006 reviews От “Ace Os Spades” и “Overkill” по-прежнему далеко. Ещё дальше…
+
+<P>Просматриваю толстенный буклет к новому альбому MOTORHEAD “Kiss Of Death”. Красиво, стильно, суровые лица, чёрно-белые зарисовки, латынь какая-то, огромнейший список благодарностей, где не забыт ни один сотрудник ни одного лэйбла или концертного агентства, с которыми работает группа. А сам думаю, как убежать от банальностей при написании рецензии на новый альбом MOTORHEAD. Я уже неоднократно с этими мыслями сталкивался. И главное, удаётся ли MOTORHEAD убегать от банальности? Или фэны и сама группа играют в давно привычную игру? Мы выпускаем альбом, а вы его покупаете.</P>
+<P>Сейчас за окном дождь, началась осень настроение, как говорится, полностью отсутствует. Отсутствует настроение и слушать новую пластинку MOTORHEAD с известными наперёд риффами, звуком и лирикой. Но выглянет солнце, кто-то принесёт пива или просто красивая девушка зайдёт. И нам захочется заслушать MOTORHEAD, новый альбом будет только как повод обратиться к классике во всеобщем водовороте новой музыки.</P>
+<P>Говоря без излишних философствований, новый альбом MOTORHEAD мне понравился меньше предшественника, но с ними так всегда. Когда в одной части света все балдеют от “Inferno”, в другой полюбят “Kiss Of Death”. Когда кто-то слушает дома “March Or Die”, другого плющит от “1916”. Другой разговор, что всем одинаково нравятся “Ace Of Spades” и “Overkill”…</P>
+Автор: Vit Belov
+
+### 05.01.2007 reviews А вместо сердца - пламенный Мотор.
+
+<P>Есть коллективы, которым спустя много лет после образования удается выпускать хорошие и продаваемые альбомы. Motorhead – один из них. Вот уже не первый десяток лет Лемми и Ко радуют своих поклонников стилистическим постоянством и верностью однажды избранному пути. Группам такого толка эксперименты противопоказаны – как говорится, от добра - добра не ищут. Фэны ждут на новых альбомах родной моторхэдовский саунд и получают его, причем, несмотря на стабильность и постоянство, пластинки группы не занудны, не однообразны и все так же, как и четверть века назад наполнены духом рок-н-ролла. Не стал исключением и новый альбом «Моторов» Kiss Of Death. Конечно, сложно было бы ждать от последнего релиза успеха Ace Of Spades – что ни говорите, а такая карта (простите за каламбур) выпадает раз в жизни. Тем не менее, новая работа группы достаточно интересна. Чего стоят боевики<SPAN> <SPAN lang=EN-US>Devil I Know, Living In The Past, Going Down </SPAN></SPAN>и баллада<SPAN> <SPAN lang=EN-US>God Was Never On Your Side. </SPAN></SPAN>Отличный подарок не только любителям «Моторов», но и всем поклонникам сваезабойного металлического рок-н-ролла.</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 23.06.2007 news Японцы переиздают девять альбомов MOTORHEAD
+
+<P>25 июля 2007-го года на лэйбле <B>BMG (Japan)</B> выйдут переиздания легендарных <B>MOTORHEAD</B> в формате "cardboard sleeve reissue featuring JVC K2 24-bit remastering". Всего будет выпущено девять альбомов одной из самых известнейших рок-групп планеты. Трэк-листы:</P>
+<P><B>Overkill (1979)</B></P>
+<P>1.<B> Overkill<BR></B>2.<B> Stay Clean <BR></B>3.<B> (I Won't) Pay Your Price <BR></B>4.<B> I'll Be Your Sister <BR></B>5.<B> Capricorn <BR></B>6.<B> No Class <BR></B>7.<B> Damage Case <BR></B>8.<B> Tear Ya Down <BR></B>9.<B> Metropolis <BR></B>10.<B> Limb from Limb <BR></B>11.<B> Too Late Too Late <BR></B>12.<B> Like a Nightmare <BR></B>13.<B> Louie, Louie <BR></B>14.<B> Tear Ya Down </B>[Instrumental Version]<B> <BR></B>15.<B> Louie, Louie </B>[Alternate Version]<BR></P>
+<P><B></B>&nbsp;</P>
+<P><B>Bomber (1979)</B></P>
+<P>1.<B> Dead Men Tell No Tales <BR></B>2.<B> Lawman <BR></B>3.<B> Sweet Revenge <BR></B>4.<B> Sharpshooter <BR></B>5.<B> Poison <BR></B>6.<B> Stone Dead Forever <BR></B>7.<B> All the Aces <BR></B>8.<B> Step Down <BR></B>9.<B> Talking Head <BR></B>10.<B> Bomber <BR></B>11.<B> Over The Top <BR></B>12.<B> Leaving Here</B> [live]<B> <BR></B>13.<B> Stone Dead Forever</B> [live]<B> <BR></B>14.<B> Dead Men Tell No Tales</B> [live]<B> <BR></B>15.<B> Too Late Too Late</B> [live]<BR></P>
+<P><B></B>&nbsp;</P>
+<P><B>Ace Of Spades (1980)</B></P>
+<P>1.<B> Ace of Spades <BR></B>2.<B> Love Me Like a Reptile <BR></B>3.<B> Shoot You in the Back <BR></B>4.<B> Live to Win <BR></B>5.<B> Fast and Loose <BR></B>6.<B> (We Are) The Road Crew <BR></B>7.<B> Fire, Fire <BR></B>8.<B> Jailbait <BR></B>9.<B> Dance <BR></B>10.<B> Bite the Bullet <BR></B>11.<B> Chase Is Better Than the Catch <BR></B>12.<B> Hammer <BR></B>13.<B> Dirty Love <BR></B>14.<B> Please Don't Touch <BR></B>15.<B> Emergency<BR></B></P>
+<P><B></B>&nbsp;</P>
+<P><B>No Sleep 'til Hammersmith (1981)</B></P>
+<P>1.<B> Ace of Spades <BR></B>2.<B> Stay Clean <BR></B>3.<B> Metropolis <BR></B>4.<B> Hammer<BR></B>5.<B> Iron Horse <BR></B>6.<B> No Class <BR></B>7.<B> Overkill <BR></B>8.<B> (We Are) The Road Crew <BR></B>9.<B> Capricon <BR></B>10.<B> Bomber <BR></B>11.<B> Motorhead <BR></B>12.<B> Over the Top <BR></B>13.<B> Capricorn </B>[Live in Studio]<B> <BR></B>14.<B> Train Kept A-Rollin' </B>[Live in Studio]<BR></P>
+<P><B></B>&nbsp;</P>
+<P><B>Iron Fist (1982)</B></P>
+<P>1.<B> Iron Fist <BR></B>2.<B> Heart of Stone<BR></B>3.<B> I'm the Doctor <BR></B>4.<B> Go to Hell <BR></B>5.<B> Loser <BR></B>6.<B> Sex & Outrage <BR></B>7.<B> America <BR></B>8.<B> Shut It Down <BR></B>9.<B> Speedfreak <BR></B>10.<B> (Don't Let 'Em) Grind You Down <BR></B>11.<B> (Don't Need) Religion <BR></B>12.<B> Bang to Rights <BR></B>13.<B> Remember Me, I'm Gone <BR></B>14.<B> (Don't Let 'Em) Grind You Down </B>[Alternative Version][Alternate Take]<B> <BR></B>15.<B> Lemmy Goes to the Pub </B>[Alternative Version of Heart of Stone]<B> <BR></B>16.<B> Same Old Song, I'm Gone </B>[Alternative Version of Remember Me, I'm Gone]<B> <BR></B>17.<B> Young and Crazy </B>[Instrumental Version of Sex & Outrage][Instrumental]<BR></P>
+<P><B></B>&nbsp;</P>
+<P><B>Another Perfect Day (1983)</B></P>
+<P>1.<B> Back At The Funny Farm <BR></B>2.<B> Shine <BR></B>3.<B> Dancing on Your Grave <BR></B>4.<B> Rock It <BR></B>5.<B> One Track Mind <BR></B>6.<B> Another Perfect Day <BR></B>7.<B> Marching Off To War <BR></B>8. I<B> Got Mine <BR></B>9.<B> Tales Of Glory <BR></B>10.<B> Die You Bastard <BR></B>11.<B> Turn You Round Again [</B>bonus track]<B> <BR></B>12.<B> Hoochie Coochie Man [</B>bonus track]<B> <BR></B>13.<B> Religion, (Don't Need) [</B>bonus track]<BR></P>
+<P><B>Orgasmatron (1986)</B></P>
+<P>1.<B> Deaf Forever <BR></B>2.<B> Nothing Up My Sleeve <BR></B>3.<B> Ain't My Crime <BR></B>4.<B> Claw <BR></B>5.<B> Mean Machine <BR></B>6.<B> Built for Speed <BR></B>7.<B> Ridin' With the Driver <BR></B>8. <B>Doctor Rock <BR></B>9.<B> Orgasmatron <BR></B>10.<B> On the Road </B>[Live Version B-Side of Deaf Forever 12"] [Live]<B> <BR></B>11.<B> Steal Your Face </B>[Live Version B-Side of Deaf Forever 12"] [Live]<B> <BR></B>12.<B> Claw </B>[Alternative Version] [Alternate Take]<BR></P>
+<P><B></B>&nbsp;</P>
+<P><B>Rock 'N' Roll (1987)</B></P>
+<P>1.<B> Rock 'N' Roll <BR></B>2.<B> Eat The Rich <BR></B>3.<B> Blackheart <BR></B>4.<B> Stone Deaf In The U. S. A. <BR></B>5.<B> Wolf, The <BR></B>6.<B> Traitor <BR></B>7.<B> Dogs <BR></B>8.<B> All For You <BR></B>9. <B>Boogeyman <BR></B>10.<B> Cradle To The Grave [</B>Eat The Rich 12" single B-side]<B>&nbsp;<BR></B>11.<B> Just 'Cos You Got The Power [</B>Eat The Rich 12" single B-side]<B> <BR></B>12.<B> Just 'Cos You Got the Power </B>[Eat the Rich 12'' B Side]<BR></P>
+<P><B>No Sleep At All (1988)</B></P>
+<P>1.<B> Doctor Rock <BR></B>2.<B> Traitor <BR></B>3.<B> Dogs <BR></B>4.<B> Ace of Spades <BR></B>5.<B> Eat the Rich <BR></B>6.<B> Built for Speed <BR></B>7.<B> Deaf Forever <BR></B>8.<B> Just 'Cos You Got the Power <BR></B>9.<B> Killed by Death <BR></B>10.<B> Overkill <BR></B>11.<B> Stay Clean <BR></B>12.<B> Metropolis<BR></B></P>
+Автор: Ixtiandr
+
+### 06.08.2007 reviews Лучше сдохнуть, чем пропустить концерт Motorhead
+
+<P>Если вы откроете дигипак с новым концертным альбомом самой рок-н-ролльной группы в мире Motorhead, то первое, что вам бросится в глаза, будут слова: "49% Motherfucker, 51% Son Of A Bitch". Вот так-то, немного и немало. Наверное, если мы будем говорить о какой-либо стабильности в тяжелой музыке, нам, скорее всего, сразу вспомнятся Лемми и Со. Последнее время они регулярно, раз в два года, выпускают студийный альбом и раз в четыре - концертный (естественно, я не беру во внимание огромное количество переизданий, бутлегов и всевозможных&nbsp;компиляций). В какой-то степени фанатам группы можно позавидовать, ибо на этих живых выступлениях Motorhead играют достаточно разнообразные программы. Конечно же, всегда присутствуют такие номера, как 'Ace Of Spades' (вообще интересно, надоест ли Лемии когда-нибудь играть эту песню?), 'Overkill', 'Iron Fist', 'Killed By Death' и ряд других. Но, слава Богу, за время своего существования сей коллектив написал достаточное количество песен, чтобы иметь возможность варьировать свой сет-лист. Данное выступление было приурочено к тридцатилетию существования Motorhead и состоялось в "Hammersmith Apollo" 16 июня 2005-го года (кстати, несколько странно, что для выпуска этой пластинки понадобилось аж два года). "We are&nbsp; Motorhead and we play rock'n'roll", эти слова Лемми, открывающие концерт, наверянка известны любому, кто хоть раз видел группу вживую (или хотя бы на DVD). В этот раз в выступлениии, которое длится в общей сложности 103 минуты, не было никаких именитых гостей или бывших участников; отметилась лишь певица Moa из разогревающей "моторов"&nbsp;группы Meldrum (голос который ныне увековечен на 'Killed By Death'). Разумеется, ни концертный альбом, ни даже DVD неспособны передать по-настоящему, что такое Motorhead вживую. Поэтому хотелось бы немного перефразировать название пластинки: Лучше сдохнуть, чем пропустить концерт Motorhead. Касательно звука претензий никаких нет, группа на CD звучит так, как и должна звучать: грязно и громко. Лично мне не нравится, когда при записывании дисков начинают полировать звучание, что-то убирать, что-то добавлять. Концерт он концерт и есть и не предполагает какой-либо доработки в студии. Ну а нужен ли вам очередной концертник Motorhead - решать, естественно, вам самим. Он, разумеется не дотягивает до знаменитого "No Sleep Til Hammersmith" (да и вряд ли когда группа могла записать что-то лучшее в live-варианте), да&nbsp;и, наверное, до "Everything Louder Than Everyone Else" (всё же возраст берёт своё), но, тем не менее, Motorhead всегда остаётся Motorhead.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 19.11.2007 news Lemmy оштрафован за курение
+
+<P>Английские служители закона оштрафовали лидера <STRONG>MOTORHEAD Lemmy</STRONG> за курение в общественном месте на 100 баксов. Примечательно, что закурил музыкант на сцене во время концерта группы в Шеффилде. На острове действует закон, по которому курение в общественных местах запрещено.</P>
+Автор: Vit Belov
+
+### 25.01.2008 news MOTORHEAD в студии
+
+<P><STRONG>MOTORHEAD</STRONG> собираются войти в студию на этой неделе для записи нового альбома. Пластинка увидит свет в конце весны - начале лета.</P>
+Автор: Vit Belov
+
+### 31.05.2008 news MOTORHEAD назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>MOTORHEAD</STRONG> будет называться "<STRONG>Motorized</STRONG>". Пластинка выйдет до конца года на<STRONG> SPV</STRONG> и будет записана в студии бывшего барабанщика <STRONG>NIRVANA Dave Grohl</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 02.06.2008 news Готовится к выходу фильм о Lemmy
+
+<P><B>Lemmy Kilmister</B>, вот уже более&nbsp;тридцати лет бессменный лидер британских динозавров тяжелого рок-н-ролла&nbsp;<B>MOTORHEAD</B>, станет героем документального фильма, который пока носит рабочее название <B>"Lemmy"</B>. Поклонников одной из самых выдающихся фигур хэви-сцены ждет подробное знакомство с жизнью и историей <B>Lemmy</B>, во всяком случае, так обещают создатели фильма, <B>Greg Oliver</B> и <B>Wes Orshoski</B>. Он будет снят в комбинации форматов High Definition Video и Super 16 mm Film. В него войдут интервью с бывшими и сегодняшними участниками <B>MOTORHEAD</B>, а также с такими известными личностями, как <B>Slash, Dave Grohl (FOO FIGHTERS/NIRVANA), Ozzy Osbourne, Peter Hook (JOY DIVISION/NEW ORDER), Alice Cooper, Mick Jones (THE CLASH), C.C. Deville (POISON), Steve Vai</B>, звездой рэстлинга&nbsp;<B>Triple H</B> и многими другими. Выход фильма планируется на 2009-ый год, но уже сейчас вы можете посмотреть трейлер по адресу: <A href="http://www.lemmymovie.com/">http://www.lemmymovie.com/</A>.</P>
+Автор: Ixtiandr
+
+### 16.06.2008 news MOTORHEAD: запись нового альбома завершена
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2008.06/12563.jpg" width=450 align="right" border=5></P>
+<P>Дедушки тяжелого рок-н-ролла <B>MOTORHEAD</B> закончили запись своего нового альбома под названием <B>"Motorizer"</B> и отправились в Европу для выступлений на различных летних фестивалях. Запись проходила в собственной студии <B>Dave Ghrol'</B>а (<B>NIRVANA, FOO FIGHTERS</B>) "606", в Лос-Анджелесе.</P>
+Автор: Ixtiandr
+
+### 26.06.2008 news Трэк-лист нового MOTORHEAD
+
+<P>Мы уже сообщали, что новый альбом <STRONG>MOTORHEAD "Motorizer"</STRONG> выходит 1 сентября на <STRONG>SPV</STRONG>. Стал известен трэк-лист этой пластинки:</P>
+<P>01. <B>(Teach You How To) Sing The Blues</B> <BR>02. <B>Time Is Right</B><BR>03. <B>Heroes</B> <BR>04. <B>Runaround Man</B> <BR>05. <B>English Rose</B> <BR>06. <B>Rock Out</B> <BR>07. <B>1000 Names</B> <BR>08. <B>When The Eagle Screams</B> <BR>09. <B>Don't Die Ashamed</B> <BR>10. <B>Back On The Chain</B> <BR>11. <B>Buried Alive</B></P>
+Автор: Vit Belov
+
+### 01.07.2008 news Новости из лагеря MOTORHEAD
+
+<P>В ожидании выхода нового альбома <B>MOTORHEAD</B> (в США 26 августа, в Германии 29 августа, в Европе 1 сентября) фанаты группы могут почитать посвященное новому релизу интервью <B>Lemmy</B> сайту <B>Pop-Rock Candy Mountain</B> (<A href="http://poprockcandymountain.com/?p=940">http://poprockcandymountain.com/?p=940</A>), послушать 11 июля на ВВС группу в программе <B>Bruce Dickinson'а "Friday Rock Show"</B> (<A href="http://www.bbc.co.uk/6music/shows/bruce_dickinson/">http://www.bbc.co.uk/6music/shows/bruce_dickinson/</A>) или же потратить кровно заработанные 200 долларов США на одну из 100 (limited edition) фотографий, сделанных в ходе фотосессии к альбому <B>"Motorized"</B>, размером 11 на 17 дюймов, каждая из которых пронумерована и подписана всеми тремя участниками коллектива, а также фотографом (приобрести такую фотографию можно на официальном сайте "моторовского" мерчендайзинга: <A href="http://www.blastwaves.com/store.php?k=944">http://www.blastwaves.com/store.php?k=944</A>). <B>MOTORHEAD</B> никогда не&nbsp;дадут вам&nbsp;передышки!</P>
+Автор: Ixtiandr
+
+### 10.07.2008 news Под Lemmy копают
+
+<P><IMG height=245 alt="Вот, эта кепка!" hspace=0 src="/images/news_rus/2008.07/12616.jpg" width=326 align=left border=5>В отношении лидера<STRONG> MOTORHEAD</STRONG> <STRONG>Ian "Lemmy" Kilmister </STRONG>возбуждено дело. Он нарушил немецкое законодательство, появившись в кепке с нацистской символикой.</P>
+Автор: Vit Belov
+
+### 28.08.2008 news MOTORHEAD приобщаются к рестлингу
+
+<P>Песня <B>'Rock Out'</B> с только что поступившего в продажу новейшего альбома ветеранов тяжелого рок-н-ролла <B>MOTORHEAD "Motorizer"</B>&nbsp;объявлена основной музыкальной темой на шоу WWE (World Wrestling Entryainment) под названием "Unforgiven". Подробности ищите здесь: <A href="http://www.wwe.com/shows/unforgiven/">http://www.wwe.com/shows/unforgiven/</A>. Шоу состоится 7 сентября.</P>
+Автор: Ixtiandr
+
+### 22.09.2008 reviews &quot;A kick ass motherfucking record&quot; (c) Mickey Dee
+
+<P>Когда слушаешь 20-ый уже по счету студийный альбом ветеранов тяжелого рок-н-ролла Motorhead под названием "Motorizer", то даже не думаешь о том, что мастермайнду коллектива, Лемми Килмистеру, в декабре этого года исполнится 63 года. С 1984-го года с ним бок о бок по музыкальной жизни шагает Фил Кэмпбелл, с 1992-го - Микки Ди, а в таком составе они играют втроем уже 13 лет. Когда вы покупаете очередную пластинку этой группы, то вы на 100% уверены, что вы там услышите. Риск того, что Motorhead заиграют в другом стиле, равен нулю. На новой работе нам предлагаются 11 песен, практически каждую из которых можно назвать типичной для этого коллектива. "Открывашка" 'Runaround Man' сразу ж задает настроение всему альбому, это характерный моторовский боевик, и его чуть ли не близнец, 'Teach You How To Sing The Blues', продолжает прямую как стрела линию "Motorizer". Если среднетемповая 'When The Eagle Screams' несколько выпадает из общей картины, то уж 'Rock Out' явно станет новым номером в концертном сет-листе Motothead, это одна из лучших вещей группы за последние годы. 'One Short Life' получилась тяжелым неторопливым блюзом. И так далее. Еще бы отметил вещицу 'English Rose'. Совершенно не понимаю тех, кто ноет по поводу того, что Лемми, мол, уже не тот, поет как бы полуохотно, без задора, так сказать. Еще раз обратите внимание на его возраст и подумайте о том, что все эти долгие годы своей музыкальной карьеры он не в теплом офисе сидел, протирая штаны. Или вы можете назвать много групп, которые каждый свой альбом полностью забивали хитами? Мы можем только снять шляпу и низко поклониться этим музыкантам, которым, несмотря на кажущуюся одинаковость своих альбомов, удается каждый раз выдавать материал высокого качества, оставаться самими собой и&nbsp;не давать заскучать своим слушателям хотя бы на минуту. "A kick ass motherfucking record", сказал про "Motorizer" Микки Ди. И кто будет спорить?</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 02.01.2009 news De-Luxe издания от MOTORHEAD
+
+<P><STRONG><IMG height=200 alt="" hspace=0 src="/images/news_rus/2009.01/13275.jpg" width=222 align=left border=5>Sanctuary Records</STRONG> готовят четыре двойных переиздания классики <STRONG>MOTORHEAD</STRONG>. В подобном De-Luxe виде будут переизданы "<STRONG>Ace Of Spades</STRONG>", "<STRONG>Bomber</STRONG>", <STRONG>"Iron Fist</STRONG>" и "<STRONG>Overkill</STRONG>". Вот, что можно будет найти на этих изданиях:</P>
+<P>"<STRONG>Ace Of Spades</STRONG>":&nbsp;второй диск будет содержать песню&nbsp;<B itxtvisited="1">"Dirty Love"</B>, B-side к <B itxtvisited="1">"Ace of Spades"</B>, 11 альтернативных версий песен с альбома,&nbsp;и трёх песенный концертник с&nbsp;<B itxtvisited="1">"Jensen Sessions"</B>&nbsp;(<B itxtvisited="1">BBC</B>);</P>
+<P>"<STRONG>Bomber</STRONG>": второй диск будет содержать B-side трэк "<STRONG>Over The Top</STRONG>", 4 альтернативных версии вещей с альбом и пять концертных трэков;</P>
+<P>"<STRONG>Iron Fist</STRONG>": песня&nbsp;<STRONG>"Remember Me, I'm Gone" (</STRONG>B-side к синглу "<STRONG>Iron Fist</STRONG>"), 15 концертных вещей с шоу 1982 года в Торонто;</P>
+<P>"<STRONG>Overkill</STRONG>": две неальбомных A-Side песни <STRONG>"Louie Louie"</STRONG> и&nbsp;<B itxtvisited="1">"Too Late, Too Late"</B>, B-Side "<STRONG>Overkill"</STRONG>, <B itxtvisited="1">"Tear Ya Down"</B>,&nbsp;<B itxtvisited="1">"Louie Louie" </B>и <B itxtvisited="1">"Like a Nightmare"</B>, <B itxtvisited="1">"No Class"</B>. Также три альтернативных версии <STRONG>"Louie, Louie"</STRONG>, <B itxtvisited="1">"Tear Ya Down"</B>, <STRONG>"Like a Nightmare",</STRONG> инструментал <STRONG>"Tear Ya Down",</STRONG> трёхпесенный концерт на <STRONG>"Peel Session"</STRONG> (BBC) и шестипесенное выступление на радио <STRONG>"In Concert Special" (1979).</STRONG></P>
+Автор: Vit Belov
+
+### 02.11.2009 news MOTORHEAD войдут в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MOTORHEAD </STRONG>войдут в студию в феврале для записи нового альбома.</FONT></P>
+Автор: Vit Belov
+
+### 08.11.2009 news Lemmy не хочет ре-юнионов
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Издание <STRONG>Belfast Telegraph</STRONG> взяло интервью у легендарного лидера <STRONG>MOTORHEAD Lemmy Kilmister</STRONG>, в котором он поделился своими взглядами на музыку и жизнь. В частности он отметил, что не хочет воссоединения классического состава <STRONG>MOTORHEAD</STRONG> с барабанщиком <STRONG>Phil "Philthy Animal" Taylor</STRONG>&nbsp;и гитаристом <STRONG>"Fast" Eddie Clarke</STRONG>. "<EM>Это было бы не честно по отношению к нынешним музыкантам, которые исполняли "Ace Of Spades" и "Overkill" гораздо больше раз, чем Phil и Eddie</EM>". </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Забавно <STRONG>Lemmy</STRONG> высказался по поводу групп, выпускающих альбомы реже, чем раз в три года. "<EM>Эти группы просто мертвы, если они ничего не сочиняют. Если бы я продавал столько же альбомов, сколько AC/DC, я бы выпускал новую пластинку раз в полгода</EM>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Кто бы сомневался!!!</FONT></P>
+Автор: Vit Belov
+
+### 16.08.2010 news Новый DVD от MOTORHEAD: &quot;Attack In Switzerland: Live In 2002&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17027.jpg" width=216 height=306>19 октября лейбл <STRONG>IMV Blueline</STRONG> выпускает новый DVD <STRONG>MOT&#214;RHEAD&nbsp;</STRONG>под названием&nbsp;<B itxtvisited="1">"Attack In Switzerland: Live In 2002"</B>.<BR itxtvisited="1">Концерт был записан для&nbsp;швейцарского телевидения&nbsp;на фестивале&nbsp;"<STRONG>Open Air Gampel"</STRONG> в городе Wallis, Швейцария (16 августа, 2002). </P>
+<P><U>В DVD войдут следующие песни</U>:<BR itxtvisited="1">* <B itxtvisited="1">No Class</B><BR itxtvisited="1">* <B itxtvisited="1">Bomber</B><BR itxtvisited="1">* <B itxtvisited="1">Civil War</B><BR itxtvisited="1">* <B itxtvisited="1">Damage Case</B><BR itxtvisited="1">* <B itxtvisited="1">Love For Sale</B><BR itxtvisited="1">* <B itxtvisited="1">God Save The Queen</B><BR itxtvisited="1">* <B itxtvisited="1">Brave New World</B><BR itxtvisited="1">* <B itxtvisited="1">Metropolis</B><BR itxtvisited="1">* <B itxtvisited="1">Nothing Up My Sleeve</B><BR itxtvisited="1">* <B itxtvisited="1">Dr. Rock</B><BR itxtvisited="1">* <B itxtvisited="1">Ramones</B><BR itxtvisited="1">* <B itxtvisited="1">Shoot You In The Back</B><BR itxtvisited="1">* <B itxtvisited="1">Sacrifice</B><BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 27.08.2010 news Новая компиляция MOTORHEAD &quot;Aces Up My Sleeve - The Collection&quot;
+
+<P>Новая компиляция&nbsp;<B itxtvisited="1">MOT&#214;RHEAD</B> <B itxtvisited="1">"Aces Up My Sleeve - The Collection"</B> выйдет&nbsp;в Англии 18 октября на лейбле <B itxtvisited="1">Spectrum Audio</B>/<B itxtvisited="1">Universal Music</B>. </P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17114.jpg" width=300 height=301><U>Трек лист диска</U>:</FONT></P>
+<P>01. <B itxtvisited="1">Ace Of Spades</B> (album version)<BR itxtvisited="1">02. <B itxtvisited="1">Bomber</B> <BR itxtvisited="1">03. <B itxtvisited="1">Iron Fist</B> <BR itxtvisited="1">04. <B itxtvisited="1">Leaving Here</B> <BR itxtvisited="1">05. <B itxtvisited="1">Killed By Death</B> <BR itxtvisited="1">06. <B itxtvisited="1">Louie Louie</B> <BR itxtvisited="1">07. <B itxtvisited="1">Stay Clean</B> (album version)<BR itxtvisited="1">08. <B itxtvisited="1">Overkill</B> <BR itxtvisited="1">09. <B itxtvisited="1">Please Don't Touch</B> <BR itxtvisited="1">10. <B itxtvisited="1">Dead Men Tell No Tales</B> (album version)<BR itxtvisited="1">11. <B itxtvisited="1">The Chase Is Better Than The Catch</B> (album version)<BR itxtvisited="1">12. <B itxtvisited="1">Eat The Rich</B> (album version)<BR itxtvisited="1">13. <B itxtvisited="1">I Got Mine</B> (album version)<BR itxtvisited="1">14. <B itxtvisited="1">Nothing Up My Sleeve</B> <BR itxtvisited="1">15. <B itxtvisited="1">Heart Of Stone</B> <BR itxtvisited="1">16. <B itxtvisited="1">Mot&#246;rhead</B> (Live)<BR itxtvisited="1">17. <B itxtvisited="1">Damage Case</B> (album version)<BR itxtvisited="1">18. <B itxtvisited="1">(We Are) The Roadcrew</B> (album version)<BR itxtvisited="1">19. <B itxtvisited="1">Shine</B> <BR itxtvisited="1">20. <B itxtvisited="1">Iron Horse</B> / <B itxtvisited="1">Born To Lose</B> (live)</P>
+Автор: Headcrusher
+
+### 14.10.2010 news Симпсоны встречаются с MOTORHEAD
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.10/17377.jpg" width=410 height=290>На страницы&nbsp;комикса <STRONG>The Simpsons' Treehouse Of Horror</STRONG>, ежегодно выходящего в канун праздника <STRONG>Halloween</STRONG>, на этот раз попадёт самая громкая, трудолюбивая и активно концертирующая группа - <STRONG>MOT&#214;RHEAD</STRONG>.</P>
+<P>Подобное издание всегда содержит три истории, написанные и проиллюстрированные одними из самых известных людей в мире комиксов. В выпуск этого года&nbsp;(#16), войдёт история, получившая название <STRONG>"Homer Goes To Hell" </STRONG>("<STRONG>Гомер отправляется в Ад</STRONG>"), в которой и засветятся&nbsp;музыканты <STRONG>MOT&#214;RHEAD -&nbsp;Lemmy</STRONG>, <B itxtvisited="1">Phil</B> и <B itxtvisited="1">Mikkey</B>.</P>
+Автор: Headcrusher
+
+### 17.10.2010 news Документальный фильм о Lemmy
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.10/17408.jpg" width=339 height=500>"Lemmy"</STRONG> - долгожданный документальный фильм, исследующий жизнь и карьеру лидера <STRONG>MOT&#214;RHEAD</STRONG> и рок-икону&nbsp;Лемми Килмистера&nbsp;(<B itxtvisited="1">Lemmy Kilmister</B>), будет презентован на <B itxtvisited="1">London Film Festival</B> 23 октября, с дальнейшим&nbsp;показом&nbsp;в некоторых кинотеатрах Англии начиная с&nbsp;3 декабря&nbsp;&nbsp;2010. </P>
+<P>Премьерный показ картины в С.Ш.А. уже состоялся в марте этого года во время фестиваля <B itxtvisited="1">South by Southwest</B>, в "Paramount Theatre" (город Austin).</P>
+<P>Фильм <STRONG>"Lemmy"</STRONG> будет выпущен на DVD компанией <B itxtvisited="1">Entertainment One</B> 24 января 2011 года.</P>
+<P>Режиссёры/продюсеры картины,<STRONG>&nbsp;Greg Olliver</STRONG> и <B itxtvisited="1">Wes Orshoski</B>, потратили три года, следуя за&nbsp;<B itxtvisited="1">Лемми</B> по всему свету — начиная&nbsp;с его дома в Голливуде и заканчивая спортивными аренами в России.</P>
+<P>В фильме <STRONG>"Lemmy"</STRONG> можно будет увидеть друзей и коллег <B itxtvisited="1">Kilmister</B>'а: <B itxtvisited="1">METALLICA</B>, <B itxtvisited="1">Dave Grohl</B>, <B itxtvisited="1">Ozzy Osbourne</B>, <B itxtvisited="1">Slash</B>, <B itxtvisited="1">Billy Bob Thornton</B>&nbsp;и профессионального рестлера&nbsp;<B itxtvisited="1">Triple H</B>.<BR itxtvisited="1"><BR itxtvisited="1"><BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 24.10.2010 news MOTORHEAD снялись в рекламе пива
+
+<P>Рекламный ролик пива <STRONG>Kronenbourg 1664</STRONG> можно посмотреть ниже. Примечательно, что в нём снялись <STRONG>MOTORHEAD</STRONG>, которые исполняют замедленную акустическую версию своего хита "<STRONG>Ace Of Spades</STRONG>". </P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/blNOcugDeXE&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/blNOcugDeXE&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 27.10.2010 news Долгожданный новый MOTORHEAD
+
+<P><STRONG><IMG border=0 hspace=10 alt="" vspace=10 align=right src="/images/news_rus/2010.10/17480.jpg" width=400 height=400>MOTORHEAD</STRONG>&nbsp;закончили работу над своим новым долгожданным альбомом&nbsp;<B>"The World Is Yours"</B>, выход которого намечен на 13 декабря.&nbsp;Это будет первый релиз коллектива под&nbsp;крылом недавно сформированного лейбла&nbsp;<B>Motorhead Music</B>, совместно с <B>EMI Music Services.&nbsp;</B> Продюсером записи вновь выступил <B>Cameron Webb</B>.&nbsp;Партии барабанов&nbsp;были записаны в калифорнийской&nbsp;<STRONG>Studio 606</STRONG>, принадлежащей лидеру <B>FOO FIGHTERS</B> и бывшему барабанщику <B>NIRVANA</B> Дейву Гролу (<STRONG>Dave Grohl</STRONG>)<STRONG>. </STRONG>Трек-лист:<BR><BR>1. <B>Born To Lose</B><BR>2. <B>I Know How To Die</B><BR>3. <B>Get Back In Line</B><BR>4. <B>Devils In My Head</B><BR>5. <B>Rock 'N' Roll Music</B><BR>6. <B>Waiting For The Snake</B><BR>7. <B>Brotherhood Of Man</B><BR>8. <B>Outlaw</B><BR>9. <B>I Know What You Need</B><BR>10. <B>Bye Bye Bitch Bye Bye</B></P>
+Автор: Dimas
+
+### 19.11.2010 news Красное вино от MOTORHEAD
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17630.jpg" width=257 height=550>Шведская винодельная компания <STRONG>Grapes</STRONG> и группа <STRONG>MOTORHEAD</STRONG> представляют&nbsp;вкуснейший австралийский&nbsp;"<STRONG>Shiraz</STRONG>" (марка красного&nbsp;вина, так же, известная&nbsp;в разных странах под разными именами;&nbsp;в Европе, например,&nbsp;под названием "<STRONG>Syrah</STRONG>"). Вино имеет яркий фруктовый аромат с примесями ванили, ежевики, сливы, эвкалипта и лакричника. Рекомендуется употреблять это вино с жареными бараньими отбивными, приправленными чесноком и розмарином,&nbsp;а так же, с блюдами из ягненка или говядины и макаронами с сыром.</P>
+<P><STRONG>Ёмкость</STRONG>: 750 мл.<BR><STRONG>Алкоголь</STRONG>: 13,5%<BR><STRONG>Сбор</STRONG>: 2009 г.<BR><STRONG>Цена</STRONG>: 714,00 шведских крон</P>
+<P>Больше информации о вине можно найти по адреcу:</P>
+<P><A href="http://www.facebook.com/group.php?gid=145430238828662">www.facebook.com/group.php?gid=145430238828662</A></P>
+Автор: Headcrusher
+
+### 07.12.2010 news Клип MOTORHEAD
+
+<P>Новое видео<STRONG> MOTORHEAD</STRONG> на песню <STRONG>"Get Back In Line" </STRONG>можно посмотреть ниже. Песня попадёт на новый альбом группы <STRONG>"The World Is Yours"</STRONG>, который выйдет 10 декабря на <STRONG>EMI</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=370 width=450>
+<embed src="http://www.metalinjection.net/tv/flvplayer.swf" FlashVars="config=http://www.metalinjection.net/tv/flvembed.php?viewkey=07b5cd1815c8d228d8ef" width="450" height="370" bgcolor="#000000" scale="noscale" menu="false" loop="false" align="middle" allowscriptaccess="always" allowNetworking="all" allowfullscreen="true" type="application/x-shockwave-flash" pluginspage="http://www.macromedia.com/go/getflashplayer"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 17.02.2011 news MOTORHEAD попали в сотню
+
+<P>Новый альбом<STRONG> MOTORHEAD</STRONG> <STRONG>"The World Is Yours" </STRONG>в первую неделю продаж попали на 94-ое место в чартах <STRONG>Billboard</STRONG>. Было продано 7000 копий. Предыдущий альбом группы <STRONG>"Motorizer" "</STRONG>открылся" с 6400 экземпляров в 2008 году и занял 82-ое место.</P>
+<P><center><IMG height=450 src="/images/news_rus/2011.02/18632.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 02.03.2011 news MOTORHEAD на чешском фестивале BRUTAL ASSAULT
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18771.jpg" width=400 height=485>Легендарная английская группа <STRONG>MOTORHEAD</STRONG> выступит в роли хэдлайнера на чешском фестивале <STRONG>Brutal Assault</STRONG>, который пройдёт с 11 по 13 августа 2011&nbsp;в старой армейской крепости "<STRONG>Йозефов</STRONG>" города Яромер!</P>
+<P>Более трёх десятилетей, слово <STRONG>MOTORHEAD</STRONG>, это синоним яростного, быстрого и громкого рок-н-ролла, исполняемого с безжалостным напором!</P>
+<P>Руководимые <STRONG>Lemmy</STRONG>, живым воплощением жизни в стиле рок-н-ролл, <STRONG>MOTORHEAD</STRONG> всё ещё полны рок-энергии и всё ещё вбивают звуки своей музыки в уши зрителей по всему миру.</P>
+<P><STRONG>MOTORHEAD</STRONG> - это не только музыка, <STRONG>MOTORHEAD</STRONG> - это жизненная позиция! BORN TO LOSE, LIVE TO WIN!</P>
+<P>Больше информации на сайте фестивале:</P>
+<P><A href="http://www.brutalassault.cz/">www.brutalassault.cz</A> </P>
+Автор: Headcrusher
+
+### 15.04.2011 news Lemmy будет работать с женой Dio
+
+<P>Новая группа <STRONG>HEADCAT </STRONG>заключила соглашение с <STRONG>Niji Entertainment Group</STRONG>, лэйблом, который организовал покойный <STRONG>Ronnie James Dio</STRONG> и его жена <STRONG>Wendy</STRONG>. В составе новой супер-группы <STRONG>Lemmy Kilmister</STRONG> (<B>MOTORHEAD</B>), <B>Slim Jim Phantom</B> (<B>THE STRAY CATS</B>)&nbsp;и <B>Danny B. Harvey</B> (<B>ROCKATS</B>, <B>13 CATS</B>, <B>LONESOME SPURS</B>). Новый альбом <STRONG>HEADCAT</STRONG> <STRONG>"Walk The Walk...Talk The Talk" </STRONG>выйдет 21 июня. Трек-лист:</P>
+<P>01. <B>American Beat</B> <BR>02. <B>Say Mama</B> <BR>03. <B>I Ain't Never</B> <BR>04. <B>Bad Boy</B> <BR>05. <B>Shaking All Over</B> <BR>06. <B>Let It Rock</B><BR>07. <B>Something Else</B> <BR>08. <B>The Eagle Flies On Friday</B> <BR>09. <B>Trying To Get To You</B><BR>10. <B>You Can't Do That</B> <BR>11. <B>It'll Be Me</B><BR>12. <B>Crossroads</B></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/QuAYGV1yOj8?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/QuAYGV1yOj8?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.04.2011 reviews MOTORHEAD Light
+
+<P>35 лет существования, 21 студийный альбом, 16 концертных (!!!) альбомов – наследие великой группы MOTORHEAD. MOTORHEAD не оставляют никого равнодушными. Кто-то костерит их на чём свет стоит, обвиняя в самоповторах, кто-то любит до белого каления, переслушивая раз за разом знакомые мелодии на разных альбомах. Выносить окончательный диагноз этой английской группе я не хочу, более того, на каждом альбоме этого коллектива я пытаюсь отыскать десять отличий, и порой мне это удаётся.</P>
+<P>“The World Is Yours” вышел на собственном лэйбле коллектива в дни релиза документального фильма о лидере этой группы Lemmy Kilmister. В прошлом году музыканту исполнилось 65 лет, а это сверхпенсионный возраст для человека, играющего гаражный метал с примесью звероподобного рок’н’ролла. Lemmy естественно не расстраивается и продолжает пылить. Фильм обращён к поклонникам MOTORHEAD со стажем, как и любой biopic. Представляете, сколько лет сейчас этим людям? Я предлагаю следующий PR-сценарий. Человек предпенсионного возраста, которого заманили на показ фильма “Lemmy”, видит на экране собственную молодость – Sex, Drugs and Rock’N’Roll, как говорится. Прослезившись, он выходит из тёмного кинотеатра и направляет свои стопы к ближайшему магазину звукозаписи, где ему и предлагают новейший альбом MOTORHEAD “The World Is Yours”. Какова будет его реакция на современный MOTORHEAD? Она непредсказуема! Кто-то орёт, шумит, голова болит, где мой панадол? Lemmy и его друзья оказались умнее нас. Они талантливо записали такой альбом, который безошибочно угадывается как альбом MOTORHEAD, но от него ни у кого не заболит голова никогда. Это Coca Cola Light, а её можно пить даже домохозяйкам, следящим за фигурой и здоровьем собственных детей. Прикольный рафинированный звук без резких криков и перегруженных гитар, среднетемповые композиции без резких всплесков и истерик. Великолепная пластинка для пенсионеров и домохозяек.</P>
+<P>Быть может, всё это мне привиделось, и новый альбом MOTORHEAD не отличается от своих предшественников. Возможно, я услышал то, что хотел услышать, но в одно я верю, “The World Is Yours” получился таким пресным не из-за того, что Lemmy Kilmister стал старым и немощным. Он ещё задаст жару, я уверен.</P>
+Автор: Vit Belov
+
+### 10.07.2011 news Michael &quot;Wurzel&quot; Burston - бывший гитарист MOTORHEAD ушёл из жизни
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.07/20033.jpg" width=300 height=423>Согласно сообщению<STRONG> Тима Батчера</STRONG> (<STRONG>Tim Butcher,</STRONG> техник и "правая рука"<STRONG> Lemmy</STRONG>) на своей странице в соц. сети<STRONG> Facebook</STRONG>, бывший гитарист<STRONG> MOT&#214;RHEAD</STRONG> Майкл Бёрстон (<B>Michael "W&#252;rzel" Burston</B>) ушёл из жизни утром 9 июля. Ему был 61 год. Причина смерти не сообщается.</P>
+<P>До того, как присоедениться к <STRONG>MOT&#214;RHEAD</STRONG> в 1984 году, <STRONG>W&#252;rzel</STRONG> был капралом в армии и проходил службу в первом батальоне Глостерширского полка на территориях Германии и Ирландии. Он, так же, был участником групп <STRONG>BASTARD</STRONG> и <STRONG>WARFARE</STRONG>.</P>
+<P><STRONG>Burston</STRONG>&nbsp;получил свою кличку&nbsp;"<B>W&#252;rzel</B>", когда служил в армии, где, из-за его причёски и мужланских манер,&nbsp;его сравнивали с вымышленным персонажом английских книг&nbsp;-&nbsp;огородным пугалом по кличке <B>Worzel Gummidge</B>. По имеющийся информации, <STRONG>Lemmy</STRONG> потребовал&nbsp;от <STRONG>W&#252;rzel</STRONG>'а, чтобы тот добавил&nbsp;умляут к "<STRONG>U</STRONG>", для достижения "эффекта хэви-метала."</P>
+<P><STRONG>Michael "W&#252;rzel" Burston</STRONG> принял участие в записи следующих альбомов <STRONG>MOT&#214;RHEAD:</STRONG></P>
+<P><STRONG>No Remorse</STRONG> (1984)<BR><STRONG>Orgasmatron</STRONG> (1986)<BR><STRONG>Rock ‘n’ Roll</STRONG> (1987)<BR><STRONG>N&#246; Sleep At All</STRONG> (Live, 1988)<BR><STRONG>The Birthday Party</STRONG> (Live, 1990)<BR><STRONG>1916</STRONG> (1991)<BR><STRONG>March &#214;r Die</STRONG> (1992)<BR><STRONG>Bastards</STRONG> (1993)<BR><STRONG>Sacrifice</STRONG> (1995)</P>
+<P>На фото: <STRONG>Michael "W&#252;rzel" Burston</STRONG> в годы своей игры в <STRONG>MOT&#214;RHEAD</STRONG> (1987)</P>
+Автор: Headcrusher
+
+### 14.07.2011 news Lemmy вспомнил о сольнике
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер <STRONG>MOTORHEAD Lemmy</STRONG> <STRONG>Kilmister </STRONG>сообщил, что продолжает работу над сольным альбомом, который должен выйти в 2012 году. Музыкант трудится над этой пластинкой уже семь лет. <STRONG>Lemmy</STRONG> объявил имена приглашённых музыкантов на этой записи: <STRONG>Dave Grohl</STRONG> (<B>FOO FIGHTERS</B>, ex-<B>NIRVANA</B>), <B>REVEREND HORTON HEAT</B>, <B>THE DAMNED</B>&nbsp;и <B>SKEW SISKIN.</B></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ранее сообщалось, что материал для этого альбома записывался в студии гитариста <STRONG>SKEW SISKIN</STRONG> <STRONG>Jim Voxx</STRONG> в Берлине. В студии пристуствовали полная духовая секция, саксофонист и блюзовое пианино.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=349 src="/images/news_rus/2011.07/20125.jpg" width=227 border=0></FONT></P>
+Автор: Vit Belov
+
+### 12.10.2011 news MOTORHEAD выпустят очередное DVD
+
+<P><IMG height=450 alt="" hspace=0 src="/images/news_rus/2011.10/21535.jpg" width=345 align=right border=0>14 ноября на <STRONG>UDR/EMI</STRONG> выйдет новый DVD <STRONG>MOTORHEAD The World Is Ours Vol. 1 - Everywhere Further Than Everyplace Else"</STRONG>. На диск попадут концертные выступления группы, интервью и другие самые запоминающиеся моменты тура легендарного коллектива 2011 года. </P>
+<P>Трек-лист:</P>
+<P>Santiago, Chile (90-minute concert) + interview (9 minutes)</P>
+<P>01. <STRONG>We Are Motorhead</STRONG><BR>02. <STRONG>Stay Clean</STRONG><BR>03. <STRONG>Get Back In Line<BR></STRONG>04. <STRONG>Metropolis<BR></STRONG>05. <STRONG>Over the Top <BR></STRONG>06. <STRONG>One Night Stand</STRONG><BR>07. <STRONG>Rock Out</STRONG><BR>08.<STRONG> The Thousand Names of God</STRONG><BR>09. <STRONG>I Got Mine</STRONG><BR>10. <STRONG>I Know How to Die</STRONG><BR>11. <STRONG>The Chase Is Better Than the Catch<BR></STRONG>12.<STRONG> In the Name of Tragedy<BR></STRONG>13. <STRONG>Just 'Cos You Got the Power</STRONG><BR>14. <STRONG>Going to Brazil</STRONG><BR>15. <STRONG>Killed by Death<BR></STRONG>16. <STRONG>Ace of Spades<BR></STRONG>17. <STRONG>Overkill</STRONG></P>
+<P>New York (20 minutes) + interview (23 minutes)</P>
+<P>01. <STRONG>Rock Out<BR></STRONG>02. <STRONG>TheThousand Names of God<BR></STRONG>03. <STRONG>Killed By Death</STRONG> (feat. Doro and Todd Youth)</P>
+<P>Manchester (25 minutes) + interview (12 min)</P>
+<P>01. <STRONG>We Are Motorhead</STRONG><BR>02. <STRONG>Stay Clean<BR></STRONG>03. <STRONG>Be My Baby<BR></STRONG>04. <STRONG>Get Back In Line</STRONG><BR>05. I<STRONG> Know How to Die<BR></STRONG>06. <STRONG>Born to Raise Hell</STRONG> (feat. Michael Monroe)</P>
+Автор: Vit Belov
+
+### 30.11.2011 news SISTER SIN поют MOTORHEAD
+
+<P>Видео-клип на кавер-версию на песню <STRONG>MOTORHEAD "Rock'N'Roll"</STRONG> в исполнении греческой банды <STRONG>SISTER SIN</STRONG> можно посмотреть ниже. В ролике также снялась знаменитая <STRONG>Doro Pesch</STRONG>.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/gUNhlzLWjPk?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/gUNhlzLWjPk?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 11.12.2011 news Водка &#39;Motorhead&#39;
+
+<P>Шведская компания <STRONG>Malmkopings Nya Spritbolag AB</STRONG> сообщила о выпуске нового сорта водки - '<STRONG>Motorhead</STRONG>'. Этот напиток обладает сложным полноценным вкусом с лёгким фруктовым послевкусием. Уникальные характеристики водки связаны с родниковой водой маленького городка Мальмкёпинга. </P>
+<P>Водка пьётся легко и может быть употреблена даже без льда, сообщается в рекламной пресс-релизе.</P>
+<P>Стоимость продукта 293 шведские крону, около 60 долларов США.</P>
+<P><center><IMG height=715 src="/images/news_rus/2011.12/22289.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 02.07.2013 news MOTORHEAD отменили все свои летние выступления в 2013
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.07/25857.jpg" width=200 height=318>Группа <STRONG>MOTORHEAD</STRONG> отменила все свои выступления этим летом, в связи с пошатнувшимся здоровьем своего фронтмена. Доктора предписали <STRONG>Lemmy</STRONG> покой в течении некоторого&nbsp;времени.</P>
+<P>В число прочих отменённых концертов, попали и выступления группы в Москве&nbsp;26 июля и Киеве 28 июля.</P>
+<P>Осенью этого года группа обещает вернуться с новым альбомом <STRONG>"Aftershock"</STRONG>&nbsp;и новым туром, последующем за его выпуском.</P>
+Автор: Headcrusher
+
+### 03.09.2013 news MOTORHEAD: обложка и трек-лист альбома &quot;Aftershock&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стали доступны обложка и трек-лист выходящего&nbsp;21 октября нового альбома <STRONG>MOTORHEAD</STRONG> под названием <STRONG>"Aftershock"</STRONG>.&nbsp;Продюсер диска:&nbsp;<STRONG>Cameron Webb</STRONG>.</FONT></P>
+<P><FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000">Трек-лист:</FONT></FONT></P>
+<P><FONT color=#ffffff><FONT style="BACKGROUND-COLOR: #000000">01. <STRONG>Heartbreaker</STRONG> | 02. <STRONG>Coup de Grace</STRONG> | 03. <STRONG>Lost Woman Blues</STRONG>&nbsp;|&nbsp;04. <STRONG>End Of Time</STRONG> | 05. <STRONG>Do You Believe</STRONG> | 06. <STRONG>Death Machine</STRONG> | 07. <STRONG>Dust And Glass</STRONG> | 08. <STRONG>Going To Mexico</STRONG> | 09. <STRONG>Silence When You Speak To Me</STRONG> | 10. <STRONG>Crying Shame</STRONG> | 11. <STRONG>Queen Of The Damned</STRONG> | 12. <STRONG>Knife</STRONG> | 13. <STRONG>Keep Your Powder Dry</STRONG> | 14. <STRONG>Paralyzed</STRONG></FONT></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.09/26128.jpg" width=500 height=500> 
+<P></P>
+<P>&nbsp;</P></CENTER>
+Автор: Headcrusher
+
+### 30.12.2013 news Рождественские свитера от SLAYER, MOTORHEAD и ANTHRAX
+
+<P>Фирма <STRONG>Locoape</STRONG>, являющаяся подразделением <STRONG>Toynk Toys LLC</STRONG>, заключила договор с компанией<STRONG> Global Merchandising Services</STRONG> на выпуск "рождественских свитеров" групп <STRONG>SLAYER</STRONG>, <STRONG>ANTHRAX</STRONG>&nbsp;и&nbsp;<STRONG>MOTORHEAD</STRONG>. </P>
+<P>После успеха рождественского свитера <STRONG>SLAYER</STRONG>, увидевшего свет к новогодним праздникам, в конце 2012, <STRONG>Locoape</STRONG> решили удовлетворить желание фэнов и выпустить более широкую линейку свитеров с символикой их любимых коллективов.&nbsp;Так, в&nbsp;конце 2013 года в продажу поступили свитера <STRONG>SLAYER</STRONG>, <STRONG>ANTHRAX</STRONG>&nbsp;и&nbsp;<STRONG>MOTORHEAD</STRONG>.&nbsp;</P>
+<P>В новом году фирма&nbsp;&nbsp;<STRONG>Locoape</STRONG> обещает пополнить список групп, которые смогут порадовать своих поклонников&nbsp;рождественским свитером со своей символикой.&nbsp;</P>
+<P>Приобрести свитера&nbsp;можно в официальных интернет-магазинах групп или на сайте:<STRONG> </STRONG><A href="http://www.toynk.com/">www.toynk.com</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.12/26466.jpg" width=660 height=226> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 05.06.2015 news Группа MOTORHEAD выпускает свой 22 студийный альбом под название &quot;Bad Magiс&quot;
+
+<P>Группа <STRONG>MOTORHEAD</STRONG>&nbsp;выпускает свой 22 студийный альбом под название <STRONG>"Bad Magiс"</STRONG>.&nbsp;Произойдёт это 28 августа 2015 года на лейбле&nbsp;<STRONG>UDR Music/Motorhead Music</STRONG>.</P>
+<P>Продюсером диска снова стал&nbsp;<STRONG>Cameron Webb</STRONG>, уже неоднократно работавший с коллективом. На альбом войдёт 12 треков собственного сочинения и 1 кавер - песня <STRONG>“Sympathy For The Devil”</STRONG> группы <STRONG>THE ROLLING STONES</STRONG>.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Осенью этого года <STRONG>MOTORHEAD</STRONG> собираются отправиться в европейский тур, чтобы отметить&nbsp;свой&nbsp;сорокалетний юбилей.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предварительный заказ на альбом можно сделать по ссылке: <A href="http://www.merchlandshop.com/shop/uebersicht/udr-shop">www.merchlandshop.com/shop/uebersicht/udr-shop</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P>01. <STRONG>Victory Or Die</STRONG> | 02.<STRONG> Thunder & Lightning</STRONG> | 03. <STRONG>Fire Storm Hotel</STRONG> | 04. <STRONG>Shoot Out All Of Your Lights</STRONG> | 05. <STRONG>The Devil</STRONG> | 06. <STRONG>Electricity</STRONG> | 07.<STRONG> Evil Eye</STRONG> | 08. <STRONG>Teach Them How To Bleed</STRONG> | 09. <STRONG>Till The End</STRONG> | 10. <STRONG>Tell Me Who To Kill</STRONG> | 11. <STRONG>Choking On Your Screams</STRONG> | 12. <STRONG>When The Sky Comes Looking For You</STRONG> | 13. <STRONG>Sympathy For The Devil</STRONG></P>
+<P><center><IMG border=0 src="/images/news_rus/2015.06/28069.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+### 13.11.2015 news Phil Taylor: 1954 - 2015
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2015.11/28523.jpg" width=300 height=423>В ночь с 11 на 12 ноября 2015 года в возрасте 61-ого года ушёл из жизни <STRONG>Phil "Dirty Animal" Taylor</STRONG>, барабанщик классического состава <STRONG>MOTORHEAD</STRONG>...</P>
+<P>Номерные альбомы записанные Филом в составе <STRONG>MOTORHEAD</STRONG>:</P>
+<P><STRONG>Motorhead</STRONG> (1977)<BR><STRONG>Overkill</STRONG> (1979)<BR><STRONG>Bomber</STRONG> (1977)<BR><STRONG>Ace Of Spades</STRONG> (1980)<BR><STRONG>No Sleep 'til Hammersmith</STRONG> (Live | 1981)<BR><STRONG>Iron Fist</STRONG> (1982)<BR><STRONG>Another Perfect Day</STRONG> (1983)<BR><STRONG>Rock'n'Roll</STRONG> (1987)<BR><STRONG>No Sleep At All</STRONG> (Live | 1988)<BR><STRONG>1916</STRONG> (1991)</P>
+Автор: Headcrusher
+
+### 29.12.2015 news Умер Lemmy R.I.P.
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вокалист/басист и лидер <STRONG>MOTORHEAD Lemmy Kilmister</STRONG> скончался в возрасте 70 лет. 28 декабря он покинул нас после безуспешной краткосрочной борьбы с раком. О своём заболевании музыкант узнал всего два дня назад - 26 декабря. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MOTORHEAD</STRONG> в своём официальном обращении просят слушателей: "<EM>Включите музыку Lemmy ГРОМКО... Выпейте одну порцию или несколько и отпразднуйте жизнь этого прекрасного человека. Именно этого он бы&nbsp;и хотел.</EM></FONT></P>
+<P><STRONG>Ian ‘Lemmy’ Kilmister</STRONG></P>
+<P><STRONG>1945 -2015</STRONG></P>
+<P><STRONG>Born to lose, lived to win.</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2015.12/28625.jpg" width=645 height=363> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 16.08.2016 news На Hellfest открыли мемориал Lemmy (фото)
+
+<p>18 июня 2016 года в рамках фестиваля<strong> Hellfest Open Air</strong> во Франции был открыт мемориал, посвящённый умершему лидеру <strong>MOTORHEAD Lemmy Kilmister</strong>. Фоторепортаж об этом событии можно посмотреть <a href="/ru/galleries/1/1775/">на нашем сайте.</a></p><p>&nbsp;<center><img width="600" height="401" src="/images/news_rus/2016.08/29815.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 16.08.2016 news Memorial of Lemmy was opened on Hellfest (photo)
+
+<p>Memorial dedicated to the deceased leader of <strong>MOTORHEAD Lemmy Kilmister</strong> was opened on <strong>Hellfest Open Air Festival</strong> in France on June, 18. Photo report about this event can be <a href="/en/galleries/1/1775/">viewed on our website.</a></p><p>&nbsp;<center><img width="600" height="401" src="/images/news_rus/2016.08/29815.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 13.10.2016 news Виниловая фигурка Lemmy в ноябре
+
+<P>Фирма <STRONG>"Funko"</STRONG> выпускает в ноябре месяце виниловую фигурку <STRONG>Lemmy</STRONG>.</P>
+<P>Предзаказ и больше подробностей по ссылке: <A href="http://aggronautix.com/products.cfm?productid=139">http://aggronautix.com/products.cfm?productid=139</A></P>
+<P><center><IMG border=0 src="/images/news_rus/2016.10/30072.jpg" width=600 height=412></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Motorhead and AC/DC

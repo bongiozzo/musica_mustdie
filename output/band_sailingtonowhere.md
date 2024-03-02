@@ -12,6 +12,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.08.2016 news Видео с текстом от SAILING TO NOWHERE
+
+<p>Итальянская melodic power metal группа <strong>SAILING TO NOWHERE</strong> выложила лирик-клип на песню "<strong>Lovers On Planet Earth</strong>". Трек взят с дебютного альбома коллектива "<strong>To The Unknown</strong>", вышедшего на <strong>Bakerteam</strong> в прошлом году.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/r3kpntLtdGs" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 11.08.2016 news Lyric video from SAILING TO NOWHERE
+
+<p>Italian melodic power metal band <strong>SAILING TO NOWHERE</strong> posted a lyric video for the song "<strong>Lovers On Planet Earth</strong>". Track taken from the debut album "<strong>To The Unknown</strong>", released on Bakerteam last year.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/r3kpntLtdGs" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

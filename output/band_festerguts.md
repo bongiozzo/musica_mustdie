@@ -20,6 +20,74 @@ Death Metal from Kaluga, Russia
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 20.03.2002 news Life Is A Moment... Death Is Eternal...
+
+<p>31 марта 2002 года (воскресенье) в Р-клубе состоится death metal fest "Life Is A Moment... Death Is Eternal...". В концерте примут участие:</p>
+<P> <B>HEAVEN OF SINS </B> (death-doom),<BR> <A HREF="http://musica.mustdie.ru/ru/band/artemesia/">ARTEMESIA</A> (melodic death),<BR> <A HREF="http://musica.mustdie.ru/ru/band/rest_in_pain/">REST IN PAIN </A> (brutal death),<BR> <B>FLASHBOMB</B> (brutal death),<BR> <B>MELANCHOLY</B> (gothic dark wave) (г. Электросталь),<BR> а также специальный гость &ndash; группа <A HREF="http://musica.mustdie.ru/ru/band/festerguts/">FESTERGUTS</A> (death grind) (г.Калуга). </p></>
+<p> Начало акции &ndash; в 17:30, цена билета по флаеру &ndash; 70 руб, без флаера &ndash; 80 руб, каждому купившему билет &ndash; <B>БЕСПЛАТНАЯ КРУЖКА ПИВА</B>!<BR> Место действия: Р-клуб, 4-Рощинский проезд 19/21, м.Тульская &ndash; пешком, м.Шаболовская &ndash; тр. 26 до остановки "Духовской переулок". </p>
+<p> Информационная поддержка: <A HREF="http://musica.mustdie.ru ">MUSICA.mustdie.ru</A> и <nobr><A HREF="http://elders-hall.nm.ru" target="_blank">elders-hall.nm.ru</A></nobr>. </p>
+<p> Желающие могут посмотреть <A HREF="http://musica.mustdie.ru/ru/galleries/1/17">афишу</A> данной акции.</p>
+
+Автор: Dimas
+
+### 21.06.2002 news MassaBrutto Radioshow #83, 21 Jun 2002.
+
+<p>Playlist: <BR><BR> 1. GREAT SORROW - Solar Diamond Valley-1 (MetalAgen Recs)<BR> 2. POMIDOROFF - Нядзеля (band)<BR> 3. SUFFERER - Палач (DeathBell Prods)<BR> 4. PSILOCYBE LARVAE - Sun Of The Sleepless (Black Side Prods)<BR> 5. LEAD WEIGHT - Last Dance (band)<BR> 6. ASGUARD - Black Fire Land (band/Fatal Ecstasy Prods)<BR> 7. FESTERGUTS - On The Bloodsoaked Bridal Bed (Oupiric Prods)<BR> 8. RASTA - Feel Like Hate (band)<BR> 9. KATAR - New Sermon (More Hate Prods)<BR> 10. S.C.A.L.P. - Silentium (Rest In Peace Prods)<BR> _________________________________________________________<BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 21.06.2002 news MassaBrutto Radioshow #83, 21 Jun 2002.
+
+<p>Playlist: <BR><BR> 1. GREAT SORROW - Solar Diamond Valley-1 (MetalAgen Recs)<BR> 2. POMIDOROFF - Нядзеля (band)<BR> 3. SUFFERER - Палач (DeathBell Prods)<BR> 4. PSILOCYBE LARVAE - Sun Of The Sleepless (Black Side Prods)<BR> 5. LEAD WEIGHT - Last Dance (band)<BR> 6. ASGUARD - Black Fire Land (band/Fatal Ecstasy Prods)<BR> 7. FESTERGUTS - On The Bloodsoaked Bridal Bed (Oupiric Prods)<BR> 8. RASTA - Feel Like Hate (band)<BR> 9. KATAR - New Sermon (More Hate Prods)<BR> 10. S.C.A.L.P. - Silentium (Rest In Peace Prods)<BR> _________________________________________________________<BR> RADIOSTATION: Style Radio WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> REQUIRED PROMOS FORMAT: CD, CD-R(for demos, MCs, etc.)<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 05.07.2002 news MassaBrutto Radioshow #87, 5 Jul 2002.
+
+<p>Гости программы: Сергей, Михаил и Иван из коллектива FESTERGUTS (e-mail: oupiric@mail.ru)<BR><BR> Playlist:<BR> 1. SANATENA - The Philosopher [by DEATH] (band)<BR> 2. FESTERGUTS - Besmeared With Blood And Viscera (Oupiric Prods)<BR> 3. FESTERGUTS - Dropsied Gall-Bladder Swallowing (Oupiric Prods)<BR> 4. FESTERGUTS - On The Bloodsoaked Bridal Bed (Oupiric Prods)<BR> 5. FESTERGUTS - Mistress Of Putridity (Oupiric Prods)<BR> 6. DIELAND - These Arms Painted Me (band)<BR> 7. DIELAND - The Hating Love (band)<BR> 8. MORTAL MASSACRE - Death Depravity (band)<BR> 9. SCRAMBLED DEFUNCTS - Infants Skinning (Relics Recs)<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 05.07.2002 news MassaBrutto Radioshow #87, 5 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. SANATENA - The Philosopher [by DEATH] (band)<BR> 2. FESTERGUTS - Besmeared With Blood And Viscera (Oupiric Prods)<BR> 3. FESTERGUTS - Dropsied Gall-Bladder Swallowing (Oupiric Prods)<BR> 4. FESTERGUTS - On The Bloodsoaked Bridal Bed (Oupiric Prods)<BR> 5. FESTERGUTS - Mistress Of Putridity (Oupiric Prods)<BR> 6. DIELAND - These Arms Painted Me (band)<BR> 7. DIELAND - The Hating Love (band)<BR> 8. MORTAL MASSACRE - Death Depravity (band)<BR> 9. SCRAMBLED DEFUNCTS - Infants Skinning (Relics Recs)<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> REQUIRED PROMOS FORMAT: CD, CD-R(for demos, MCs, etc.)<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 15.06.2004 news FESTERGUTS и TVANGESTE - музыка для фильма ужасов
+
+<P>Музыка российских групп FESTERGUTS и TVANGESTE звучит в канадском мистическом триллере Sinners And Saints (Святые и Грешники)! Уже начат показ этой картины на различных кинофестивалях. Адская смесь horror тематики с боевыми искусствами, фантастикой&nbsp;и налетом эротизма. Динамизм картины, равно как и общая концепция позволяет делать самые смелые прогнозы относительно приема фильма зрителями всего мира! Официальная дата релиза DVD определена концом лета. Фильм будет доступен на всех континентах через ряд крупных дистрибьюторских сетей, специализирующихся на подобных фильмах. Сам факт участия в работе над саундтрэком западного фильма российских музыкантов уже можно считать эпохальным!</P>
+<P>Официальный сайт фильма: <BR><A href="http://www.robomonkey.net/sinnersandsaints/intro.htm">http://www.robomonkey.net/sinnersandsaints/intro.htm</A></P>
+Автор: Morsus
+
+### 18.08.2004 news FESTERGUTS записали новое промо
+
+<STRONG>FESTERGUTS </STRONG>записали новое промо. Песню "<STRONG>Now I Can Feel You From Inside</STRONG>" с этого альбома Вы можете найти по адресу: <A href="http://www.inside.kaluga.net/media/festerguts-now_i_can_feel_you_from_inside.mp3">http://www.inside.kaluga.net/media/festerguts-now_i_can_feel_you_from_inside.mp3</A>
+Автор: Vit Belov
+
+### 01.02.2005 reviews Пора записывать живьем
+
+<P>Калужский коллектив брутальщиков Festerguts начал свое творчество в 93-м году и за это время в числе их заслуг многочисленные концертные выступления, два официально изданных кассетных релиза и даже использование музыки группы в качестве саундтрэка к канадскому фильму ужасов "Sinners And Saints". Когда я взял этот диск в руки, то сначала подумал, что это промо - диск очередного релиза Earache -&nbsp; полиграфия картонного конверта альбома&nbsp;&nbsp; ничуть не уступала английским аналогам. Посему, мое удивление не знало границ, обнаружив отечественный самиздат под великолепным глянцем. Ребята нашли денег, чтоб достойно оформить свое детище. Молодцы! А вот на запись живых барабанов трех композиций, представленных на диске, денег уже не нашлось. Не хватило, наверное. Типа, забьем на драм-машинке, народ схавает - зато обложка круто будет смотреться.. Это при указанном в составе живом барабанщике. Брутальный дэт - это же не индастриал, здесь программинг не катит, да и коллективу с таким послужным списком стыдно должно быть представлять релиз с забивкой. И не надо отмазок, что, дескать, у нас невозможно нормально барабаны записать - на той же CDM Records, где был сделан мастеринг этого диска,&nbsp; очень прилично пишут барабаны. Делаю скидку на промо, и надеюсь, что полноценный альбом будет записан с живыми барабанами.</P>
+Автор: Fucker
+
+### 30.03.2012 news FESTERGUTS вернулись
+
+<P>После длительного полузамороженного состояния на сцену возвращается одна из старейших death metal групп России - <STRONG>FESTERGUTS</STRONG>. Группа подготовила 8-трековый альбом, для которого были записаны песни, ранее издававшиеся лишь на кассетных релизах группы и неиздававшиеся вовсе. Сведение и мастеринг были произведены на легендарной студии <STRONG>NavahoHut</STRONG> под руководством <STRONG>Аркадия Навахи</STRONG>. Альбом выдержан в фирменном стиле FESTERGUTS - death metal старой школы с мрачной клавишной атмосферой. Для придания музыке большей монументальности, к записи была привлечена профессиональная академическая вокалистка. Группа ещё не заключила контракта на издание этого материала, поэтому открыта для предложений от лейблов. </P>
+<P>Песня "<STRONG>Now I Can Feel You From Inside</STRONG>" доступна для прослушивания ниже.</P>
+<P><center><iframe width="100%" height="166" scrolling="no" frameborder="no" src="http://w.soundcloud.com/player/?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F37728446&show_artwork=true"></iframe></P>
+Автор: Vit Belov
+
+### 22.09.2012 news Обложка нового FESTERGUTS
+
+<P><STRONG><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.09/24820.jpg" width=450 height=450>MORE HATE Productions</STRONG> представляет обложку нового альбома группы<STRONG> FESTERGUTS</STRONG>!!! "<STRONG>Heritage Of Putrescent</STRONG>" – это первый полноформатный CD калужан <STRONG>FESTERGUTS</STRONG>, для которого были записаны отборные песни с кассетных и промо-релизов группы, выходивших ещё в 90-х годах! Название альбома переводится как "<STRONG>Наследие Разлагающихся</STRONG>", что в полной мере отражено в его содержании и на обложке.</P>
+<P>Идея обложки воплощена американскими актёрами и моделями, работающими в индустрии фильмов ужасов. Сведение и мастеринг материал прошёл на легендарной студии Navahohut под руководством Аркадия Навахо.</P>
+<P>Ссылки на 2 трека из нового альбома&nbsp; :<BR><A href="http://soundcloud.com/festerguts/dissolved-bathers">http://soundcloud.com/festerguts/dissolved-bathers</A><BR><A href="http://soundcloud.com/festerguts/now-i-can-feel-you-from-inside">http://soundcloud.com/festerguts/now-i-can-feel-you-from-inside</A></P>
+<P>странички Festerguts:<BR><A href="http://www.facebook.com/festerguts">www.facebook.com/festerguts</A><BR><A href="http://www.vk.com/festerguts">www.vk.com/festerguts</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### FESTERGUTS забрасали фэнов мясом!

@@ -12,6 +12,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.02.2004 news BUTCHERY MUSIC to sign PRIMITIVE ANGEL GOSPODEN
+
+<B>BUTCHERY MUSIC</B> sign with great bulgarian Symphonic Black Metal band <B>PRIMITIVE ANGEL GOSPODEN</B>. The band is ready with their first official album and BM will release this CD on this summer. The band have plan and for video clip. The album name is <B>T.S.A.</B> on this moment, but the material will include 6 songs (40 min.) extreme and very dark music.<BR>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

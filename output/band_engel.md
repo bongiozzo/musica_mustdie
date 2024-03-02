@@ -24,6 +24,39 @@
 * C группой "Gardenian" Niclas Engelin (guitar)
 * C группой "Gardenian" Robert Hakemo (bass)
 
+## Публикации
+
+### 30.03.2005 news ENGEL: Новая шведская группа
+
+<P><STRONG>ENGEL </STRONG>- новый коллектив, в котором приняли участие известные музыканты: гитаристы <STRONG>Marcus Sunesson</STRONG> (ex-<B>THE CROWN</B>)&nbsp;и <B>Niclas Engelin</B> (<B>PASSENGER</B>, ex-<B>GARDENIAN</B>, <B>IN FLAMES</B>),&nbsp;барабанщик <B>Mojjo</B> (<B>RELEVANT FEW</B>, <B>DRACENA</B>),&nbsp;басист <B>Robert Hakemo</B> (ex-<B>GARDENIAN</B>, <B>GOOSEFLESH</B>), а также неизвестный до этого певец <STRONG>Mangan Klavborn. </STRONG>Послушать демо-трэк этой группы можно на официальном сайте по адресу: <A href="http://www.engelpropaganda.com/">http://www.engelpropaganda.com/</A></P>
+Автор: Vit Belov
+
+### 11.10.2007 reviews Абсолютно неинтересный дизайн
+
+<P>Группа Engel, как можно было бы подумать в связи с его названием,&nbsp;не имеет никакого отношения к Германии. Это шведский квинтет из Гётеборга, и&nbsp;состоит он из бывших участников таких именитых групп, как Gardenian, In Flames, The Crown, Lord Belial, Evergrey, и менее известных Passenger и Runemagick. К продюсированию дебютного альбома этого ВИА приложили руку вокалист In Flames Андерс Фриден и продюсер всё тех же In Flames, а также&nbsp;Meshuggah Даниел Бергстранд; мастерингом занимался Бьёрн Энгельманн (Rammstein). Казалось бы, нелохая подобралась компания! Но... Вот тут и начинаются все "но". Если вы можете себе представить что-то среднее между поздними In Flames и Pain&nbsp;и ню-металом made in USA - при этом вокал звучит зачастую очень меланхолично и оставляет желать лучшего - то вы составите себе примерное представление об Engel. Впрочем, я не удивлюсь, если эти гётеборжцы станут весьма популярными в самое ближайшее время, ибо подобная музыка сейчас нарасхват. Но если забыть про сегодняшние тренды,&nbsp;пафосные слова о "новой надежде метала" (а ребята стали одними из лучших групп по версии Metal Hammer в номинации "Best Unsigned Bands 2006", прислав свое демо) и вспомнить, что громкие имена далеко не всегда означают "великие альбомы", то можно смело сказать, что Engel никаким выдающимся коллективом не являются. Если вам хочется отведать очередной шведский - как всегда качественный, но малооригинальный - релиз, то можете начинать шуршать купюрами в кошельке. Если же нет, то&nbsp;просто забудьте о существовании этого ансамбля.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 02.01.2009 news ENGEL закончили запись
+
+<P>Шведская группа <STRONG>ENGEL</STRONG>, состоящая из&nbsp;гитаристов <B itxtvisited="1">Marcus Sunesson</B> (ex-<B itxtvisited="1">THE CROWN</B>)&nbsp;и <B itxtvisited="1">Niclas Engelin</B> (<B itxtvisited="1">PASSENGER</B>, ex-<B itxtvisited="1">GARDENIAN</B>, <B itxtvisited="1">IN FLAMES</B>),&nbsp;барабанщика <B itxtvisited="1">Mojjo</B> (<B itxtvisited="1">RELEVANT FEW</B>, <B itxtvisited="1">DRACENA</B>),&nbsp;певца <STRONG>Mangan Klavborn</STRONG> и басиста <STRONG>Steve Drennan</STRONG> (<B itxtvisited="1">LOCUS</B>), закончила запись нового альбома в студии <STRONG>PUK</STRONG> вместе с продюсером <STRONG>Tue Madsen</STRONG> (<B itxtvisited="1">THE HAUNTED</B>, <B itxtvisited="1">HIMSA</B>, <B itxtvisited="1">SICK OF IT ALL</B>). Коллектив занят сведением нового материала и работой над обложкой. Альбом выйдет в начале 2009 года на <STRONG>SPV</STRONG>.</P>
+Автор: Vit Belov
+
+### 06.09.2011 news ENGEL спели с мужским хором
+
+<P>Шведы <STRONG>ENGEL</STRONG>, в составе которых гитаристы <STRONG>Marcus Sunesson</STRONG> (<B itxtHarvested="0" itxtNodeId="52">THE CROWN</B>)&nbsp;и <B itxtHarvested="0" itxtNodeId="51">Niclas Engelin</B> (<B itxtHarvested="0" itxtNodeId="50">PASSENGER</B>, ex-<B itxtHarvested="0" itxtNodeId="49">GARDENIAN</B>, <B itxtHarvested="0" itxtNodeId="48">IN FLAMES</B>),&nbsp;вокалист <B itxtHarvested="0" itxtNodeId="47">Mangan Klavborn</B>,&nbsp;барабанщик <B itxtHarvested="0" itxtNodeId="46">Jimmy Olausson</B> (ex-<B itxtHarvested="0" itxtNodeId="45">MARIONETTE</B>)&nbsp;и басист&nbsp;<B itxtHarvested="0" itxtNodeId="44">Steve Drennan</B> (<B itxtHarvested="0" itxtNodeId="43">AMON AMARTH</B>, <B itxtHarvested="0" itxtNodeId="42">LOCUS</B>), записали две песни с мужским хором <STRONG>Hellmans Drengar. </STRONG>Видео-клип с одной из этих песен <STRONG>"In Darkness" </STRONG>можно послушать ниже.</P>
+<P>Второй альбом <STRONG>ENGEL</STRONG> <STRONG>"Threnody" </STRONG>вышел в прошедшем ноябре на <STRONG>Season Of Mist</STRONG>. </P>
+<P>
+<CENTER><iframe width="640" height="390" src="http://www.youtube.com/embed/DadxgdpJFTM" frameborder="0" allowfullscreen></iframe></CENTER>
+Автор: Vit Belov
+
+### 15.04.2012 news Новое видео ENGEL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип шведов <STRONG>ENGEL "Question Your Place"</STRONG> можно посмотреть ниже. Третий альбом коллектива бывшего гитариста <STRONG>IN FLAMES Niclas Engelin "Blood Of Saints"</STRONG> выйдет 18 мая на <STRONG>Season Of Mist</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/vp4iBqVSRIQ?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

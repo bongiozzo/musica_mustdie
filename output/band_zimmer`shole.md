@@ -38,6 +38,9 @@ Drums - Steve Wheeler
 
 * C группой "Strapping Young Lad" Jed Simon, Byron Stroud
 
+## Публикации
+
+
 ## Обсуждения
 
 

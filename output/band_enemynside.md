@@ -16,6 +16,23 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.09.2010 news Richie Kotzen на новом альбоме ENEMYNSIDE
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17147.jpg" width=145 height=200>Вокалист/гитарист <STRONG>Richie Kotzen</STRONG> (бывший участник&nbsp;<B itxtvisited="1">POISON</B> и <B itxtvisited="1">MR. BIG</B>) запишет гостевое соло в песне <STRONG>"Too Many Times" </STRONG>на выходящем альбоме итальянских трэшеров <STRONG>ENEMYNSIDE, </STRONG>предварительно получившим название <STRONG>"The Black Issue"</STRONG>. </P>
+<P>Комментирует <STRONG>Francesco "Frallo" Cremisini </STRONG>(вокалист/гитарист <B itxtvisited="1">ENEMYNSIDE</B>): <EM>"Я очень горд, что получил, для записи соло на новом альбоме,&nbsp;такого прекрасного музыканта. Он один из самых талантливых гитаристов на данный момент и очень приятный человек."<BR itxtvisited="1"></EM></P>
+Автор: Headcrusher
+
+### 20.07.2011 news Richie Kotzen сыграл для итальянских трешеров
+
+<P>Итальянская thrash-metal группа <STRONG>ENEMYNSIDE </STRONG>объявила о выходе нового сингла <STRONG>"Too Many Times", </STRONG>гитарное соло для которого записал <STRONG>Richie Kotzen</STRONG> (ex-<B>POISON,</B>&nbsp;<B>MR. BIG</B>). Песня попадёт на новый альбом музыкантов <STRONG>"Whatever Comes", </STRONG>который был записан в студии <STRONG>Temple Of Noise</STRONG>&nbsp;и выйдет до конца года.</P>
+<P>Предыдущий альбом <STRONG>ENEMYNSIDE</STRONG> <STRONG>"In The Middle Of Nowhere" </STRONG>вышел в 2008 году на <STRONG>Hatestone Records</STRONG>.</P>
+<P>Facebook: <A href="http://www.facebook.com/enemynside">http://www.facebook.com/enemynside</A></P>
+<P><center><IMG height=343 src="/images/news_rus/2011.07/20253.jpg" width=343 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -19,6 +19,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.07.2012 news Новинка MUSICA Production
+
+<P><SPAN class=tit1><IMG height=433 alt="" hspace=0 src="/images/news_rus/2012.07/24415.jpg" width=450 align=right border=0>MUSICA PRODUCTION представляет</SPAN></P>
+<P><SPAN class=tit3>MP61 MISANTHROPIA “…When The Sky Rained Death”</SPAN></P>
+<P>-black-death-metal; Дебютный альбом коллектива из Мурманской области. Группа существует на Кольском полуострове в городе Апатиты с 2002 года и представляет ужасающую смесь из black и death метала с самого севера России. CD был записан в студии MA в 2009 году, он адресован поклонникам настоящей и сырой тяжёлой музыки.</P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Shadow<BR></STRONG>2. <STRONG>Tribe of Damned<BR></STRONG>3. <STRONG>Ascension</STRONG><BR>4. <STRONG>Rex Nemorenzis</STRONG><BR>5. <STRONG>...When the Sky Rained Death</STRONG><BR>6. <STRONG>Harvester of Death<BR></STRONG>7. <STRONG>Empire of Darkness</STRONG><BR>8. <STRONG>Troops of Doom</STRONG></P>
+<P>Канал <STRONG>YouTube </STRONG>с двумя вещами с этого альбома: <A href="https://www.youtube.com/user/MusicaMustdieProd/videos">https://www.youtube.com/user/MusicaMustdieProd/videos</A><BR>Сайт лэйбла: <A href="http://mp.musica.mustdie.ru/">http://mp.musica.mustdie.ru</A><BR>Сайт группы: <A href="http://vk.com/authentic_misanthropia">http://vk.com/authentic_misanthropia</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

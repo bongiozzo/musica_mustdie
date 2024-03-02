@@ -30,6 +30,22 @@ Bruno Laguide -d
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.05.2002 reviews Французская версия NWOBHM
+
+<p>К сожалению, мне ничего не удалось узнать про эту французскую группу, даже не знаю, первое ли это их творение или они уже ветераны. Судя по фоткам, это уже не мальчики, а мужи. Материал группы выдержан в классическом духе британского heavy metal начала восьмидесятых. Напоминает творчество IRON MAIDEN и JUDAS PRIEST, но в сырейшем и недостаточно приглядном виде. Вокалист неплох, очень часто напоминает Диккинсона. Вроде все на месте, исполнительская техника не вызывает нареканий, но... Из десяти песен, по-настоящему хорошими можно назвать лишь "Heroes Die Young", "Lost Memories" и "Winter's Call", да еще эпичную последнюю вещь "Time". Все остальные вещи - откровенно проходные. Поэтому, в целом, создается впечатление, что "Mekanism Of Time" - средний альбомчик, который можно и обойти стороной.</p>
+<p> Диск выпущен по лицензии компанией CD-MAXIMUM</p>
+
+Автор: Dimas
+
+### 11.06.2002 reviews French version of NWOBHM
+
+<p>Unfortunately, I nothing managed to find out about this French group, at all I do not know, whether first is their creation or they are already veterans. By fotos, it's not any more boys, but men. The material of group is sustained in classical spirit of British heavy metal of a beginning eightieth. Reminds creativity by IRON MAIDEN and JUDAS PRIEST, but in half-done and there is not enough good kind. Vocalist is not bad, very much frequently reminds Dikkinson. Like all on a place, technic does not cause reproach, but... From ten songs, rather good it is possible to name only "Heroes Die Young", "Lost Memories" and "Winter's Call", moreover epic last song "Time". All other tracks - is frank checkpoints. Therefore, as a whole, the impression is created, that "Mekanism Of Time" - average album, which is possible to bypass by the party...</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

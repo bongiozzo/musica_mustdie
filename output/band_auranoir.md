@@ -84,6 +84,104 @@ Tower of Limbs and Fevers
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.02.2001 reviews Вернемся в восьмидесятые?
+
+<p>Вернемся в восьмидесятые? Тем более Aura Noir предоставляет нам такой шанс. Грязные thrash-риффы в духе первых альбомов Kreator и Venom, мерзкий блэковый вокал и ужасающее качество записи! Хотя, это уже четвертый альбом группы, и предыдущие были более высокого качества. Даже у наших команд качество намного лучше. Не знаю где, а главное когда все это записывалось, но это уже ни в какие ворота не лезет. Сейчас другой век, другие технологии. Пора бы подчиняться времени, а не сидеть в глубоком андерграунде. А тут глухие барабаны, иногда кажется, что ударник просто палочками по стенке лупит, грязное скрежетание гитар, бас вообще не слышен. Очень любительский уровень. Хотя и присутствуют замечательные злобные мелодии. А будь все это записано с приличным качеством, Witchery остались бы не у дел. А так...Только для любителей безбашенной быстрой музыки.</p>
+
+Автор: Dimas
+
+### 12.02.2001 reviews Let&#39;s return to eightieth?
+
+<p>Let's return to eightieth? Especially Aura Noir affords o us such chance. Dirty thrash-riffs spirit of the maiden albums Kreator and Venom, evil black voice and horrifying quality of a record! Though, it already fourth album of group, and previous were more high quality. Even for our commands the quality is much better. I do not know where, and main when all this entered the name, but it already in any gin not лезет. Now other century, other technologies. It would be time to be subject to time, instead of to sit in steep underground. And here dead barrels, sometimes seem, that the striker is simple by rods on a wall beat, dirty rhymes of guitars, the bass is absolutely not audible. A very amateur level. Though there are remarkable bitter tunes. And all this be recorded with decent quality, Witchery would remain not with business. And so... Only for the fans of turretless fast music.</p>
+
+Автор: Dimas
+
+### 03.04.2001 news ENSLAVED - студийный альбом...
+
+<p>Викинги ENSLAVED планируют запись нового альбома. С 30 июля по 18 августа они будут писаться в Grieghallen Studios, микширование пройдет в Duper Studios с 27 августа по 2 сентября. Дата выхода на Osmose Records - 15 Октября. Из других новостей - барабанщик Dirge Rep решил совмещать работу в ENSLAVED с местом за ударными в AURA NOIR. Более подробные новости на сайте группы www.EnslavedUnion.com</p>
+
+Автор: Yermola
+
+### 03.04.2001 news ENSLAVED - Studio Bound!
+
+<p>ENSLAVED's upcoming album will be released on October 15th through Osmose. The band will be in Grieghallen Studios from July 30th to August 18th. The album will be mixed at Duper Studios from August 27th to September 2nd. Check out the band's website, www.EnslavedUnion.com, for info on the band members. There you'll find the band's entire '92 demo tape, Yggdrasill, available for free download from March 30th. Visitors to the website will also have access to an exclusive track, made during the preparation for the new album. In related news, ENSLAVED's Dirge Rep has joined AURA NOIR as full-time drummer. He has not quit Enslaved, he will do both bands.</p>
+
+Автор: Yermola
+
+### 29.06.2003 reviews Чушь. Просто чушь.
+
+<p>Чушь. Просто чушь. В меру тяжёлая, грязная, быстрая и лично мне абсолютно не интересная чушь. Поконкретнее? Пожалуйста. AURA NOIR играют блэк-трэш как бы "старого образца". То есть, шумно, быстро и тупо. Запись, в отличие от более ранних "шедевров" обозреваемого дуэта, на удивление пристойна. Музыканты в AURA NOIR собрались хорошие – да толку… Пять баллов из десяти и на полку.</p>
+<P> <I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 24.06.2004 news AURA NOIR выпустят новый альбом в августе
+
+<P><B>AURA NOIR</B> выпустят новый альбом '<B>Merciless</B>' в августе на <B>Tyrant Syndicate Records, </B>лэйбле <B>Nocturno Culto (DARKTHRONE)</B>. Гостями на альбоме стали <B>Fenriz (DARKTHRONE)</B> и <B>Nattefrost (CARPATHIAN FOREST)</B>.</P>
+Автор: Vit Belov
+
+### 29.12.2004 reviews The VERY TRUE black metal
+
+<P>Мне сказали, что Aura Noir играет блэк. Ну вот. Ибо я стараюсь избегать рецензирования этого столь нелюбимого мной стиля - всё равно рецензия получится слишком необъективной и предвзятой. Но тут оказалось, что сие трио играет... может, и блэк, но в совершенно первозданном его варианте, с большой примесью трэша, на ум сразу приходят Venom и ранние работы немецких трэшеров, типа Sodom или Destruction. Практически ничего блэкового в современном понимании тут нет, зато есть неожиданно выпрыгнувшая атмосфера 80-х, включая творения Celtic Frost. И сделано это действительно по высшему разряду. Ежели вы ностальгируете по музыке тех времен, то&nbsp;"The Merciless" станет прекрасным новогодним - или роджественским - подарком (если вы его еще не приобрели). Для тех же, кому блэк-метал представляется в виде каркающего вокала, безумной стены клавишных и бредовой стыковки молотящей с дикой скоростью драм-машинки с бас-гитарой - сорри, это не ваше. Вы слишком молоды для этой музыки. Вы это назовете примитивным трэшем. Удачи, дорогие пионеры, и с Новым годом! Желающие могут порыться в интернете на предмет состава группы и отношения к данному проекту таких команд, как&nbsp;Darkthrone, Mayhem и Cadaver Inc. Не вечно же мне вам всё выкладывать на тарелочку? :)</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 31.07.2008 news AURA NOIR выпускают альбом
+
+<P>Норвежская black-thrash команда <STRONG>AURA NOIR</STRONG> подготовила новую пластинку "<STRONG>Hades Rise</STRONG>", которая выйдет на подлэйбле <STRONG>Peaceville</STRONG> <STRONG>Tyrant Syndicate</STRONG>, которым рулят музыканты <STRONG>DARKTHRONE</STRONG>. Дата релиза: 25 августа. В записи альбома принял участие бывший гитарист группы <STRONG>Blasphemer</STRONG> (ex-<STRONG>MAYHEM</STRONG>) и участник <STRONG>ABSCESS</STRONG>/<STRONG>AUTOPSY Danny Coralles</STRONG>. Трэк-лист:</P>
+<P>01. <B>Hades Rise</B> <BR>02. <B>Gaping Grave Awaits</B><BR>03. <B>Unleash the Demon</B><BR>04. <B>Pestilent Streams</B><BR>05. <B>Schitzoid Paranoid</B><BR>06. <B>Death-Mask</B> <BR>07. <B>Shadows of Death</B><BR>08. <B>Iron Night/Torment Storm</B><BR>09. <B>South American Death</B> <BR>10. <B>The Stalker</B></P>
+Автор: Vit Belov
+
+### 05.10.2009 reviews Группа с современными воплями, похожая на VENOM
+
+<P>Музыка норвежской группы AURA NOIR представляет интерес для двух категорий меломанов. В первую входят почитатели всего неформального и неортодоксального в тяжёлой музыке. Этих людей просто бесит коммерционализация их любимого стиля. Все эти клавиши, симфонии и непонятные ритмы. Во второй категории находятся «сторонники тьмы», которым всё равно, что играют их кумиры, но важно про что они играют.</P>
+<P>AURA NOIR проект известных на норвежской сцене музыкантов – Apollyon и Aggressor. Ориентируются эти ребята на VENOM в его самой ужасающей и грязной форме. Вопли, издаваемые этими музыкантами, под аккомпанемент грязного и достаточно тупого black-thrash могут поразить кого угодно. Я очень быстро сдался на милость этим победителям всего живого. Приятно, когда кто-то посвящает свою жизнь подобной музыке. Я вот люблю punk музыку, которая тоже особым разнообразием не отличается. Но вот AURA NOIR я почему-то не полюбил. </P>
+<P>Советую этот альбом тем, кто до сих пор разыскивает группы похожие на VENOM, но с современными воплями.</P>
+Автор: Vit Belov
+
+### 10.01.2012 news AURA NOIR выпускают пятый альбом в марте
+
+<P>
+<CENTER><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.01/22583.jpg" width=500 height=332> 
+<P></P>
+<P>Норвежские thrash/black металлисты <STRONG>AURA NOIR</STRONG>&nbsp;закончили колдовать над своим пятым студийным альбомом, получившим название <STRONG>"Out To Die"</STRONG>.</P>
+<P>Как и его предшественник, диск<STRONG> "Hade's Rise"</STRONG> (2008), новый альбом был спродюсирован самой группой и&nbsp;должен&nbsp;доставит истинное удовольствие при прослушивание фэнам ранних работ <STRONG>SLAYER</STRONG> и <STRONG>SODOM</STRONG>. </P>
+<P><STRONG>"Out To Die"</STRONG> ознаменовал возвращение в состав <STRONG>AURA NOIR</STRONG>&nbsp;бывшего участника <STRONG>MAYHEM</STRONG>, гитариста&nbsp;по кличке&nbsp;<STRONG>Blasphemer</STRONG>, который нынче проживает в Португалии&nbsp;и которому пришлось предпринять несколько поездок в Норвегию, чтобы поработать над новыми песнями вместе с&nbsp;&nbsp;двумя другими музыкантами коллектива.</P>
+<P>Говорит <STRONG>Aggressor</STRONG> (гитара, вокал): <EM>"Я хотел бы, чтобы мы жили в одной комнате и репетировали каждый день, все вместе втроём, но очевидно, что это невозможно, т.к. у&nbsp;всех нас есть своя личная жизнь. Однако подобная ситуация принесла и новые способы совместной работы и в итоге всё закончилось успешно."</EM></P>
+<P><STRONG>"Out To Die"</STRONG> выходит 23 марта на <STRONG>Indie Recordings</STRONG>. </P>
+<P>Трек-лист:</P>
+<P>01. <STRONG>Trenches</STRONG><BR>02. <STRONG>Fed To The Flames<BR></STRONG>03. <STRONG>Abbadon</STRONG><BR>04. <STRONG>The Grin From The Gallows<BR></STRONG>05. <STRONG>Withheld</STRONG><BR>06. <STRONG>Priest's Hellish Fiend<BR></STRONG>07. <STRONG>Deathwish</STRONG><BR>08. <STRONG>Out To Die</STRONG></P></CENTER>
+Автор: Headcrusher
+
+### 25.01.2012 news Обложка нового альбома AURA NOIR &quot;Out To Die&quot;. 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стала доступна к просмотру обложка нового альбома <STRONG>AURA NOIR "Out To Die"</STRONG>. Автор работы - <STRONG>Costin Chioreanu</STRONG> (<A href="http://twilight13media.com/">http://twilight13media.com</A>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дата выхода диска: <FONT color=#ddd9d0>23 марта (<STRONG>Indie Recordings</STRONG>).</FONT></FONT></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.01/22784.jpg" width=500 height=500> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 08.01.2013 news Лучшие альбомы 2012 года от Fenriz&#39;а
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.01/25268.gif" width=250 height=247>Известный&nbsp;любитель дикой природы и классических форм металла, а также по совместительству барабанщик <STRONG>DARKTHRONE</STRONG>, мистер <STRONG>Fenriz</STRONG>, поделился своим мнением относительно десяти лучших альбомов ушедшего 2012 года. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В этот список в произвольном порядке вошли:</FONT></P>
+<P>01. <STRONG>VOMITOR "The Escalation"</STRONG> (<STRONG>Invictus Productions</STRONG>)</P>
+<P>02. <STRONG>GOAT "World Music"</STRONG> (<STRONG>Stranded Rekords</STRONG>)</P>
+<P>03. <STRONG>HOUR OF 13 "333"</STRONG> (<STRONG>Earache</STRONG>)</P>
+<P>04. <STRONG>CHRISTIAN MISTRESS "Possession"</STRONG> (<STRONG>Relapse</STRONG>)</P>
+<P>05. <STRONG>NEKROMANTHEON "Rise, Vulcan Spectre"</STRONG> (<STRONG>Indie Recordings</STRONG>)</P>
+<P>06. <STRONG>DEATHHAMMER "Onward To The Pits"</STRONG> (<STRONG>Hells Headbangers</STRONG>)</P>
+<P>07. <STRONG>GOLD "Interbellum" </STRONG>(<STRONG>Van</STRONG>)</P>
+<P>08. <STRONG>VANDERBUYST "Flying Dutchmen"</STRONG> (<STRONG>Van</STRONG>)</P>
+<P>09. <STRONG>ROYAL THUNDER "CVI"</STRONG> (<STRONG>Relapse</STRONG>)</P>
+<P>10. <STRONG>SHIPWRECKED "The Last Pagans"</STRONG> (<STRONG>Crucial Response</STRONG>)</P>
+<P>Также,&nbsp;по его мнению,&nbsp;заслуживают внимания альбомы 2012 года от следующих групп: <STRONG>TURBONEGRO</STRONG>, <STRONG>HOODED MENACE</STRONG>, <STRONG>AURA NOIR</STRONG>, <STRONG>WITCHCRAFT</STRONG>, <STRONG>YEAR OF THE GOAT</STRONG>, <STRONG>EL DOOM & THE BORN ELECTRIC</STRONG>, <STRONG>VETTER</STRONG>, <STRONG>BURZUM</STRONG>, <STRONG>THE SABBATH ASSEMBLY</STRONG>, <STRONG>GRAVEYARD</STRONG> и <STRONG>JESS AND THE ANCIENT ONES</STRONG>.</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

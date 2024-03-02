@@ -33,6 +33,17 @@ power-progressive from Greece
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.01.2015 news Новое видео BLACK FATE
+
+<P>Новый клип греческой power-progressive metal группы<STRONG> BLACK FATE</STRONG> на песню "<STRONG>Rhyme Of The False Orchestra</STRONG>" можно посмотреть ниже. Новейший альбом группы "<STRONG>Between Visions & Lies</STRONG>" вышел в конце 2014 года на <STRONG>Ulterium Records</STRONG> и его можно приобрести в магазине <A href="http://escapemind.ru/">http://escapemind.ru</A></P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/kTjaSGeypZ4" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

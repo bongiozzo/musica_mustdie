@@ -94,6 +94,57 @@ Urban Glasses
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.07.2002 news MassaBrutto Radioshow #90, 15-16 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. WITHERING SURFACE - And She Blossomed (Euphonious/VOW)<BR> 2. UMBRA ET IMAGO - Dunkle Energie (SPV/Soyuz)<BR> 3. SEAR BLISS - Arx Idolatriae (Nephilim/Ablaze)<BR> 4. MERCENARY - Darkspeed (Hammerheart)<BR> 5. MERCENARY - Seize The Night (Hammerheart)<BR> 6. IMPENDING DOOM - Where Sinners Bleed (Cudgel Agency/Ablaze)<BR> --- --- --- ---<BR> новости <BR> --- --- --- ---<BR> 7. SCEPTIC - Pathetic Being (Last Episode/Ablaze)<BR> 8. BLOOD RED THRONE - Souls Of Damnation (Hammerheart)<BR> 9. INCARRION - The Creature Experiment (United Guttural)<BR> 10. SCREAMING AFTERBIRTH - Puke Pile (United Guttural)<BR> 11. INTERNECINE - The Elder Gods (Hammerheart)<BR> 12. LUCYFIRE - The Pain Song (SPV/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 16.07.2002 news MassaBrutto Radioshow #90, 15-16 Jul 2002.
+
+<p>Playlist:<BR><BR> 1. WITHERING SURFACE - And She Blossomed (Euphonious/VOW)<BR> 2. UMBRA ET IMAGO - Dunkle Energie (SPV/Soyuz)<BR> 3. SEAR BLISS - Arx Idolatriae (Nephilim/Ablaze)<BR> 4. MERCENARY - Darkspeed (Hammerheart)<BR> 5. MERCENARY - Seize The Night (Hammerheart)<BR> 6. IMPENDING DOOM - Where Sinners Bleed (Cudgel Agency/Ablaze)<BR> --- --- --- ---<BR> новости <BR> --- --- --- ---<BR> 7. SCEPTIC - Pathetic Being (Last Episode/Ablaze)<BR> 8. BLOOD RED THRONE - Souls Of Damnation (Hammerheart)<BR> 9. INCARRION - The Creature Experiment (United Guttural)<BR> 10. SCREAMING AFTERBIRTH - Puke Pile (United Guttural)<BR> 11. INTERNECINE - The Elder Gods (Hammerheart)<BR> 12. LUCYFIRE - The Pain Song (SPV/Soyuz)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 07.08.2002 reviews Очередная порция melodic death metal
+
+<p>Так получилось, что третий альбом группы WITHERING SURFACE попался мне только сейчас, хотя вышел еще в прошлом году. Первые два альбома группы укрепили меня во мнении, что эти датчане - отнюдь, не середняки, а составляют достойную конкуренцию таким признанным грандам, как IN FLAMES и DARK TRANQUILLITY. Ну и новый альбом только подтвердил сложившееся ранее мнение. Очередной качественный и добротный кусок шведского melodic death metal. Естественно, что ничего нового вы здесь не услышите, но сорок минут приятного времяпрепровождения вам обеспечено. Группе за это время удается показать все обаяние мелодичного death metal. Правда, первые песни альбома довольно вяловатые, но вторая половина альбома достойна только похвал, а пятый и шестой трэки заслуживают самые высшие оценки. Материал альбома довольно разнообразен (в рамках стиля). Гиперактивные риффы, бочечные разливы, внушительные двойные соло и харизматические вокальные упражнения, редкие, но меткие клавишные вставочки - вот что входит в упаковку этого альбома. Хороший альбом, особо выделяющийся на общем фоне подобных.</p>
+
+Автор: Dimas
+
+### 09.01.2003 news Планы WITHERING SURFACE
+
+<p>Несмотря на то, что из датской команды WITHERING SURFACE ушел клавишник Morten Lybecker, группа успешно работает над своим новым альбомом, который пока не имеет названия. Обещается просто убийственный melodic death материал, который выйдет в октябре-ноябре 2003 года на Copro Productions.</p>
+
+Автор: Dimas
+
+### 25.09.2003 news WITHERING SURFACE продолжают отложенную работу над новым альбомом.
+
+Неурядицы с составом затормозили работу датских музыкантов <B>WITHERING SURFACE</B> над своим новым альбомом. В коллектив, на время записи новых вещей, вернулся ударник <B>Nikolaj Borg.</B> Группа продолжает студийные работы, которые планирует закончить к концу года. Выход альбома ожидается зимой 2004 года на <B>Copro Records</B>.
+Автор: Dimas
+
+### 28.02.2004 news Withering Surface подписали контракт
+
+<P><B>WITHERING SURFACE</B> подписали контракт на выпуск своего нового альбома <B>'Force The Pace'</B> на <B>Scarlet</B> в июне.</P>
+Автор: Vit Belov
+
+### 18.12.2004 news WITHERING SURFACE развалились
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Датчане <STRONG>WITHERING SURFACE</STRONG> распались. Об этом группа официально заявила на своём сайте.</FONT></P>
+Автор: Vit Belov
+
+### 13.05.2005 reviews В погоне за старшим братом
+
+<P>А ведь говаривали в свое время умные люди – «не сотвори себе кумира!». Да только кто их слушает, умных людей-то… У датчан WITHERING SURFACE, сотворивших-таки себе кумира, главный пример для подражания – тоже скандинавы (шведы), и называются они IN FLAMES. </P>
+<P>Что на входе? Полная «гениального идиотизма» обложка, судорожный гитарный кач, возникающая ниоткуда психоделическая электроника, барабаны – как тапками по паркету. Правда, вокал на “Force The Pace” несколько истеричнее, да и саунд заметно отличается от современного перегруженного – здесь он суше и чище. И если IN FLAMES на последних своих альбомах густо мешают мелодик-дэт с модерн-металом, то герои данной рецензии последним ингредиентом стараются не злоупотреблять, помышляя, очевидно, о чистоте стиля. В итоге, имеем на выходе: десять песен бестолкового и однообразного swedish melodic death metal. Не более того.</P>
+<P>Слушается все это безобразие сравнительно неплохо – музыканты играть обучены, мелодии, хоть и напрочь вторичны и неоригинальны, все же имеются… Если фоном – так совсем замечательно. А вот если вслушиваться в музыку более внимательно – тут и там проскальзывают знакомые нотки из не менее знакомой команды. А это, признаться, здорово напрягает – ибо с таким же успехом, но с гораздо большим удовольствием, можно слушать непосредственно кумиров. </P>
+<P>Получается этакая второсортная ретроспектива шведского melodic death metal’а «для нищих». Оно вам надо?</P>
+<P>Диск предоставлен <A href="http://www.cd-maximum.ru/">CD-Maximum</A></P>
+Автор: Dr. Grandma
+
+
 ## Обсуждения
 
 

@@ -84,6 +84,37 @@ Jami Huovinen - Drums
 * C группой "Boals, Mark" Mark Boals
 * C группой "Boals, Mark" Boals, Mark
 
+## Публикации
+
+### 09.09.2002 news Former YNGWIE MALMSTEEN Frontman To Issue Solo CD ...
+
+<p>Former YNGWIE MALMSTEEN frontman Mark Boals will issue a solo album, entitled Edge Of The World, in Japan on October 23rd though Marquee Inc, and in other territories shortly after. <BR><BR> Described in an official press release as "his most diverse and creative solo album yet," Edge Of The World "is very much a melodic hard rock album, whilst utilizing progressive, (some) neo-classical and classic rock influences." The album features keyboardist Erik Norlander (LANA LANE, ROCKET SCIENTISTS), drummers Vinny Appice (DIO, BLACK SABBATH) and Virgil Donati (RING OF FIRE, PLANET X), and guitarists Tony MacAlpine, Chris Brooks, Neil Citron and Jeff Kollman. Bass guitar and additional rhythm guitar duties were handled by Boals himself. 13 tracks (including a bonus track for the Japanese pressing) are contained on the CD, which was produced by Boals and engineered by Erik Norlander and Neil Citron.</p>
+
+Автор: Yermola
+
+### 09.09.2002 news Лезвие Мира.......
+
+<p>Экс-вокалист "YNGWIE MALMSTEEN" - Mark Boals выпускает соло-альбом названный "Edge Of The World". В Японии диск выйдет 23 октября через Marquee Inc и почти сразу же для остального мира.<BR><BR> Описанный в пресс-релизе как "...очень мелодичный хард-роковый альбом, с элементами прогрессива, неоклассики и классического рока..." - "Edge Of The World " собрал известных музыкантов: клавишник Erik Norlander (LANA LANE, ROCKET SCIENTISTS), барабанщики Vinny Appice (DIO, BLACK SABBATH) и Virgil Donati (RING OF FIRE, PLANET X), гитаристы Tony MacAlpine, Chris Brooks, Neil Citron и Jeff Kollman. Партии баса и ритм-гитар были записаны самим Боалзом. Диск содержит 13 вещей (включая обычные бонусы для Японии) и был спродюссирован Боалзом и записан Erik Norlander и Neil Citron.</p>
+
+Автор: Yermola
+
+### 08.06.2004 news RING OF FIRE выпускают новый альбом
+
+<P>Новый альбом <B>RING OF FIRE</B> будет называться "<B>Lapse Of Reality'</B>. Трэк-лист:</P>
+<P>01. <B>Lapse Of Reality</B><BR>02. <B>Saint Fire</B><BR>03. <B>The Key</B><BR>04. <B>Darkfall</B><BR>05. <B>One Little Mystery</B><BR>06. <B>Perfect World</B><BR>07. <B>Change</B><BR>08. <B>That Kind Of Man</B><BR>09. <B>You Were There</B><BR>10. <B>Machine</B><BR>11. <B>Faithfully</B><BR>12. <B>I Don't Know (What You're Talking About)</B><BR>Пока известна дата выхода только в Японии.</P>
+Автор: Vit Belov
+
+### 24.11.2004 reviews Работа над ошибками
+
+<P><B>Первый альбом группы Марка Боалса – “The Oracle” (о сольных дисках Боалса умолчим, всё-таки, это ж не проект “Ring Of Fire”, хотя, в принципе, тоже самое :))) я воспринимаю как некий мастер-класс. В качестве учителей - дуэт Виталий Куприй-Джордж Беллас. Игра впечатляет, мелодии удручают. Второй альбом “Dreamtower”, на котором в компании Марка вновь появился темнокожий гитарист Тони МакАльпин, получился совсем неудачным. Куприй то ли устал, то ли просто не хотел играть, да и МакАльпин тоже находился примерно в таком же состоянии. Но зато, присутствовали три (на сколько я помню) вполне приличные песни, которые, на фоне остальных, вполне могли считаться хитами. Попытка играть вместо неоклассики суровый прог полностью провалилась. </B></P>
+<P><B>И вот перед нами третья работа – “Lapse Of Reality”. Лучшая из трех (да что уж там… из пяти). Во-первых, по крайней мере, на большей части песен Боалс поет, а не мерзко пищит, как на протяжении всего “Dreamtower”. Во-вторых, плохих, не мелодичных вещей на альбоме всего две. Но они действительно плохие. Нудные, аж раздражают. В-третьих, звук нарулили хороший, опять таки, в отличие от хреновенького, на “Tower”. Марк Боалс закончил с всякими экспериментами и, в соавторстве с барабанщиком Донати, записал такую музыку, которая у него получается лучше всего. Мелодичный хард’н’хэви в духе раннего Мальмстина. </B></P>
+<P><B>Куприй был заменен менее известным Стивом Вейнгартом. Что удивительно, этот Стив не пытается из кожи вылезти, но доказать, насколько он крут. Клавиш именно столько, сколько нужно. </B></P>
+<P><B>МакАльпин уже не похож на сонного дедушку-блюзмена, нашедшего когда-то свой единственно правильный рифф, но позабывшего его из-за старческого слабоумия и теперь пытающегося судорожно найти его нервно перебирая струны. Хотя… и на виртуозного гитариста МакАльпин уже не тянет. Так… крепкий профи… каких десятки… Копит видно силы для сольной работы. </B></P>
+<P><B>В общем – альбом “Lapse Of Reality” правильный, коммерчески просчитанный ход. У тех, у кого есть в коллекции все диски Боалса и товарищей, “Lapse Of Reality” обязателен для приобретения. Просто для любителей мелодичного метала, крайне желателен. Остальные отдыхают. Особенно любители оригинального и самобытного.</B></P>
+<P>Диск выпущен по лицензии компанией <A href="http://www.cd-maximum.ru/"><U><I>CD-MAXIMUM</I></U></A></P>
+Автор: Дофф
+
+
 ## Обсуждения
 
 

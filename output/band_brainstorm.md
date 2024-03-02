@@ -198,6 +198,499 @@ Produced by Axel Heckert in Studio 22.
 
 * C группой "Symphorce" Andy B. Franck
 
+## Публикации
+
+### 10.05.2001 news Metus Mortis.....
+
+<p>Сразу по завершении тура с "King Diamond" - "BRAINSTORM" загрузились в штутгартскую "House of Music Studios" с продюссером Achim K&ouml;hler (Primal Fear, ...) для записи четвертого альбома "Metus Mortis". Уже точно будут: "Hollow Hideaway", "Strenght Of Will", "Checkmate In Red" и "Face Down". Дата релиза - Сентябрь. Также новые песни будут представлены на Bang Your Head и Wacken Open Air.</p>
+
+Автор: Yermola
+
+### 10.05.2001 news Metus Mortis - BRAINSTORM
+
+<p>Right after playing the shows with King Diamond end of April, BRAINSTORM entered the "House of Music Studios" in Stuttgart to record their fourth album with producer Achim Kцhler (Primal Fear, ...). Entitled "Metus Mortis", BRAINSTORM are about to record an album that is even heavier than its predecessor "Amiguity" but without losing their variety and surprising moments. Songs like "Hollow Hideaway", "Strenght Of Will", "Checkmate In Red" and "Face Down", just to name a few, will not only guarantee neck-pain in a live situation. Release date will be around September, a small preview will be shown on this years festivals (Bany Your Head, Wacken Open Air) where BRAINSTORM will play one or two brandnew songs.</p>
+
+Автор: Yermola
+
+### 16.08.2001 news Немецкий Мозговой Штурм...
+
+<p>Молодая поросль немецкого пауэра "BRAINSTORM" опубликовали трек-лист грядущего альбома "Metus Mortis", который выходит на Metal Blade Records 29 октября: 01. Metus Mortis 02. Blind Suffering 03. Shadowland 04. Checkmate In Red 05. Hollow Hideaway 06. Weakness Sows Its Seed 07. Into The Never 08. Under Lights 09. Cycles 10. Behind 11. Meet Me In The Dark 12. Face Down (bonus) 13. Strength Of Will. Ограниченный первый тираж выйдет в виде дигипака и будет содержать бонус-трек.</p>
+
+Автор: Yermola
+
+### 16.08.2001 news Metus Mortis...
+
+<p>Germany’s BRAINSTORM will be issuing their brand new studio album, entitled Metus Mortis, on October 29th via Metal Blade Records Europe. The limited first edition will be released as a digipack and will contain a bonus cut not found on the regular CD. The full track listing for the album is as follows: 01. Metus Mortis 02. Blind Suffering 03. Shadowland 04. Checkmate In Red 05. Hollow Hideaway 06. Weakness Sows Its Seed 07. Into The Never 08. Under Lights 09. Cycles 10. Behind 11. Meet Me In The Dark 12. Face Down (bonus) 13. Strength Of Will. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 27.11.2001 news GRAVE DIGGER European tour ...
+
+<p>German classic metallers GRAVE DIGGER will make their US live debut at the Classic Metal Festival II on July 13th, 2002 in Cleveland, Ohio. In other news, the group have announced the dates for their forthcoming European tour with BRAINSTORM and TIERRA SANTA and other headlining shows. They are as follows: <BR><BR> Jan. 10 - Pratteln / Z 7 / SWI <BR> Jan. 11 - Braunschweig / fbz / GER <BR> Jan. 12 - Offenbach / Hafenbahn / GER <BR> Jan. 13 - Ludwigsburg / Rockfabrik / GER <BR> Jan. 14 - Bochum / Zeche / GER <BR> Jan. 15 - Hamburg / Markthalle / GER <BR> Jan. 16 - Berlin / Music Hall / GER <BR> Jan. 17 - Mьnchen / Metropolis / GER <BR> Jan. 18 - Lichtenfels / Stadthalle / GER <BR> Jan. 19 - Glauchau / Alte Spinnerei / GER <BR> Feb. 26 - Treviso / New Age / ITA <BR> Feb. 27 - Milano / Transilvania Live / ITA <BR> Mar. 01 - Madrid / Sala Arena / SPA <BR> Mar. 02 - Bergara / Jam / SPA <BR> Mar. 03 - Barcelona / Razzmatazz 2 / SPA <BR> Mar. 04 - Paris / Elysee Montmatre / FRA <BR> Mar. 09 - Vosselar / Biebob / BEL <BR> Apr. 06 - Mannheim / Kolosseum / GER <BR> Jul. 06 - Leipzig / With Full Force / GER</p>
+
+Автор: Yermola
+
+### 20.12.2001 reviews Американский power metal от германской группы
+
+<p>Американский power metal от германской группы. Четвертый альбом группы, как и предыдущие отличается невероятно высоким качеством и непоколебимой мощностью звучания с внушительной энергичностью. Но, новый альбом более самодостаточный и интересный, чем предыдущие. Команде удалось достичь звука уничтожающего все вокруг с интересными ритмами и мелодиями. Сочный и мощный вокал подкрепляемый многоголосыми хорами в припевах. Все песни имеют совершенную структуру, однако ни одна из них не остается прочно в мозгах слушателя. При прослушивании этого альбома возникают чувства ярости и гнева. Иногда все это напоминает Jag Panzer и Iced Earth, а некоторыми моментами Savatage и Nevermore. Почти трэшовые риффы, пауэр энергетика, быстродействующие ударные и тяжелые гитары создают красивый музыкальный рисунок. Реально крепкий и хороший альбом, показывающий, что десять лет работы для группы не прошли даром. У них еще есть потенциал для дальнейшего развития. В Европе эта группа является лучшей среди групп исполняющих подобную музыку. Но, до американских монстров они еще не совсем дотянули. Альбом хорош, именно хорош, не более...</p>
+
+Автор: Dimas
+
+### 29.04.2003 news Новости от BRAINSTORM
+
+<p>Полностью готов новый альбом группы BRAINSTORM под названием "Soul Temptation“. Выход его запланирован на 30 июня 2003 года на Metal Blade Records. Часть тиража выйдет в виде двойного диджипака с бонус-трэком и бесплатным DVD с записью выступления группы на Summer Breeze Festival 2002. В альбом войдут следующие вещи:</p>
+<p> 1. Highs Without Lows <BR> 2. Doorway To Survive <BR> 3. The Leading <BR> 4. Nunca Nos Rendimos <BR> 5. Fading <BR> Trinity Of Lust: <BR> · 6. Shiva's Tears <BR> · 7. Fornever <BR> · 8. Soul Temptation <BR> 9. Dying Outside <BR> 10. To The Head <BR> 11. Rising</p>
+
+Автор: Dimas
+
+### 15.05.2003 news BRAINSTORM news...
+
+<p>BRAINSTORM have finalized the track listing for their upcoming Power Metal crusher "SOUL TEMPTATION"!<BR><BR> 1. Highs Without Lows<BR> 2. Doorway to Survive<BR> 3. The Leading<BR> 4. Nunca Nos Rendimos<BR> 5. Fading<BR> Trinity of Lust<BR> 6. Shiva's Tears<BR> 7. Fornever<BR> 8. Soul Temptation<BR> 9. Dying Outside<BR> 10. To the Head<BR> 11. Rising<BR><BR> The limited edition (Double Digi Pack) of "Soul Temptation" will also feature the bonus track Amarillo and a free LIVE DVD, recorded live at the SUMMER BREEZE FESTIVAL 2002 (five cameras, Dolby surround 5.1). <BR><BR> Here's the final track list of the DVD:<BR> 1. Metus Mortis (Intro) (from "Metus Mortis", 2001)<BR> 2. Blind Suffering (from "Metus Mortis", 2001)<BR> 3. Crush Depth (from "Ambiguity", 2000)<BR> 4. Shadowland (from "Metus Mortis", 2001)<BR> 5. Voices (from "Unholy", 1998)<BR> 6. Checkmate In Red (from "Metus Mortis", 2001)<BR> 7. Liar's Edge (from "Hungry", 1997)<BR> 8. Hollow Hideaway (from "Metus Mortis", 2001)<BR> 9. Under Lights (from "Metus Mortis", 2001)<BR><BR> "SOUL TEMPTATION" will be released on July 15th!!!</p>
+
+Автор: Yermola
+
+### 12.07.2003 news BRAINSTORM попали в немецкие чарты!
+
+<p>Немецкие пауэрщики Brainstorm совсем недавно попали в немецкие чарты "German Media Control Charts" на 73 место с их новым альбомом 'Soul Temptation'.</p>
+
+Автор: Darkfall
+
+### 25.08.2003 news Приобретение у PRIMAL FEAR ...
+
+<p>Немецкие пауэрщики PRIMAL FEAR пригласили барабанщика Рэнди Блэк из канадской формации ANNIHILATOR взамен ушедшего Klaus Sperling. Уже в сентябре группа в обновленном составе планирует засесть в House Of Music studios для записи нового альбома. Соответствующий материал полностью готов. Дата выхода - 23 февраля 2004. Сразу после выхода последует мировой тур в поддержку совместно с BRAINSTORM...</p>
+
+Автор: Yermola
+
+### 28.08.2003 reviews Хорошие музыканты и плохие композиторы
+
+<p>Уже на прошлом альбоме стало ясно, что BRAINSTORM движутся в неправильном направлении. Пусть неоригинальный, но вполне рентабельный мелодичный power-metal немецкого образца сменился среднетемповыми композициями с явным креном в классический heavy-metal. На новом альбоме музыка коллектива настолько унифицировалась, что невозможно даже выделить лучшие композиции. Тяжёлые к восприятию мелодии и мдленный темп навевают скуку. Я возлагал большие надежды на трилогию с восточными мотивами (треки 6-8), но и здесь BRAINSTORM не смогли ничего выжать. Многообещающие интро сменяются всё теми же аккордными мелодиями, никак не связанными с азиатской тематикой, заданной в названии композиций. Второй провальный альбом подряд, скорее всего, послужит причиной окончания сотрудничества группы с Metal Blade. По делу...</p>
+
+Автор: Vit Belov
+
+### 21.02.2004 news Primal Fear &#x2F; Brainstorm &#x2F; Rob Rock&#39;s Rage of Creation
+
+<P><IMG height=418 alt="" hspace=0 src="/images/shows/2003.10/5033.jpg" width=300 align="right" border=0>March 3 - Germany (Hamburg) - Markthalle<BR><BR>March 4 - Holland - (Hardenberg) - Podium</P>
+<P><BR>March 5 - England - (London) - Scala<BR><BR>March 6 - England (Wolverhampton) - Wulfrun Hall<BR><BR>March 7 - OFF<BR><BR>March 8 - Germany (Bochum) - Zeche<BR><BR>March 9 - France (Paris) - La Locomotive<BR><BR>March 10 - OFF<BR><BR>March 11 - Spain (Madrid) - Aqualung<BR><BR>March 12 - Spain (Murcia) - Gamma<BR><BR>March 13 - Spain (Barcelona) - Razzmatazz II<BR><BR>March 14 - Spain (Bergara) - Sala Jam<BR><BR>March 15 - OFF<BR><BR>March 16 - Switzerland (Pratteln) - Z 7<BR><BR>March 17 - Italy (Milan) - Transilvania<BR><BR>March 18 - OFF<BR><BR>March 19 - Hungary (Budapest) - Pet&ouml;fi Hall<BR><BR>March 20 - Slovakia (Ljublijana) - Prinskov<BR><BR>March 21 - Germany (N&uuml;rnberg) - Hirsch<BR><BR>March 22 - OFF<BR><BR>March 23 - Germany (Frankfurt) - Batschkapp<BR><BR>March 24 - Germany (Stuttgart) - LKA<BR><BR>March 25 - France (Strasborg) - La Laiterie<BR><BR>March 26 - Belgium (Antwerpen) - Hof Ter Lo<BR><BR>March 27 - Germany (Kaufbeuren) - Zeppelinhalle<BR></P>
+Автор: Vit Belov
+
+### 29.10.2004 news BRAINSTORM начинают запись
+
+<P>Немецкие металлисты <STRONG>BRAINSTORM</STRONG> вошли в студию вместе с продюсером<STRONG> Achim Kohler</STRONG> для записи новой пластинки <STRONG>'Liquid Monster'</STRONG>, которая выйдет 28 февраля 2005 года на <STRONG>Metal Blade</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.10.2004 news BRAINSTORM enter studio
+
+<P><STRONG>BRAINSTORM</STRONG> are about to enter <STRONG>House Of Music Studios</STRONG> together with long-time producer <STRONG>Achim Kцhler</STRONG> on November 1st, to start the recording sessions for their upcoming album entitled "<STRONG>Liquid Monster</STRONG>", which will be released February 28th, 2005 through <STRONG>Metal Blade Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 08.12.2004 news Альбом BRAINSTORM перенесён
+
+<P>Новая пластинка <STRONG>BRAINSTORM</STRONG> увидит свет 4 апреля, а не 28 февраля, как сообщалось ранее. Группа решила поработать над качеством реализации дополнительное время. Фанаты группы смогут приобрести сингл с этого альбома <STRONG>'All Those Words'</STRONG> 7 марта.</P>
+Автор: Vit Belov
+
+### 26.01.2005 news BRAINSTORM завершили работу над новым альбомом
+
+<P>Германские пауэрщики&nbsp;<B>BRAINSTORM</B>&nbsp;закончили микширование своего долгожданного полнометражного альбома&nbsp;<B>"Liquid Monster"</B>&nbsp;в местной <B>House Of Music Studios</B> с продюсером <B>Achim Kohler</B>. Релиз ожидается 4 апреля на <B>Metal Blade Records</B>. В альбом вошли следующие вещи:<BR>1. <B>Worlds Are Comin' Through</B><BR>2. <B>Inside the Monster</B><BR>3. <B>All Those Words</B><BR>4. <B>Lifeline</B><BR>5. <B>Invisible Enemy</B><BR>6. <B>Heavenly</B><BR>7. <B>Painside</B><BR>8. <B>Despair to Drown</B><BR>9. <B>Mask of Life</B><BR>10. <B>Even Higher</B><BR>11. <B>Burns My Soul </B><BR><BR>Кроме того, 7 апреля на Metal Blade планируется выход сингла к альбому <B>"All Those Words"</B>, в который войдут следующие вещи:<BR>1. <B>All Those Words</B> (album version)<BR>2. <B>Before the Dawn</B> (exclusive non-album track)<BR>3. <B>Shades and Shadows</B> (exclusive non-album track)<BR>4. <B>(E.o.C.) Cross God's Face</B> (previously unreleased)<BR>5. <B>All Those Words</B> (Single Edit) (non-album version)<BR>Bonus: <B>"Doorway To Survive"</B> (video clip)</P>
+Автор: Dimas
+
+### 08.07.2005 reviews Мозговой штурм для немецкого монстра
+
+<P>Новый (уже шестой по счету) альбом вроде бы даже легендарной германской формации – как-никак, пятнадцать лет на сцене.… Скажу сразу – я ждал другого и очень надеялся, что BRAINSTORM вернется к тому, с чего начинал, и не повторит опыта “Metus Mortis” 2001 года (следующий за ним “Soul Temptation” я не слышал)… <BR>Первая же композиция “Worlds Are Comin’ Through” заставила задуматься – а стоит ли слушать дальше? Такая тягомотина… Дальше – не лучше: “Inside The Monster” похожа на буксующий в тупике локомотив, который даром что на ходу – ехать-то не получается. Движок, работающий вхолостую. Припев - да, внушает, – но что же, слушать из-за одного припева?.. Думаю, если собрать все припевы с этого альбома и соединить в единый трэк – получилась бы неплохая гимноподобная вещица.… Все эмоции от прослушивания – тупое качание головой в такт музыке. Музыка группы стала похожа на раскорячившуюся корову на четырех стульях – вроде и тяжело сыграть хочется (даешь трэшу!), вроде и в прогрессивность тянет (ведь сейчас так модно!), вроде и эпичностью хочется обзавестись (а чем мы хуже?), и про power надо не забыть (это ж наши корни!). Но, на мой взгляд, друг с другом все это никак не коррелирует – ну, уж точно не в этом случае.<BR>Вот перечитываю сейчас, что написал… понимаю, что зло и обидно написал-то, - эмоции возобладали, - что есть ведь хорошие песни (“Lifeline”, например, или “Despair To Drown”), и ритм-секция замечательная, и риффы попадаются – отличные, и вокалист заслуженный – Энди Франк (IVANHOE, SYMPHORCE), и клавишник гостевой – сам Ферди Доэрнберг... А все равно – почему-то хочется два балла влепить и отправить домой за родителями. И пусть фанаты, считающие «Жидкого Монстра» шедевром, кидаются в меня лаптями и тряпками. Пусть.<BR>Не мое.</P>
+<P>Диск предоставлен <A href="http://www.fono.ru/">ФОНО</A></P>
+Автор: Dr. Grandma
+
+### 21.11.2007 news Новый альбом BRAINSTORM
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2007.11/11992.jpg" width=400 align=right border=5>28 января на<STRONG> Metal Blade</STRONG> выходит новый альбом <STRONG>BRAINSTORM</STRONG> <STRONG>"Downburst".</STRONG> Трэк-лист:</P>
+<P>01. <B>Falling Spiral Down</B><BR>02. <B>Fire Walk With Me</B> <BR>03. <B>Stained With Sin</B> <BR>04. <B>Redemption In Your Eyes</B> <BR>05. <B>End In Sorrow</B> <BR>06. <B>How Do You Feel</B> <BR>07. <B>Protect Me From Myself</B> <BR>08. <B>Surrounding Walls</B> <BR>09. <B>Frozen</B> <BR>10. <B>All Alone</B> <BR>------------------<BR>Bonus tracks (limited version):<BR>11. <B>Crawling In Chains</B><BR>12. <B>Hold Tight</B></P>
+Автор: Vit Belov
+
+### 23.12.2007 news Новые песни BRAINSTORM
+
+<P>Две новые песни <STRONG>BRAINSTORM</STRONG> с выходящего альбома "<STRONG>Downburst</STRONG>" можно послушать на официальной<STRONG> MySpace</STRONG> страничке <STRONG>Metal Blade</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/mbpreview">http://www.myspace.com/mbpreview</A></P>
+Автор: Vit Belov
+
+### 13.04.2008 articles TOP 50 продаж в магазине Metal&amp;Progressive на Горбушке 
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В эфире "голосование деньгами" за февраль-март. <FONT color=#ddd9d0>Голосуйте рублём за свои любимые альбомы на точке <STRONG>'Metal&Progressive'</STRONG> на Горбушке.</FONT></FONT></P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=687 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 51pt; mso-width-source: userset; mso-width-alt: 2486" width=68>
+<COL style="WIDTH: 205pt; mso-width-source: userset; mso-width-alt: 9984" width=273>
+<COL style="WIDTH: 212pt; mso-width-source: userset; mso-width-alt: 10313" width=282>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 51pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" width=68 height=17><FONT face="Times New Roman" size=2><STRONG>1(2)</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 205pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=273><FONT face="Times New Roman" size=2><STRONG>CREMATORY</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 212pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=282><FONT face="Times New Roman" size=2><STRONG>PRAY</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>2 (NEW)</STRONG></FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>RAGE</STRONG></FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>CARVED IN STONE</STRONG></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>3 (3)</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:str="AYERON "><FONT size=2><STRONG><FONT face="Times New Roman">AYREON<SPAN style="mso-spacerun: yes">&nbsp;</SPAN></FONT></STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>_1011001 (2 CD)</STRONG></FONT></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 15.75pt" height=21>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 15.75pt; BACKGROUND-COLOR: black" height=21><FONT face="Times New Roman" size=2><STRONG>4 (1)</STRONG></FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>AVANTASIA</STRONG></FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>THE SCARECROW</STRONG></FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>5 (NEW)</STRONG></FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>DRACONIAN</STRONG></FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>TURNING SEASON WITHIN</STRONG></FONT></TD>
+<TD class=xl36 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>6 (5)</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>AXXIS</STRONG></FONT></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>DOOM OF DESTINY</STRONG></FONT></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2><STRONG>2007</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>7 (7)</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>NORTHER</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:str="N  "><FONT size=2><STRONG><FONT face="Times New Roman">N<SPAN style="mso-spacerun: yes">&nbsp;&nbsp;</SPAN></FONT></STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>8 (28)</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>BRAINSTORM</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>DOWNBURST</STRONG></FONT></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>9 (16)</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>MANEGARM</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>VARGSTENEN</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2><STRONG>2008</STRONG></FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2><STRONG>10 (10)</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>SABATON</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2><STRONG>METALIZER</STRONG></FONT></TD>
+<TD class=xl24 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><STRONG><FONT face="Times New Roman" size=2>2008</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>11 (17)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>BASSINVADERS(HELLOWEEN,SODOM,RAGE,DISTRACTION)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>HELLBASSBEATERS</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>12 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EVIDENCE ONE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE SKY IS THE LIMIT</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>13 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ANTIMATTER<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>(ex-ANATHEMA)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LEAVING EDEN</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>14 (14)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ELVENKING</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE SCYCHTE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>15 (15)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LION'S SHARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EMOTIONAL COMA</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>16 (26)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>HEAVEN SHALL BURN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ICONCLAST</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>17 (25)</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MELECHESH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EMISSARIES</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2006</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>18 (33)</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>IMPALED NAZARENE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MANIFEST</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>19 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ELUVEITIE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>SLANIA +1 bonus track</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>20 (22)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LANA LANE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>RED PLANET BOULEVARD</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>21 (30)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>SAINT DEAMON(EX-DIONYSUS)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>IN SHADOWS LOST FROM THE BRAVE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>22 (4)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ANDRE MATOS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TIME YO BE FREE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>23 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DARK FORTRESS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EIDOLON</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>24 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MYSTIC PROPHECY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>SATANIC CURSES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>25 (42)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>Алиса</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ПУЛЬС ХРАНИТЕЛЯ ДВЕРЕЙ ЛАБИРИНТА</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>26 (48)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>INSANIA</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>AGONY - GIFT OF LIFE</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>27 (NEW)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>STILLIFE</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DESTINY</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>28 (11)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TARJA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MY WINTER STORM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>29 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TANGENT</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NOT AS GOOD AS THE BOOK</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>30 (27)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ATARGATIS (feat. Guests from Crematory, Empyrium)</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NOVA +2 bonus tracks</FONT></TD>
+<TD class=xl39 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>31 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EDEN'S CURSE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>EDEN'S CURSE</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>32 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MAGICA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>HEREAFTER</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>33 (NEW)</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>STIGMATIC CHORUS</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>GEDONIST</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>34 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ALESTORM</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>CAPTAIN MORGAN'S REVENGE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>35 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MEKONG DELTA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LURKING FEAR</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>36 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ATROCITY</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>WERK 80 II</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>37 (NEW)</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>MINISTRY</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE LAST SUCKER</FONT></TD>
+<TD class=xl41 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" width=64 x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>38 (41)</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ARCH ENEMY</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>RISE OF THE TYRANT</FONT></TD>
+<TD class=xl40 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>39 (NEW)</FONT></TD>
+<TD class=xl42 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>VISION BLEAK, THE (ex-Empyrium)</FONT></TD>
+<TD class=xl42 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE WOLVES GO HUNT THEIR PREY</FONT></TD>
+<TD class=xl42 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>40 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DIE APOKALYPTISCHEN REITER</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TOBSUCHT (DVD)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>41 (44)</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DIARY OF DREAMS</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NEKROLOG 43</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 15.75pt" height=21>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 15.75pt; BACKGROUND-COLOR: black" height=21><FONT face="Times New Roman" size=2>42 (20)</FONT></TD>
+<TD class=xl44 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NIGHTWISH</FONT></TD>
+<TD class=xl44 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>DARK PASSION PLAY</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>43 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>KHYMERA(EX-PINK CREAM 69,GENIUS)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE GREATEST WONDER</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>44 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LEVERAGE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>BLIND FIRE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>45 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>LEVERAGE</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>TIDES</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>46 (NEW)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ATROCITY</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>WERK 80 +5 bonus tracks</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>47 (NEW)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>NAZARETH</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THE NEWS</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>48 (37)</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>AMORPHIS</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>SILENT WATERS</FONT></TD>
+<TD class=xl43 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: black" height=17><FONT face="Times New Roman" size=2>49 (NEW)</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>THRUDVANGAR</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>ZWISCHEN ASGARD</FONT></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2007</FONT></TD></TR>
+<TR style="HEIGHT: 15pt" height=20>
+<TD class=xl37 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 15pt; BACKGROUND-COLOR: black" height=20><FONT face="Times New Roman" size=2>50 (29)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>20 YEARS OF NUCLEAR BLAST</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black"><FONT face="Times New Roman" size=2>various (2 DVD)</FONT></TD>
+<TD class=xl38 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: black" x:num><FONT face="Times New Roman" size=2>2008</FONT></TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 01.07.2008 reviews Ещё один ответ тем, кто считает, что heavy-power-metal умер
+
+<P>Коллектив BRAINSTORM выпустил альбом “Downburst” в начале этого года и, как и обещал лейбл Фоно, этот диск надолго застрял в моём проигрывателе. Я слушал этот классный альбом даже тогда, когда надо было слушать совершенно другие работы, которые, к сожалению, не вызвали у меня подобного энтузиазма.</P>
+<P>Тяжёлый heavy-power-metal материал от этого коллектива относится к такому жанру, который слушают иногда даже любители black-metal. Прямолинейный, очень качественный, мелодичный, с правильным вокалом, великолепной гитарной работой… Здесь есть всё, и черты немецкого направления этого жанра, сразу на ум приходят великие PRIMAL FEAR, и черты американских монстров ICED EARTH, например, вот только BRAINSTORM избавлены от сложной «хаотичности», свойственной многим заокеанским группам. Они взяли от них только «тягучесть» звучания на некоторых вещах, что помогает им пробрать слушателя до самых внутренностей своей мелодией. А с мелодиями, как я уже заметил выше, здесь также полный порядок. Альбом доверху наполнен хитами, которые запоминаются с первого прослушивания и ещё долго не отпускают. Что ещё добавить? Надо брать…</P>
+<P>BRAINSTORM подтверждают свой высокий статус по обе стороны океана. Для меня же стало сюрпризом то, что на “Downburst” я встретил редкое сейчас сочетание 100-процентного качества и грамотного мощного и мелодичного наполнения. Слушать всем!</P>
+Автор: Vit Belov
+
+### 01.07.2008 articles BRAINSTORM: &quot;Лучший альбом после 19 лет существования?&quot;
+
+<P>Немецкая группа BRAINSTORM была образована в 1989 году гитаристами Thorsten Ihlenfeld и Milan Loncaric, а так же барабанщиком Dieter Bernert. Интересно, что три отца-основателя до сих пор в составе, завидное постоянство. Уже в 1990 году группа выпускает своё первое демо “Hand Of Doom”. Нельзя сказать, что эта лента прогремела в underground, группа заключила свой первый профессиональный контракт лишь в 1997 году, в том же году увидел свет дебютный self-produced альбом “Hungry”. Только после этого к группе пришла некоторая известность, продюсерами следующей работы немцев “Unholy” стали Dirk Schlachter (GAMMA RAY) и Charlie Bauerfeind. После выхода той пластинки BRAINSTORM стали довольно известны, совершили турне по Европе вместе с ICED EARTH и, самое главное, подписали контракт с Metal Blade Records. В это же время в группе произошло ещё одно важнейшее событие, новым певцом стал Andy B. Franck. До этого певец работал в локально известной группе IVANHOE, а так же выпустил уже один альбом на Noise Records со своей собственной группой SYMPHORCE. Запоминающийся и сильный голос Andy теперь уже прочно ассоциируется с BRAINSTORM, а все его предыдущие проекты мало уже кто вспоминает. Даже существующий и функционирующий до сих пор SYMPHORCE упоминают чаще всего, как вторую группу вокалиста BRAINSTORM. Что говорить о SYMPHORCE, если Andy вспоминают и при упоминании группы IVANHOE, из которой он ушёл в конце 90-х, и которая продолжает выпускать альбомы, в частности, последняя на сегодня работа “Walk In Minefields” вышла на достаточно крутом металл-лэйбле Massacre, у нас, правда, альбомы IVANHOE не издавались, зато последние работы SYMPHORCE можно приобрести на Фоно. Упомянем и первого вокалиста BRAINSTORM Marcus Jorgens, благо достать первые два альбома группы сейчас не проблема, они вышли переизданием на Фоно/Metal Blade. Он продолжает свою карьеру музыканта в группе PUMP, играющей в жанре melodic hard’n’heavy, один альбом этих немцев вышел в России на Mystic Empire по лицензии AOR Heaven. Более того, причудлива судьба музыкантов из одного региона, Marcus вместе с гитаристом SYMPHORCE (!!!) Cedric Dupont организовал группу DOWNSPIRIT, в которой они собираются мешать металл и блюз. Альбомы DOWNSPIRIT ждут нас впереди, а пока вернёмся к теме нашей заметки – BRAINSTORM, чей новый альбом так меня порадовал. Но я прекрасно помню, как меня порадовал и альбом 1999 года “Ambiguity”, записанный группой с Sascha Paeth и тем же музыкантом GAMMA RAY Dirk Schlachter. Группа играла тогда немного другую музыку, чем сейчас, но очень мелодичный и напористый немецкий power-metal радовал слух. На следующих альбомах BRAINSTORM начали дрейфовать в сторону более жёсткого металла, и только лишь сейчас музыканты пришли к тому, что сумели скомбинировать эту жёсткость с мелодизмом. В любом случае, и последующие альбомы немцев достойны всяческого внимания. В 2001 году вышел “Metus Mortis”, в 2003 – “Soul Temptation” и в 2005 – “Liquid Monster”. С этими альбомами группа попадала в различные чарты по всему миру, завоёвывала звание «Альбома Месяца», ездила в масштабные туры по Европе, стала частым гостем на фестивалях и.т.д. В общем, вошла в «высшую лигу». Как раз в это время был проведён ремастеринг первых двух альбомов, и они вышли на Metal Blade, а так же был выпущен двойной DVD "Honey From The B's (Beasting around the Bush)" с кучей разнообразного концертного материала, а так же с собранием из трёх видеоклипов группы. Интересно, что основной концерт этого релиза был отснят в 2005 году в Будапеште, а сингл к новому альбому “Fire Walk With Me” занял в Венгрии первое место!!! Кстати, песня действительно замечательная: быстрая, брутальная и, в то же время, с мелодикой глэма 80-х в припеве. Выходит, что самой большой популярностью BRAINSTORM пользуются почему-то в Венгрии.</P>
+<P>Нашу рецензию на новый альбом “Downburst” вы можете прочесть где-то рядом на этих страничках, а вот, что рассказал об этой работе вокалист BRAINSTORM Andy B. Franck: “Вместе с продюсерами Sascha Paeth и Miro мы создали самый разнообразный и интенсивный альбом в нашей истории. “Downburst” демонстрирует другую нашу сторону, но в то же время прослушивание этой пластинки, как встреча со старым знакомым. Все песни настолько мощные, и имеют такую атмосферу, какую я не ожидал получить никогда. Песни больше и лучше, чем когда-либо. Мы раздвинули наши рамки так широко, как никогда даже не хотели. “Downburst” – самый наш прекрасный альбом на сегодняшний день». Понятно, что подобные вещи говорят многие музыканты, и почти всегда это не правда. Но, во-первых, мы, слушатели, практически всегда попадаемся на эти увещевания, а, во-вторых, мне кажется, что эти слова правда. “Downburst” действительно цепляет и не отпускает от себя долго. Этот диск вошёл в чарты, правда, почему—то не показал результатов в США, но на Родине музыкантов в Германии, Швейцарии и Венгрии пластинка показала хороший уровень продаж.</P>
+<P>Ну и последние новости, в группе новый басист Antonio Ieva. Он не записывал с группой “Downburst”, но уже проехался вместе с коллективом в туре по Европе в компании POWERWOLF и PAGAN’S MIND.</P>
+<P>Продолжение, как всегда, последует…</P>
+Автор: Vit Belov
+
+### 10.07.2009 news BRAINSTORM на AFM
+
+<P><STRONG>BRAINSTORM</STRONG> покинули <STRONG>Metal Blade</STRONG> и подписались на<STRONG> AFM</STRONG>.</P>
+Автор: Vit Belov
+
+### 11.08.2009 news BRAINSTORM записали альбом
+
+<P><STRONG>BRAINSTORM</STRONG> закончили запись новой пластинки, которая сейчас сводится в <STRONG>Gate Studio</STRONG>. Новый альбом, который получил название <STRONG>"Memorial Roots", </STRONG>выйдет в октябре на новом лэйбле группы <STRONG>AFM</STRONG>.</P>
+Автор: Vit Belov
+
+### 22.08.2009 news Новый альбом BRAINSTORM
+
+<P><IMG height=396 alt="" hspace=0 src="/images/news_rus/2009.08/14908.jpg" width=400 align=right border=5>16 октября на<STRONG> AFM</STRONG> выходит новый альбом <STRONG>BRAINSTORM</STRONG> <STRONG>"Memorial Roots". </STRONG>Трэк-лист:</P>
+<P>01. <B>Shiver</B><BR>02. <B>Nailed Down Dreams</B><BR>03. <B>Greed Of Gain</B><BR>04. <B>Cross The Line</B><BR>05. <B>Forsake What I Believe</B><BR>06. <B>Honesty</B><BR>07. <B>The Final Stages Of Decay</B><BR>08. <B>Seems To Be Perfect</B><BR>09. <B>Victim To A World</B><BR>10. <B>Too Late To Deny</B><BR>11. <B>The Conjunction Of 7 Planets</B><BR>12. <B>Nothing</B><BR>13. <B>Would You...</B><BR>14. <B>Ahimsa</B><BR>15. <B>Blood Still Stains</B></P>
+Автор: Vit Belov
+
+### 06.10.2009 news BRAINSTORM выпустят сборник
+
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2009.10/15192.jpg" width=300 align=right border=5>9 ноября на <STRONG>Metal Blade</STRONG> выйдет сборник <STRONG>BRAINSTORM</STRONG> <STRONG>"Just Highs No Lows (12 Years Of Persistence)". </STRONG>Пластинка будет содержать все хиты немцев, а так же редкие вещи. Трэк-лист:</P>
+<P>Disc 1:<BR><B>"Downburst"</B> (2008):<BR>01. <B>Falling Spiral Down</B><BR>02. <B>Fire Walk With Me</B><BR>03. <B>End In Sorrow</B><BR>04. <B>How Do You Feel</B><BR><B>"Liquid Monster"</B> (2005): <BR>05. <B>Worlds Are Coming Through</B><BR>06. <B>All Those Words</B><BR>07. <B>Inside The Monster</B><BR>08. <B>Painside</B><BR>09. <B>Heavenly</B><BR><B>"Soul Temptation"</B> (2003):<BR>10. <B>Highs Without Lows</B><BR>11. <B>The Leading</B><BR>12. <B>Doorway To Survive</B><BR>"Trinity of Lust" trilogy :<BR>13. <B>Shiva's Tears</B><BR>14. <B>Fornever</B><BR>15. <B>Soul Temptation</B><BR><BR>Disc 2:<BR><B>"Metus Mortis"</B> (2001):<BR>01. <B>Blind Suffering</B><BR>02. <B>Hollow Hideaway</B><BR>03. <B>Shadowland</B><BR>04. <B>Under Lights</B><BR><B>"Ambiguity"</B> (2000):<BR>05. <B>Tear Down The Walls</B><BR>06. <B>Maharaja Palace</B><BR>07. <B>Beyond My Destiny</B><BR>08. <B>Demonsion</B><BR>Bonus Stuff:<BR>09. <B>Face Down</B> (from "Metus" digipack)<BR>10. <B>Breathe</B> ("Liquid Monster" Japanese bonus)<BR>11. <B>Drowning</B> ("Downburst" Japanese bonus)<BR>12. <B>Crawling In Chains</B> ("Downburst" Japanese limited edition)<BR>13. <B>Before The Dawn</B> (JUDAS PRIEST cover / from "All Those Words" single)<BR>Live Stuff:<BR>From <B>"Unholy"</B> (1998):<BR>14. <B>Voices</B> (Budapest DVD)<BR>From <B>"Hungry"</B> (1997):<BR>15. <B>Liar's Edge</B> (Summer Breeze DVD)</P>
+Автор: Vit Belov
+
+### 03.12.2009 reviews У BRAINSTORM свои соображения
+
+<P>У немцев BRAINSTORM за год прошедший между двумя последними альбомами произошло одно очень важное событие. “Memorial Roots” ознаменовал начало сотрудничества с лэйблом AFM и прекращение сотрудничества с лэйблом Metal Blade, на котором вышли шесть последних пластинок группы, принесшие BRAINSTORM мировую известность.</P>
+<P>Обычно подобные переходы сопряжены с «переломными» альбомами в дискографиях групп. Коллективы хотят начать сотрудничество с новым лэйблом на мажорной ноте и готовят ту музыку, которая станет их лицом на ближайшие годы. Честно говоря, меня очень впечатлил предыдущий альбом BRAINSTORM “Downburst”. Возможно потому, что мне всегда нравился тяжёлый и прямолинейный power-metal. Музыка немцев не всегда была такой, и это они доказывают на “Memorial Roots”. Здесь мы имеем среднетемповые, а иногда и балладные, композиции, реализованные в традициях power-metal 90-х годов. Здесь нет ни забоя, ни, к сожалению, отличных мелодий, альбом ровный и несколько скучный. Можно было бы заклеймить BRAINSTORM, но этого не позволяют мои соображения, изложенные выше. Видимо, сами музыканты и AFM видят так своё творчество. И это не самый плохой вариант, скажу я вам. Поклонники мелодичного power-metal останутся довольны.</P>
+<P>К сожалению, BRAINSTORM не пошли по пути утяжеления саунда и сконцентрировались на каких-то своих соображениях. Но, даже не смотря на всю толерантность, я не могу назвать обозреваемый альбом очень хорошим. Ему явно не хватает ярких мелодических решений, без которых в избранном группой стиле делать нечего.</P>
+Автор: Vit Belov
+
+### 02.03.2010 news Andy будет работать с Manni
+
+<P>Вокалист <STRONG>BRAINSTORM Andy B. Franck</STRONG> сообщил о своих ближайших планах. Только что закончена работа над новым альбомом <STRONG>SYMPHORCE</STRONG>, но в планах уже следующий проект. Andy будет работать с известным гитаристом <STRONG>Manni Schmidt</STRONG> (ex-<STRONG>GRAVE DIGGER</STRONG>/ex-<STRONG>RAGE</STRONG>). Дуэт уже сочиняет музыку для пока не названной группы.</P>
+Автор: Vit Belov
+
+### 04.07.2011 news Отрывок новой песни BRAINSTORM
+
+<P>Отрывок новой песни<STRONG> BRAINSTORM</STRONG> <STRONG>"Below The Line" </STRONG>можно послушать ниже. Песня войдёт на новейший альбом коллектива <STRONG>"On The Spur Of The Moment"</STRONG>, который выйдет 30 сентября на <STRONG>AFM</STRONG>. Пластинка была записана в <STRONG>Studio 22</STRONG> с продюсером <STRONG>Axel Heckert</STRONG>.</P>
+<P>Предыдущая работа <STRONG>BRAINSTORM</STRONG> <STRONG>"Memorial Roots" </STRONG>вышла в 2009 году на <STRONG>Союзе</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=81 width="70%"><PARAM NAME="movie" VALUE="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F18204720&"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed allowscriptaccess="always" height="81" src="http://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F18204720&" type="application/x-shockwave-flash" width="100%"></embed></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 28.07.2011 news Новый альбом BRAINSTORM
+
+<P><IMG height=471 alt="" hspace=0 src="/images/news_rus/2011.07/20339.jpg" width=475 align=right border=0>30 сентября на<STRONG> AFM Records</STRONG> выходит новый альбом немцев <STRONG>BRAINSTORM</STRONG> <STRONG>"On The Spur Of The Moment". </STRONG>Пластинка была записана в <STRONG>Studio 22 </STRONG>с продюсером <STRONG>Axel Heckert</STRONG>. Трек-лист:</P>
+<P>01. <B>Below The Line</B><BR>02. <B>In The Blink Of An Eye</B><BR>03. <B>Temple Of Stone</B><BR>04. <B>In These Walls</B><BR>05. <B>Still Insane</B><BR>06. <B>Dark Life</B><BR>07. <B>No Saint - No Sinner</B><BR>08. <B>Where Your Actions Lead You To Live</B><BR>09. <B>A Life On Hold</B><BR>10. <B>My Own Hell</B></P>
+Автор: Vit Belov
+
+### 13.09.2011 news Новое видео BRAINSTORM
+
+<P>Новый видео-клип<STRONG> BRAINSTORM</STRONG> на песню <STRONG>"In These Walls" </STRONG>можно посмотреть ниже. Трек взят с нового альбома коллектива <STRONG>"On The Spur Of The Moment"</STRONG>, который выйдет 30 сентября на <STRONG>AFM</STRONG>.</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/RgjcYEc2qWs" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 30.11.2011 reviews Доля слабых альбомов BRAINSTORM увеличивается в арифметической прогрессии
+
+<P>Что-то странное происходит с немецкой группой BRAINSTORM. В новой истории коллектива, которая началась с приходом вокалиста Andy B. Franck, сначала два хороших альбома чередовались с одним слабым, затем один хороший выходил после одного слабого. Новейшая работа музыкантов “On The Spur Of The Moment” – это слабый альбом после слабого. </P>
+<P>Последним на сегодня хорошим альбомом BRAINSTORM является пластинка 2008-го года выпуска “Downburst”. Рецепт успеха этой работы достаточно прост – быстрые прямолинейные хиты с запоминающимся припевом. И даже если припев не очень удавался группе, она оставляла у себя сердца поклонников стиля качеством записи и непреклонным ритмом, свойственным лучшим альбомам в power-heavy-metal. К сожалению, уже на прошлом альбоме “Memorial Roots” группа отошла от этого рецепта. Песни стали более выпуклыми, ритм сбивчивым, а запоминающиеся мелодии улетучились совсем. К сожалению, обозреваемая пластинка является продолжением своей предшественницы. Ни один трек с этого альбома не заслуживает звания хита, а от некоторых решений BRAINSTORM откровенно клонит в сон. </P>
+<P>Совсем недавно прекратила своё существование другая группа вокалиста Andy B. Franck SYMPHORCE. Похоже, BRAINSTORM могут проследовать по тому же пути. Композиторам этого коллектива не удаётся зажечься уже второй альбом подряд. Третьего провала им могут и не простить.</P>
+Автор: Vit Belov
+
+### 26.12.2015 news BRAINSTORM выпускают альбом в январе
+
+<P>Новый альбом немцев<STRONG> BRAINSTORM "Scary Creatures"</STRONG> выйдет 15 января на<STRONG> AFM</STRONG> и на <STRONG>Фоно</STRONG> в России. Сведение и мастеринг сделал <STRONG>Achim Koehler</STRONG>. Трек-лист:</P>
+<P>"The World To See"<BR>"How Much Can You Take"<BR>"We Are..."<BR>"Where Angels Dream"<BR>"Scary Creatures"<BR>"Twisted Ways"<BR>"Caressed By The Blackness"<BR>"Scars In Your Eyes"<BR>"Take Me To The Never"<BR>"Sky Among The Clouds"<BR>&nbsp;<BR>Bonus track on ltd. Digipak:<BR>"Lift Your Eyes To See"<BR>&nbsp;<BR>+ Bonus Live DVD<BR>(incl. "The World To See" video clip and live concert Essen 2014 (performing the entire Firesoul album plus many more songs)</P>
+<P>Лирик видео на вещь "We Are...":</P>
+<P>
+<CENTER><IFRAME height=400 src="https://www.youtube.com/embed/TtntAKcJtvY" frameBorder=0 width=600 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.01.2016 reviews Тяжело, мощно, но скучно
+
+<P>Январь богат на релизы в жанре heavy power metal. Немцы BRAINSTORM поддержали почин RHAPSODY OF FIRE и PRIMAL FEAR, их релиз был поставлен лэйблом AFM на первый месяц 2016 года. Возможно, мировые металические лэйблы решили сделать этот мёртвый в смысле продаж период временем power metal? Вероятно, статус этого стиля позволяет использовать его в данном качестве.</P>
+<P>BRAINSTORM никогда особых звёзд не хватали. Первая работа немецкой группы вышла уже в далёком 1997 году и с тех пор музыканты топчутся на месте. Всё в их музыке правильно, каждая нота на своём месте, да и саунд в последние лет 10 просто поражает воображение своей плотностью, но выбиться в высшую лигу у BRAINSTORM вряд ли получится. Были у группы несомненные удачи, но за успешной пластинкой следовал провал, и всё приходилось начинать заново. На «Scary Creatures”, который вышел менее чем через два года после предшественника есть всего две вещи, которые можно выделить в положительном смысле. Во-первых, это очень плотный звук, о котором я уже упоминал. Любители метала останутся довольны. Все 50 минут BRAINSTORM пилят без устали, но в этой упёртости и есть главный их недостаток, уже минут через 30 начинаешь медленно одуревать от однообразности и монотонности музыкального материала. Вторым безусловным успехом этого альбома является гимн «We Are...”, где BRAINSTORM очень удачно использовали детский хор, подражая PINK FLOYD.</P>
+<P>Достаточно серая работа. Несколько вещей послушать можно, но целиком альбом производит не самое выгодное впечатление. Запоминающегося материала явно не хватило.</P>
+<P>Купить на <a href=http://escapemind.ru/goods/BRAINSTORM-Scary-Creatures>Escapemind.ru</a></P>
+Автор: Vit Belov
+
+### 31.08.2016 news BRAINSTORM представили первый ремикс с альбома &quot;Memorial Roots (Re-Rooted)&quot;
+
+<p><strong>BRAINSTORM</strong> представили песню <strong>Forsake What I Believed</strong> с новой версии альбома 2009 года "<strong>Memorial Roots (Re-Rooted)</strong>", которая увидит свет 16 сентября на <strong>AFM Records</strong>. Постоянный саунд-инженер группы <strong>Achim Kohler</strong> полностью перемикшировал материал. В новое издание будут включены бонусы различных изданий первоначальной версии "Memorial Roots". Диск будет выпущен в digipack. По словам коллектива, переиздание "Memorial Roots" спустя семь лет после оригинального релиза будет сделано по многочисленным просьбам поклонников группы, которые хотели, чтобы альбом зазвучал «мощнее и агрессивнее».</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/W0X7lkiJfLM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 31.08.2016 news BRAINSTORM posted remix
+
+<p><strong>BRAINSTORM</strong> presented the song <strong>Forsake What I Believed</strong> from the new version of the 2009 album "<strong>Memorial Roots (Re-Rooted)</strong>' which will be released on 16 September via <strong>AFM Records</strong>. Permanent sound engineer <strong>Achim Kohler</strong> of the group completely remixed material. The new edition will include bonuses of various editions of the original version of "Memorial Roots". The CD will be released in digipack. According to staff, the re-release of "Memorial Roots" seven years after the original release will be made according to numerous requests from fans who wanted the album sounded "powerful and aggressive".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/W0X7lkiJfLM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 06.09.2016 news BRAINSTORM продолжают публиковать треки с переиздания
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"><strong>BRAINSTORM</strong> переиздадут на <strong>AFM</strong> альбом "<strong>Memorial Roots</strong>" 16 сентября. Работа была пересведена продюсером <strong>Achim Kohler</strong>. Ниже можно услышать песню "<strong>Shiver</strong>" с этого издания.</font></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/-jjyPfUt8vo" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 06.09.2016 news BRAINSTORM published one more remixed track
+
+<p><strong>BRAINSTORM </strong>will re-release on<strong> AFM</strong> album "<strong>Memorial Roots</strong>" on September 16. The work was remixed and remastered by producer <strong>Achim Kohler</strong>. Below you can hear the song "<strong>Shiver</strong>" from this edition.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/-jjyPfUt8vo" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

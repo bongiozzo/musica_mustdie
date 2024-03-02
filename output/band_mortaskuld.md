@@ -67,6 +67,21 @@ Kent Truckenbrod - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.01.2006 reviews Кое-что из сокровищницы дэт-метала от Peaceville
+
+<P>Среди немалого количества американских команд, исполнявших в 90-е годы дэт-метал, была и таковая с названием Morta Skuld. Похоже, лэйбл Peaceville решил понемножечку воскресить (или "заново открыть") некоторые альбомы этого жанра, вытащив их на свет Божий из своих запылившихся загашников. "Re-Surface" является сборников лучших вещей с трех "писвиллевских" пластинок группы: "Dying Remains" (1993), "As Humanity Fades" (1994) и "For All Eternity" (1995). 13 вещей представляют собой отличные образчики классического американского дэта на стыке с дэтом брутальным. Здесь вы не найдете никаких сопливых мелодий, всё жестко, тяжело и достаточно мрачно. Сокрушающая долбежка барабанов, злые риффы, суровый вокал. Не кривя душой, могу назвать выпуск данной пластинки весьма успешной попыткой ознакомления фэнов дэт-метала со старой сокровищницей жанра. Возможно, она сподвигнет слушателей поискать старые альбомы этой группы и узнать творчество Morta Skuld более детально, а не посредством сборника лучших, по мнению издавшего лэйбла, вещей. Тем же, кто заинтересуется творчеством участников группы в настоящее время, могу сказать, что они играют в команде под названием 9mm Solution (прежде MS2), но никакой не дэт-метал, а что-то ближе к ню-металу, так что у этих коллективов музыкально уже мало общего.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 22.07.2011 news Relapse выпустили сборник MORTA SKULD
+
+<P><IMG height=262 alt="" hspace=0 src="/images/news_rus/2011.07/20295.jpg" width=262 align=right border=0>5 июля на <STRONG>Relapse Records</STRONG> вышел новый релиз классических детстеров <STRONG>MORTA SKULD "Through The Eyes Of Death : The Early Demos"</STRONG>. На диск вошли два первых демо американской группы <STRONG>'Prolong the Agony’</STRONG>&nbsp;и<STRONG> ‘Gory Departure’</STRONG>, спродюсированные менеджером<STRONG> DEATH Eric Greif</STRONG> в 1990 году. Обложку нарисовал <STRONG>Travis Smith (DEATH, OPETH, NEVERMORE, KING DIAMOND)</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Intro&nbsp;</STRONG> 00:30&nbsp;&nbsp; <BR>2. <STRONG>Sacrificial Rite</STRONG>&nbsp; 03:26 <BR>3. <STRONG>Gory Departure</STRONG>&nbsp; 03:47 <BR>4. <STRONG>Preacher of Lies</STRONG>&nbsp; 03:23 <BR>5. <STRONG>Senseless Killing</STRONG>&nbsp; 02:20&nbsp; <BR>6. <STRONG>Through the Eyes of Death</STRONG>&nbsp; 01:01 <BR>7. <STRONG>Feast From Within</STRONG>&nbsp; 04:07 <BR>8. <STRONG>Prolong the Agony</STRONG>&nbsp; 04:18&nbsp; <BR>9. <STRONG>...Of Evil</STRONG>&nbsp; 04:06 <BR>10. <STRONG>Eternal Suffering</STRONG>&nbsp; 04:31 <BR>11. <STRONG>Metal Church</STRONG> (Metal Church Cover)&nbsp; 05:33 </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

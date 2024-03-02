@@ -215,6 +215,43 @@ Jason Mackenroth: Drums, Sax
 
 * C группой "Black Flag" Henry Rollins
 
+## Публикации
+
+### 15.06.2001 news Новая сделка ROLLINS BAND.....
+
+<p>Henry Rollins со товарищи подписал сделку с Sanctuary Records. Дебютник группы на лэйбле - "Nice" уже готов и выйдет в штатах 21 Августа. ROLLINS BAND в процессе записи приобрели устоявшийся состав Henry Rollins - вокал, Jim Wilson - гитара, Marcus Blake - басс и Jason Mackenroth - барабаны. Clif Norrell, который уже работал с командой на альбоме 1997 года "Come In And Burn" продюссировал "Nice" в Лос-Анджелесской Cherokee Studios.</p>
+
+Автор: Yermola
+
+### 15.06.2001 news ROLLINS BAND has signed a new deal .....
+
+<p> ROLLINS BAND has signed a new deal with Sanctuary Records. The band's debut album for the label, Nice, has been completed and is scheduled for an August 21st North American release. According to an official Sanctuary Records press release, ROLLINS BAND's now-steady lineup (since 1998) of Henry Rollins on vocals, guitarist Jim Wilson, bassist Marcus Blake and drummer Jason Mackenroth began work on the new album back in June 2000 between tour dates. Clif Norrell, who has been working with the band since 1997's Come In And Burn, engineered Nice at Cherokee Studios in Los Angeles. Charismatic and brutally honest frontman Henry Rollins comments on the production: "This record, like the last one, Get Some Go Again, was made in a very simple fashion. Analog 2" tape, real instruments, cut live, no drum beats fixed, no vocals pitched, just music played hard, good sounds going onto tape, very few takes, next. Our road manager Mike Curtis, a guitar and tone aficionado, set us up with several amp, cabinet and pedal options he constructed with gear he rented from LA's Black Market vintage gear store. We got some great guitar sounds this time around." To celebrate the upcoming release, ROLLINS BAND is already scheduled to perform on this years Vans Warped Tour (alongside such diverse acts as BLINK 182, NEW FOUND GLORY, RANCID, 311, ALIEN ANT FARM, SUM 41, and H2O) and will then embark on a headline tour in early fall.</p>
+<p> You catch ROLLINS BAND on the Vans Warped Tour 2001 on the following dates:</p>
+<p> July 31 - Bristow, VA (Washington DC) @ Nissan Pavillion</p>
+<p></p>
+<p> Aug. 01 - Virginia Beach, VA @ Verizon Amphitheatre Lot</p>
+<p></p>
+<p> Aug. 02 - Pittsburgh, PA @ IC Light Amphitheatre</p>
+<p></p>
+<p> Aug. 03 - Camden, NJ @ Blockbuster-Sony Ent. Center</p>
+<p></p>
+<p> Aug. 04 - New York City, NY @ Randall's Island</p>
+<p></p>
+<p> Aug. 05 - Asbury Park, NJ @ Asbury Park Lot</p>
+<p></p>
+<p> Aug. 07 - Cleveland, OH @ Nautica Stage</p>
+<p></p>
+<p> Aug. 08 - Buffalo, NY @ La Salle Park</p>
+<p></p>
+<p> Aug. 09 - Boston, MA @ Suffolk Downs</p>
+<p></p>
+<p> Source: BLABBERMOUTH.NET</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

@@ -195,6 +195,58 @@ Desmond Tolhurst: guitars
 * C группой "Malignancy" Ron Kachnic (guitar)
 * C группой "Malignancy" Desmond Tolhurst (bass)
 
+## Публикации
+
+### 06.02.2001 news Новый альбом Mortician
+
+<p> Стала известна дата выхода нового альбома Mortician "Domain of Death" - 16 апреля.</p>
+
+Автор: Nybras
+
+### 16.01.2002 news Новости от Darkside
+
+<p><IMG SRC="/images/news_rus/2002.01/2317.JPG" ALT="pho" width="200" height="206" hspace="15" vspace="5" border="1" align="left" /> Австрийская группа Darkside подписала контракт с Season Of Mist и выпустила новый альбом "Cognitive Dissonance" в 2001 году. В январе этого года группа отправилась в турне вместе с Mortician, Carnal Forge, Arkhon Infaustus.</p>
+
+Автор: Vit Belov
+
+### 16.01.2002 news Darkside news
+
+<p><IMG SRC="/images/news_rus/2002.01/2317.JPG" ALT="pho" width="200" height="206" hspace="15" vspace="5" border="1" align="right" /> Austrian death-metal band DARKSIDE released their new album "Cognitive Dissonance" in 2001. In January Band is on tour with Mortician, Carnal Forge, Arkhon и Infaustus. Tour dates:</p>
+<p>17.01.02 Praha (CZ) Black Pess</p>
+<p>18.01.02 Zwickau (DE) Alarm</p>
+<p>19.01.02 Wien (AU) Arena</p>
+<p>20.01.02 Milano (IT) Indian's Saloon</p>
+<p>21.01.02 Zagreb (HR) Mocvara (tbc)</p>
+<p>23.01.02 Perpignan (FR) Crock More</p>
+<p>24.01.02 Barcelona (ES) Mephisto</p>
+<p>25.01.02 Murcia (ES) Gamma</p>
+<p>26.01.02 Madrid (ES) El Grito</p>
+<p>27.01.02 Irun (ES) Tunk</p>
+<p>29.01.02 Lyon (FR) Real Theatre</p>
+<p>30.01.02 Wil (CH)Remise</p>
+<p>31.01.02 Osnabruck (DE) Works</p>
+<p>01.01.02 Offenbach (DE) Hafenbahn</p>
+<p>02.02.02 Vosselaar (BE) Biebob</p>
+<p>03.02.02 Groningen (NL) Vera</p>
+
+Автор: Vit Belov
+
+### 07.10.2003 news Изменения в составе MORTICIAN
+
+В составе американского brutal death metal трио <B>MORTICIAN</B> приозошли некоторые изменения. На замену барабанщика <B>Roger Beaujard</B> пришел <B>Sam Inzerra</B>, как постоянный участник группы.
+Автор: Darkfall
+
+### 21.09.2004 news Новый альбом MORTICIAN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 alt="" hspace=0 src="/images/news_rus/2004.09/7161.jpg" width=300 align=left border=5>Новый альбом <STRONG>MORTICIAN</STRONG> <STRONG>"Re-Animated Dead Flesh" </STRONG>выходит этой осенью на <STRONG>Crash Music</STRONG>. Но главное, группа опубликовала кавер.</FONT></P>
+Автор: Vit Belov
+
+### 16.11.2005 news Вокалист MORTICIAN арестован в Польше
+
+<P>Вокалист-басист мясников <STRONG>MORTICIAN Will Rahmer</STRONG> арестован после концерта в польском городе Зелёна Гора. Он угнал машину такси, угрожая водителю ножом. Ему грозит наказание от 3 до 15 лет лишения свободы.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Mortician: гениальный тупизм?

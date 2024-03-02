@@ -57,6 +57,88 @@ Bob Katsionis - Keyboards
 * C группой "Timo Tolkki" NEW STRATOVARIUS (Timo Tolkki)
 * C группой "Symfonia" NEW STRATOVARIUS (Timo Tolkki)
 
+## Публикации
+
+### 11.04.2008 news Сэмплы REVOLUTION RENAISSANCE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мы уже сообщали, что 6 июня на <STRONG>Frontiers</STRONG> выходит дебютный альбом наследников <STRONG>STRATOVARIUS REVOLUTION RENAISSANCE</STRONG>. Новая группа <STRONG>Timo Tolkki</STRONG>, вокал для которой записали <STRONG>Tobias Sammet</STRONG> и <STRONG>Michael Kiske</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Heroes</B> (Sammet)<BR>02. <B>I Did It My Way</B> (Kiske)<BR>03. <B>We Are Magic</B> (Rantanen)<BR>04. <B>Angel</B> (Kiske)<BR>05. <B>Eden Is Burning</B> (Rantanen)<BR>06. <B>Glorious And Divine</B> (Sammet)<BR>07. <B>Born Upon The Cross</B> (Rantanen)<BR>08. <B>Keep The Flame Alive</B> (Kiske)<BR>09. <B>Last Night On Earth</B> (Kiske)<BR>10. <B>Revolution Renaissance</B> (Kiske)</P>
+<P>4 сэмпла с этой работой можно послушать на нашем сайте.</P>
+Автор: Vit Belov
+
+### 28.05.2008 news REVOLUTION RENAISSANCE покинули Frontiers
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>У бывшего гитариста <STRONG>STRATOVARIUS Timo Tolkki</STRONG> продолжаются проблемы. Его новый проект <STRONG>REVOLUTION RENAISSANCE</STRONG> покинул <STRONG>Frontiers Records</STRONG>.<STRONG> Timo</STRONG> ведёт переговоры с другими лэйблами об издании альбома "<STRONG>New Era</STRONG>".</FONT></P>
+Автор: Vit Belov
+
+### 31.07.2008 reviews Второй ли это STRATOVARIUS?
+
+<P>Я не буду слишком углубляться в историю появления группы REVOLUTION RENAISSANCE. Вы без труда сможете обнаружить всю необходимую информацию в нашей новостной ленте. Скажу только, что этот коллектив возник после того, как, по какой-то причине, гитарист Timo Tolkki отказался продолжать деятельность группы STRATOVARIUS в прежнем составе и у него остался материал, сочинённый для нового альбома этой группы.</P>
+<P>Пригласив знаменитых вокалистов Tobias Sammet (EDGUY, AVANTASIA) и Michael Kiske (ex-HELLOWEEN) помочь себе, а, также рекрутировав чуть менее известного певца Pasi Rantanen (THUNDERSTONE), Timo Tollki выпустил эти записи на новом для себя лэйбле Frontiers под названием “New Era”. Что ж, тем, кто ожидал второго STRATOVARIUS, придётся умерить свой аппетит. Обозреваемый альбом больше походит на сольник Timo Tolkki с приглашёнными вокалистами и к STRATOVARIUS имеет мало отношения. Гитарист рассказывал, что решил вернуться к классическому звучанию «Стратов», и забыть предыдущий одноимённый альбом, случившийся после его выхода из психиатрической лечебницы, как страшный сон. Отмечу, что тот альбом меня очень порадовал в своё время, но и возврату к корням я бы тоже не обиделся. В итоге Tolkki, возвращаясь к истокам, забыл, куда он идёт, или, того хуже, он и не собирался никуда возвращаться с самого начала. Мелодичный heavy-metal, который представлен на “New Era” имеет к STRATOVARIUS отдалённое отношение. Разве что мелодии, сочинённые господином Tolkki слишком часто что-то напоминают. То, что мы могли слышать во времена золотого периода STRATOVARIUS. Но даже в то время, мы уже отмечали, что творческий потенциал Timo Tolkki достаточно низок, и разнообразие мелодий никогда не являлось главным плюсом STRATOVARIUS. Стало что-то вырисовываться уже на поздних альбомах, когда Timo, занятый обливанием самого себя бутафорской кровью в сортире, разрешил кое-что сочинить своим «однополчанам». Главной же фишкой финнов было их оригинальное звучание. Гитарно-клавишные дуэли Timo Tolkki и Jens Johansson, высокий холодный вокал Timo Kotipelto и, столь же холодная, реализация самого материала. Сейчас всего этого не осталось. Остались мелодии, которые мы уже где-то несколько раз слышали, и которые не спасают даже выдающиеся вокалисты с собственным лицом, и невнятная запись, которая больше напоминает демо, а не готовый к изданию high-class продукт, которого мы всегда ждём от столь громких имён. Несмотря на всё вышесказанное, “New Era” всё равно заслуживает вашего внимания. Во-первых, все эти мелодии достаточно цепкие, чтобы впечатлить фэна power-metal, слушающего их даже в десятый раз. И, во-вторых, здесь есть несколько очень не плохих баллад, которые пусть и не выправляют ситуацию, но превращают этот альбом из аутсайдера в твёрдого середняка, а может даже и нетвёрдого лидера.</P>
+<P>REVOLUTION RENAISSANCE дал ответ на вопрос о том, кто рулил в позднем STRATOVARIUS. Все мы, на этом примере, должны понять, что слова о группе, как о коллективе единомышленников, не пустой звук. Теперь понятно, за что отвечали в этой финской группе другие её члены. За разнообразие и современный фирменный звук. Этих вещей обозреваемому альбому отчаянно не хватает.</P>
+Автор: Vit Belov
+
+### 14.10.2008 news Timo Tolkki и Ко. надоели нашим читателям
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сегодня на нашем сайте закончился опрос, посвящённый очередным пертурбациям в<STRONG> STRATOVARIUS</STRONG>. Нашим читателям надоела вся эта свара, 53 процента проголосовавших полностью отказывают финским музыкантам в своей поддержке (вариант ответа "все козлы!"). Остальные голоса разделились примерно поровну - 18 процентов выступают на стороне оставшихся музыкантов группы, и одинаковое количество респондентов, по 14.5 процента, поддерживают <STRONG>Timo Tolkki</STRONG> и любят буквально всех.</FONT></P>
+Автор: Vit Belov
+
+### 18.12.2008 news REVOLUTION RENAISSANCE на Scarlet
+
+<P>Новая группа бывшего гитариста <STRONG>STRATOVARIUS Timo Tolkki REVOLUTION RENAISSANCE</STRONG> подписала контракт с <STRONG>Scarlet Records</STRONG>. Новый альбом <STRONG>"Age Of Aquarius"</STRONG> выйдет 9 марта. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">The Age of Aquarius</B><BR itxtvisited="1">02. <B itxtvisited="1">So She Wears Black</B><BR itxtvisited="1">03. <B itxtvisited="1">Ixion's Wheel</B><BR itxtvisited="1">04. <B itxtvisited="1">Kyrie Eleison</B><BR itxtvisited="1">05. <B itxtvisited="1">Revolution Has Begun</B><BR itxtvisited="1">06. <B itxtvisited="1">Sins of My Beloved</B><BR itxtvisited="1">07. <B itxtvisited="1">Behind the Mask</B><BR itxtvisited="1">08. <B itxtvisited="1">Ghost of Fallen Grace</B><BR itxtvisited="1">09. <B itxtvisited="1">Children of the Future</B><BR itxtvisited="1">10. <B itxtvisited="1">The Heart of All</B></P>
+Автор: Vit Belov
+
+### 15.02.2009 news Новая песня REVOLUTION RENAISSANCE
+
+<P>Заглавная песня с второго альбома проекта бывшего гитариста <STRONG>STRATOVARIUS Timo Tolkki REVOLUTION RENAISSANCE "Age of Aquarius"</STRONG> может быть скачана с сайта коллектива. Альбом выйдет 23 марта на <STRONG>Scarlet Records</STRONG>. Трэк-лист:</P>
+<P>01. <B itxtvisited="1">The Age of Aquarius</B><BR itxtvisited="1">02. <B itxtvisited="1">So She Wears Black</B><BR itxtvisited="1">03. <B itxtvisited="1">Ixion's Wheel</B><BR itxtvisited="1">04. <B itxtvisited="1">Kyrie Eleison</B><BR itxtvisited="1">05. <B itxtvisited="1">Revolution Has Begun</B><BR itxtvisited="1">06. <B itxtvisited="1">Sins of My Beloved</B><BR itxtvisited="1">07. <B itxtvisited="1">Behind the Mask</B><BR itxtvisited="1">08. <B itxtvisited="1">Ghost of Fallen Grace</B><BR itxtvisited="1">09. <B itxtvisited="1">Children of the Future</B><BR itxtvisited="1">10. <B itxtvisited="1">The Heart of All</B></P>
+<P>Ссылка: <A href="http://www.revolution-renaissance.com/files/Age_of_Aquarius.mp3">http://www.revolution-renaissance.com/files/Age_of_Aquarius.mp3</A></P>
+Автор: Vit Belov
+
+### 26.02.2009 news Jens Johansson полюбил REVOLUTION RENAISSANCE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывший коллега<STRONG> Timo Tolkki</STRONG> и клавишник <STRONG>STRATOVARIUS Jens Johansson</STRONG> прокомментировал новую песни со второго альбома <STRONG>REVOLUTION RENAISSANCE "Age Of Aquarius"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Я, слава Богу, не профессиональный критик, но хочу сказать о трэке&nbsp;"Age Of Aquarius". Он не "попсовый" или коммерческий. Он гораздо более сложный, чем обычно&nbsp;сочиняет Timo. Хороший текст, отличное гитарное соло. Будет здорово послушать альбом целиком. Очень хорошо, что песня не похожа на STRATOVARIUS, ведь Tolkki сам говорил, что не хочет быть частью STRATOVARIUS</EM>".</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 05.03.2009 news Ещё одна песня REVOLUTION RENAISSANCE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа гитариста <STRONG>Timo Tolkki REVOLUTION RENAISSANCE</STRONG> выложила в сеть новую песню <STRONG>"Ghost Of Fallen Grace". </STRONG>Композиция попадёт на новый альбом группы <STRONG>"Age Of Aquarius".</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.revolution-renaissance.com/files/Ghost_Of_Fallen_Grace.mp3">http://www.revolution-renaissance.com/files/Ghost_Of_Fallen_Grace.mp3</A></FONT></P>
+Автор: Vit Belov
+
+### 29.08.2009 news REVOLUTION RENAISSANCE на Napalm Records
+
+<P>Группа бывшего гитариста <STRONG>STRATOVARIUS Timo Tolkki REVOLUTION RENAISSANCE</STRONG> подписала контракт с <STRONG>Napalm Records</STRONG>. Уже третий альбом выйдет в 2010 году.</P>
+Автор: Vit Belov
+
+### 02.11.2009 news REVOLUTION RENAISSNCE нашли басиста
+
+<P>К группе <STRONG>REVOLUTION RENAISANCE</STRONG> гитариста <STRONG>Timo Tolkki</STRONG> присоединился басист <STRONG>Magnus Rosen.</STRONG></P>
+Автор: Vit Belov
+
+### 25.05.2010 news REVOLUTION RENAISSANCE назвали альбом
+
+<P>Новый альбом <STRONG>REVOLUTION RENAISSANCE</STRONG> будет называться "<STRONG>Trinity</STRONG>". Пластинка выйдет осенью на <STRONG>Napalm Records</STRONG>. Гитарист <STRONG>Timo Tolkki</STRONG> сообщил, что на третьем альбоме своей группы он вернётся к классическому power-metal звучанию. </P>
+<P>Также коллектив нанял нового клавишника. Им стал <STRONG>Bob Katsionis</STRONG>&nbsp;из <STRONG>FIREWIND.</STRONG></P>
+Автор: Vit Belov
+
+### 30.07.2010 news Timo Tolkki распустил REVOLUTION RENAISSANCE
+
+<P>Бывший гитарист <STRONG>STRATOVARIUS Timo Tolkki</STRONG> в очередной раз выступил с самодеструктивным заявлением. Музыкант решил распустить свою группу <STRONG>REVOLUTION RENAISSANCE</STRONG>, из-за недостатка интереса к ней и личных проблем. В своём заявлении<STRONG> Timo</STRONG> рассказал о критическом снижении бюджетов записи и отсутствии интереса промоутеров к собственному детищу. По его словам, группа не может существовать без прямого контакта со слушателем, а в случае<STRONG> REVOLUTION RENAISSANCE</STRONG> этого контакта не было.</P>
+<P>Третий и последний альбом <STRONG>REVOLUTION RENAISSANCE "Trinity"</STRONG> выйдет в сентябре на <STRONG>Napalm Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 04.02.2011 reviews Ренессанс закончен
+
+<P>Бывший гитарист STRATOVARIUS Timo Tolkki – один из самых приятных персонажей для журналиста. Очень редко в тяжёлой музыке находится музыкант, готовый рассуждать о таких вещах, как белая горячка и кататонический бред, при этом демонстрируя эти вещи на собственных фотографиях. Также немногие могут доступным языком объяснить разногласия в группе слишком большим количеством выпитого спиртного, а творческие вопросы решают с помощью кулака. И уж совсем немногие покидают свою собственную группу, и, отказываясь платить по счетам, сначала разрешают оставшимся музыкантам продолжить под старым именем, а затем рассказывают везде, что они поступили не по-джентельменски.</P>
+<P>Таков наш сегодняшний герой, чья группа REVOLUTION RENAISSANCE подготовила свой третий альбом с помпезным названием “Trinity”, который вышел в конце прошлого года на Napalm Records. Стоит отметить, что с момента своего образования в 2008 году REVOLUTION RENAISSANCE постоянно преследовали проблемы, несмотря на то, что группа должна была стать достойным ответом STRATOVARIUS, а сам Timo Tolkki заявлял, что полностью излечился от своих психических проблем. Постоянно происходили рецидивы заболевания, которые приводили к плачевным последствиям. Не успев выпустить свой дебют “New Era”, гитарист рассорился со своим лэйблом Frontiers и получил соответствующий PR. Второй диск RR “Age Of Aquarius”, на котором у группы сформировался состав, вышел уже на Scarlet, но почему-то продолжать сотрудничество с этим итальянским лэйблом господин Tolkki не пожелал. Или это с ним не пожелали продолжать сотрудничество. А лэйблу Napalm Records в 2010 году REVOLUTION RENAISSANCE подготовили приятный подарок, сообщение о собственном роспуске, в связи «с отсутствием интереса со стороны слушающей музыки». Безусловная реклама для нового альбома, слоган мог бы звучать так: «Покупайте диск от группы, считающей себя никому не нужной!» К этому можно было бы добавить и пресс-релиз с рассказом о том, что никто не хочет ходить на концерты этого коллектива. </P>
+<P>Но обратимся к музыке. Здесь, к сожалению, тоже не всё гладко. Стилистически “Trinity” представляет всё тот же «евро-павер», который мы так любим, но есть большие проблемы с реализацией материала. Не хочется никого обижать, но этот альбом, по своему саунду, скорее демо. Записывалась пластинка в Бразилии и Финляндии, а свели её не очень ловко. Гитара отдельно, вокал отдельно, всё остальное где-то в стороне. Лично у меня заболела голова от пронзительного голоса Gus Monsanto уже к третьей песне. При этом он поёт довольно хорошо, но вокал необходимо обрабатывать, чем Timo Tolkki заниматься поленился.</P>
+<P>Теперь гитарист работает с Andre Matos в своей новой группе. Будем надеяться, что этот коллектив успеет выпустить альбом ещё до того, как Timo Tolkki разонравится то, чем он занимается.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

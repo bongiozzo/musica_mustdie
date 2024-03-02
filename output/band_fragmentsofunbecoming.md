@@ -23,6 +23,14 @@ Death metal with the influence of Sweden
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.11.2003 news Дебют FRAGMENTS OF UNBECOMING на Metal Blade
+
+<P>Немецкая death metal группа <B>FRAGMENTS OF UNBECOMING</B> завершила работу над своим новым и первым для <B>Metal Blade Records</B> альбомом <B>"Skywards - A Sylphe's Ascension"</B>. Говорят, что группа исполняет энергичный и мелодичный death metal, вдохновляясь творчеством шведских дэтстеров. К новому творению уже готов трэк-лист:<BR><BR>01. <B>Up From The Blackest Of Soil</B><BR>02. <B>The Seventh Sunray Enlights My Pathway</B><BR>03. <B>Shapes Of The Pursuers</B><BR>04. <B>Skywards - A Sylphe's Ascension</B><BR>05. <B>Mesmerized</B><BR>06. <B>Entangled Whispers In The Depth</B><BR>07. <B>Evensong</B><BR>08. <B>Scattered To The Four Winds</B><BR>09. <B>On A Scar's Edge Infinity</B><BR>10. <B>Lour Pulse</B><BR>11. <B>Fear My Hatred</B><BR>12. <B>Life's Last Embers</B><BR><BR>Европейский релиз <B>"Skywards - A Sylphe's Ascension"</B> состоится 24 января 2004 года на <B>Metal Blade Records</B>.</P>
+Автор: Darkfall
+
+
 ## Обсуждения
 
 

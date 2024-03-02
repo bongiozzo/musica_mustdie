@@ -16,6 +16,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.06.2011 news Обложка нового LEPROUS
+
+<P>Норвежские prog-metal'исты<STRONG> LEPROUS</STRONG> подписали контракт с<STRONG> InsideOut</STRONG>. Третий альбом группы <STRONG>"Bilateral" </STRONG>выйдет 22 августа. Коллектив представил обложку пластинки пера <STRONG>Jeff Jordan,</STRONG>&nbsp;который работал с <STRONG>THE MARS VOLTA </STRONG>и делал обложку для предыдущей работы <STRONG>LEPROUS</STRONG> <STRONG>'Tall Poppy Syndrome'</STRONG>. Новый альбом прошёл сведение и мастеринг у <STRONG>Jens Bogren</STRONG>&nbsp;в студии&nbsp;<B>Fascination Street</B>&nbsp;(<B>OPETH</B>, <B>PAIN OF SALVATION</B>, <B>DEVIN TOWNSEND</B>, <B>SYMPHONY X</B>).</P>
+<P><center><IMG height=480 src="/images/news_rus/2011.06/19800.jpg" width=480 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Leprous - Tall Poppy Syndrome

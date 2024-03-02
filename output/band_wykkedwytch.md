@@ -58,6 +58,37 @@ Lyrics by Ipek
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.02.2002 reviews Месть ангела в женском обличии
+
+<p>Месть ангела в женском обличии. Второй альбом американской команды после шестилетнего перерыва и пребывания в бездействии. Если раньше они играли death-thrash старой школы, то материал нового альбома представляет собой sympho-black в лучших традициях CRADLE OF FILTH. Лидер команды с момента ее создания (1994 год) Ipek обладает очень выразительным вокалом. На этом альбоме она записала все вокальные партии: и оперные (при наличии соответствующего образования), и чистые речитативы, и фоновые подпевки, и, самое главное, скриминг. Причем, ее скриминг безумно напоминает ор и напряги связок вампира Dani. Учитывая, что музыка и вокалы обоих групп схожи, можно сделать вывод, что WYKKED WYTCH - оригинальный клон CRADLE OF FILTH без вампирской лирики. Основное внимание на альбоме уделяется именно вокальным пассажам. Иногда, даже, в ущерб музыке. Хотя, надо признать, кричит она отлично. Записывался альбом в Италии, микшировался во Флориде. Любителям CRADLE OF FILTH обязательно должно понравиться. Всем остальным, рекомендую не обращать внимания на этот альбом.</p>
+
+Автор: Dimas
+
+### 03.09.2003 news WYKKED WYTCH закончили новый альбом
+
+<p>WYKKED WYTCH закончили работу над третьим альбомом 'Nefret', он выйдет в 2004 году на Demolition/Dreamcatcher Records. Пластинка была записана в Studio 13 вместе с продюсером Jeremy Staska (POISON THE WELL, MARILYN MANSON). Трэк-лист:</p>
+<p> 01. Nefret<br> 02. Fatal Intentions<br> 03. Eternal Lies<br> 04. Illfate<br> 05. Seduced By Fear<br> 06. Many Lives<br> 07. Trauma<br> 08. The Soul Awaits<br> 09. Cursed Destiny</p>
+
+Автор: Vit Belov
+
+### 03.01.2008 news WYKKED WITCH выложили песни
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Американская sympho-black-metal группа<STRONG> WYKKED WITCH</STRONG>, ведомая мощной вокалисткой <STRONG>Ipek</STRONG>, выложила на своей <STRONG>MySpace </STRONG>страничке четыре песни с только что вышедшего альбома "<STRONG>Memories Of Dying Whore</STRONG>".</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/wykkedwytch">http://www.myspace.com/wykkedwytch</A></FONT></P>
+Автор: Vit Belov
+
+### 06.12.2010 news Вокалистка WYKKED WYTCH выпустила соус
+
+<P>Теперь и фэны группы&nbsp;<B itxtvisited="1">WYKKED WYTCH</B> могут порадовать себя, заказав соус <STRONG>Wykked Hot Sauce</STRONG>, который придумала вокалистка группы&nbsp;<B itxtvisited="1">Ipek</B>.&nbsp;<BR itxtvisited="1"><BR itxtvisited="1">Согласно пресс-релизу,<B itxtvisited="1"> Wykked Hot Sauce</B> был "создан&nbsp;из-за любви&nbsp;<B itxtvisited="1">Ipek </B>ко всему острому и пряному. Она никогда не могла найти соус, который был бы достаточно острым для неё и никогда не была удовлетворена теми, что представленны на полках магазинов. Наконец-то нужная формула была найдена&nbsp;и теперь каждый фэн экстремального метала может отведать экстремально острый соус.</P>
+<P>Купить соус можно по адресу: <A href="http://www.wykkedwytch.com/store.html">www.wykkedwytch.com/store.html</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2010.12/17749.jpg" width=450 height=295> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

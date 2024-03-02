@@ -16,6 +16,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.11.2016 news ABNORMALITY выпустили видео
+
+<p>Американская brutal death metal команда с женским вокалом<strong> ABNORMALITY</strong> выпустила видео на песню "<strong>Cymatic Hallucinations</strong>". Второй альбом группы "Mechanisms of Omniscience" вышел на <strong>Metal Blade</strong>.</p><p>Лицензия от Фоно здесь: <a href="http://escapemind.ru/goods/ABNORMALITY-Mechanisms-of-Omniscience">http://escapemind.ru/goods/ABNORMALITY-Mechanisms-of-Omniscience</a></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/20ld1q3TiVs" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 03.11.2016 news ABNORMALITY released new video
+
+<p>American brutal death metal band with female vocals <strong>ABNORMALITY</strong> has released a video for the song "<strong>Cymatic Hallucinations</strong>". The second album, "<strong>Mechanisms of Omniscience</strong>" was released on <strong>Metal Blade records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/20ld1q3TiVs" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

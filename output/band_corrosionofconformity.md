@@ -141,6 +141,126 @@ Engineered By Bill Metoyer.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.04.1999 news 
+
+<p>Новый альбом Corrosion Of Conformity будет продюсировать известный продюсер Боб Рок ("Чёрный альбом" Metallica).</p>
+
+Автор: Vit Belov
+
+### 04.07.2001 news &quot;Live Volume&quot; CORROSION OF CONFORMITY ....
+
+<p>Уже полностью готовый альбом "Live Volume" - CORROSION OF CONFORMITY будет опубликован на Sanctuary Records 7-го Августа. Список песен будет таким: 01. These Shrouded Temples 02. Diablo Blvd. 03. Senior Limpio 04. King of the Rotten 05. Wiseblood 06. Who’s Got The Fire 07. Albatross 08. My Grain 09. Congratulations Song 10. 13 Angels / 7 Days 11. Vote with a Bullet 12. Long Whip / Big America 13. Shelter 14. Clean My Wounds.</p>
+
+Автор: Yermola
+
+### 04.07.2001 news &quot;Live Volume&quot; CORROSION OF CONFORMITY ....
+
+<p>CORROSION OF CONFORMITY’s Live Volume, recorded at Harpo’s Theatre in Detroit on April 20, 2001, will be issued through Sanctuary Records on August 7th. The full track listing for the CD is as follows: 01. These Shrouded Temples 02. Diablo Blvd. 03. Senior Limpio 04. King of the Rotten 05. Wiseblood 06. Who’s Got The Fire 07. Albatross 08. My Grain 09. Congratulations Song 10. 13 Angels / 7 Days 11. Vote with a Bullet 12. Long Whip / Big America 13. Shelter 14. Clean My Wounds. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 30.10.2001 news DOWN, featuring PANTERA vocalist Philip Anselmo...
+
+<p>The tentative title of the forthcoming sophomore effort from New Orleans’ DOWN, featuring PANTERA vocalist Philip Anselmo, PANTERA bassist Rex Brown, C.O.C. drummer Jimmy Bower, C.O.C. guitarist Pepper Keenan, and CROWBAR guitarist Kirk Windstein, is The Backwood Heavies. As previously reported, The Backwood Heavies will be recorded during November/December at former UGLY KID JOE guitarist Dave Fortman’s Balance Studios in New Orleans, where CROWBAR laid down their most recent effort, Sonic Excess In Its Purest Form. <BR> <BR> In related news, New Orleans’ SOUTHERN ISOLATION (formerly BODY & BLOOD), which features in its ranks Phil Anselmo on guitar, Phil’s girlfriend Stephanie Opal on vocals, “Big” Ross Karpelman (CHRIST INVERSION) on keyboards, Kevin Bond (i.e. CHRIST INVERSION, CROWBAR, SUPERJOINT RITUAL) on bass, and Sid Montz on drums, will be issuing their self-titled MCD on October 30th via Baphomet/Housecore Records. The full track listing for the effort is as follows: <BR><BR> 01. Blue Bird (Make You Shine) <BR> 02. I Got Lost in Myself Again <BR> 03. The Wall of You <BR> 04. Come Back and Let Me In (Going Down the Wrong Road)<BR> <BR></p>
+
+Автор: Yermola
+
+### 30.10.2001 news Неугомонный Филипп Ансельмо...
+
+<p>Нью-Орлеанский проект "DOWN", имеющий в своем составе вокалиста "PANTERA" - Philip Anselmo, бассиста "PANTERA" - Rex Brown, барабанщика "C.O.C." - Jimmy Bower, гитариста "C.O.C." - Pepper Keenan и гитариста "CROWBAR" - Windstein - объявил название для своего нового альбома - "The Backwood Heavies". Писаться это творение будет в Ноябре/Декабре в студии участника "UGLY KID JOE" - Dave Fortman - Balance Studios (в ней записывались "CROWBAR" - альбом "Sonic Excess In Its Purest Form")... <BR><BR> Из родственных новостей, команда "SOUTHERN ISOLATION" состоящая из Фила Ансельмо (гитара!!!), его подружки Stephanie Opal (вокал), “Big” Ross Karpelman ("CHRIST INVERSION") - клавиши, Kevin Bond (CHRIST INVERSION, CROWBAR, SUPERJOINT RITUAL) - басс и Sid Montz (барабаны), тридцатого октября выпустили альбом с аналогичным названием на Baphomet/Housecore Records. Трек-лист релиза: <BR> <BR> 01. Blue Bird (Make You Shine)<BR> 02. I Got Lost in Myself Again <BR> 03. The Wall of You <BR> 04. Come Back and Let Me In (Going Down the Wrong Road)</p>
+
+Автор: Yermola
+
+### 04.01.2002 news Проект Дэйва Гролла PROBOT ....
+
+<p>Главарь "FOO FIGHTERS" и бывший член NIRVANA - Дэйв Гролл заканчивает работу над диском своего побочного проекта "PROBOT". Диск собрал просто плеяду самых уважаемых вокалистов: Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) и Lee Dorrian (CATHEDRAL). Уже записаны: <BR><BR> 01. Dictatorsaurus (с участием Snake) <BR> 02. Centuries Of Sin (с участием Cronos) <BR> 03. Access Babylon (с участием Mike Dean) <BR> 04. Sweet Dreams (с участием King Diamond) <BR> 05. Ice Cold Man (с участием Lee Dorrian) <BR> 06. My Tortured Soul (с участием Eric Wagner) <BR> 07. Big Sky (с участием Tom G. Fischer) <BR> 08. Emerald Lies (с участием Wino)<BR> 09. Shake Your Blood (с участием Lemmy)</p>
+
+Автор: Yermola
+
+### 04.01.2002 news PROBOT&#39;s Dave Grohl: Lemmy Is God....
+
+<p>FOO FIGHTERS mainman Dave Grohl (ex-NIRVANA) recently posted a message on the band's site describing the experience of working with MOTORHEAD mastermind Lemmy on a song called "Shake Your Blood", which will appear on an upcoming album by Grohl's metal side-project PROBOT. In his diary message, Grohl makes obvious his clear admiration for the rock'n'roll elder, referring to him as "the coolest person I've ever recorded with in my entire life…He is God. He is the reason. He is the last man standing and no one even comes close. That guy is a true rock 'n' roller. Everyone else is just trying. I can't even begin to explain how f.cking life-altering a day in the studio with Lemmy really is. He walks in, kicks the sh.t out of a song and then he's gone… like the goddamned Lone Ranger." <BR><BR> As previously reported, PROBOT's upcoming CD will include a dozen-or-so tracks featuring some of metal's most celebrated and respected vocalists, including Lemmy, Cronos (VENOM), King Diamond (MERCYFUL FATE/KING DIAMOND), Tom G. Fischer (ex-CELTIC FROST), Snake (VOIVOD), Eric Wagner (TROUBLE), Tom Araya (SLAYER), Max Cavalera (SOULFLY), Mike Dean (C.O.C. ), Wino (ex-THE OBSESSED) and Lee Dorrian (CATHEDRAL). Among the tracks that are set to appear on the effort are the following:<BR><BR> 01. Dictatorsaurus (feat. Snake) <BR> 02. Centuries Of Sin (feat. Cronos) <BR> 03. Access Babylon (feat. Mike Dean) <BR> 04. Sweet Dreams (feat. King Diamond) <BR> 05. Ice Cold Man (feat. Lee Dorrian) <BR> 06. My Tortured Soul (feat. Eric Wagner) <BR> 07. Big Sky (feat. Tom G. Fischer) <BR> 08. Emerald Lies (feat. Wino)<BR> 09. Shake Your Blood (feat. Lemmy)<BR><BR> In related news, FOO FIGHTERS are scheduled to perform at the Winter Olympics in Salt Lake City, which starts February 8th and runs through February 24th. The FOOs will be making their appearance on February 11th.</p>
+
+Автор: Yermola
+
+### 04.03.2002 news Цифры американских продаж от Soundscan ....
+
+<p> Вот цифры американских продаж в жанре metal/hard rock по состоянию на конец февраля: </p>
+<p> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Sound Of White Noise: 511,105<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Stomp 442: 114,974<BR> <a href="/ru/band/anthrax/">ANTHRAX</a> - Volume 8: 77,858<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Urban Discipline: 204,799<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - State Of The World Address: 198,663<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Mata Leao: 51,377<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - New World Disorder: 50,936<BR> <a href="/ru/band/biohazard/">BIOHAZARD</a> - Uncivilization: 18,835<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - Wiseblood: 141,383<BR> <a href="/ru/band/corrosion_of_conformity/">C.O.C.</a> - America's Volume…: 52,170<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - Gallery…: 51,164<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a>- Bloodthirst: 36,128<BR> <a href="/ru/band/destruction/">DESTRUCTION</a> - All Hell Breaks Loose: 3,080<BR> <a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - The Antichrist: 1,692<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Awake: 272,044<BR> <a href="/ru/band/dream_theater/">DREAM THEATER</a> - Falling Into Infinity: 142,167<BR> <a href="/ru/band/exodus/">EXODUS</a> - Force Of Habit: 52,262<BR> <a href="/ru/band/exodus/">EXODUS</a> - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> <a href="/ru/band/halford/">HALFORD</a> - Resurrection: 60,275<BR> <a href="/ru/band/halford/">HALFORD</a> - Live Insurrection: 24,478<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Jugulator: 108,009<BR> <a href="/ru/band/judas_priest/">JUDAS PRIEST</a> - Demolition: 40,945<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Something Wicked…: 40,336<BR> <a href="/ru/band/iced_earth/">ICED EARTH</a> - Horror Show: 29,838<BR> <a href="/ru/band/iron_maiden/">IRON MAIDEN</a> - Brave New World: 233,706<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Spider's Lullaby: 29,214<BR> <a href="/ru/band/king_diamond/">KING DIAMOND</a> - Voodoo: 32,785<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - Dead Again: 22,195<BR> <a href="/ru/band/mercyful_fate/">MERCYFUL FATE</a> - 9: 20,729<BR> <a href="/ru/band/kreator/">KREATOR</a> - Violent Revolution: 2,351<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Burn My Eyes: 144,465<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The More Things Change…: 114,648<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - The Burning Red: 133,421<BR> <a href="/ru/band/machine_head/">MACHINE HEAD</a> - Supercharger: 41,622<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Youthanasia: 890,015<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - Risk: 303,472<BR> <a href="/ru/band/megadeth/">MEGADETH</a> - The World Needs A Hero: 191,852<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Formulas…: 42,819<BR> <a href="/ru/band/morbid_angel/">MORBID ANGEL</a> - Gateways…: 30,372<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Chaos A.D.: 450,365<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Roots: 355,471<BR> <a href="/ru/band/sepultura/">SEPULTURA</a> - Nation: 54,160<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Bound, Gagged…: 14,756<BR> <a href="/ru/band/skinlab/">SKINLAB</a> - Disembody…: 35,324<BR> <a href="/ru/band/slayer/">SLAYER</a> - God Hates Us All: 170,411<BR> <a href="/ru/band/soil/">SOIL</a> - Scars: 112,614<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Low: 112,365<BR> <a href="/ru/band/testament/">TESTAMENT</a> - Gathering: 50,301<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Outer Limits: 21,355<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Negatron: 8,044<BR> <a href="/ru/band/voivod/">VOIVOD</a> - Phobos: 3,687<BR> </p>
+
+Автор: Yermola
+
+### 04.03.2002 news Metal&#x2F;Hard Rock Album Sales In The US As Reported By Soundscan - Mar. 2
+
+<p>Here are some of the latest sales figures for various current and catalog metal/hard rock releases in the US (in total units sold to date since the albums were issued), as reported by Soundscan for the week ending February 24th, 2002: <BR><BR> AMEN - Amen: 16,353<BR> AMEN - We Have…: 15,789<BR> ANTHRAX - Sound Of White Noise: 511,105<BR> ANTHRAX - Stomp 442: 114,974<BR> ANTHRAX - Volume 8: 77,858<BR> BIOHAZARD - Urban Discipline: 204,799<BR> BIOHAZARD - State Of The World Address: 198,663<BR> BIOHAZARD - Mata Leao: 51,377<BR> BIOHAZARD - New World Disorder: 50,936<BR> BIOHAZARD - Uncivilization: 18,835<BR> C.O.C. - Wiseblood: 141,383<BR> C.O.C. - America's Volume…: 52,170<BR> CANNIBAL CORPSE - Gallery…: 51,164<BR> CANNIBAL CORPSE - Bloodthirst: 36,128<BR> DESTRUCTION - All Hell Breaks Loose: 3,080<BR> DESTRUCTION - The Antichrist: 1,692<BR> DREAM THEATER - Awake: 272,044<BR> DREAM THEATER - Falling Into Infinity: 142,167<BR> EXODUS - Force Of Habit: 52,262<BR> EXODUS - Another Lesson In Violence: 7,241<BR> GLASSJAW - Everything You Ever…: 35,306<BR> HALFORD - Resurrection: 60,275<BR> HALFORD - Live Insurrection: 24,478<BR> JUDAS PRIEST - Jugulator: 108,009<BR> JUDAS PRIEST - Demolition: 40,945<BR> ICED EARTH - Something Wicked…: 40,336<BR> ICED EARTH - Horror Show: 29,838<BR> IRON MAIDEN - Brave New World: 233,706<BR> KING DIAMOND - Spider's Lullaby: 29,214<BR> KING DIAMOND - Voodoo: 32,785<BR> MERCYFUL FATE - Dead Again: 22,195<BR> MERCYFUL FATE - 9: 20,729<BR> KREATOR - Violent Revolution: 2,351<BR> MACHINE HEAD - Burn My Eyes: 144,465<BR> MACHINE HEAD - The More Things Change…: 114,648<BR> MACHINE HEAD - The Burning Red: 133,421<BR> MACHINE HEAD - Supercharger: 41,622<BR> MEGADETH - Youthanasia: 890,015<BR> MEGADETH - Risk: 303,472<BR> MEGADETH - The World Needs A Hero: 191,852<BR> MORBID ANGEL - Formulas…: 42,819<BR> MORBID ANGEL - Gateways…: 30,372<BR> SEPULTURA - Chaos A.D.: 450,365<BR> SEPULTURA - Roots: 355,471<BR> SEPULTURA - Nation: 54,160<BR> SKINLAB - Bound, Gagged…: 14,756<BR> SKINLAB - Disembody…: 35,324<BR> SLAYER - God Hates Us All: 170,411<BR> SOIL - Scars: 112,614<BR> TESTAMENT - Low: 112,365<BR> TESTAMENT - Gathering: 50,301<BR> VOIVOD - Outer Limits: 21,355<BR> VOIVOD - Negatron: 8,044<BR> VOIVOD - Phobos: 3,687<BR></p>
+
+Автор: Yermola
+
+### 05.05.2005 reviews Black Sabbath Forever!
+
+<P>Если бы легендарные Black Sabbath надумали собраться не в конце 60-х, а четверть века спустя, то они звучали бы именно так, как звучат Corrosion Of Conformity на своем последнем альбоме. Тягучие, блюзовые риффы в лучших традициях Тони Айомми, смена музыкальных тем, приправленные хардкоровым вокалом и современными фишками. Вокалист/гитарист группы Pepper Keenan , утверждает, что на этом альбоме они обратили взор к коллективам, под которые отрывались в детстве. Видно, черносубботинцы были в списке этих групп далеко на не последнем месте. Сама по себе идея заигрывания с Блэк Саббатовскими приемами не нова – очень многие взяли их на вооружение в той или иной степени, а некоторые используют в полный рост, как например, Закк Вайлд в своем Black Label Society. Но в отличие от Закка, музыка Corrosion Of Conformity более разнопланова из-за легкого налета Цеппелинов в некоторых композициях. Да и гитара менее перегружена, чем у знаменитого бородача, выпестованного самим Оззи, что делает композиции более мягкими и легкими к восприятию. </P>
+<P>Короче, хороший альбом и для поклонников старого хард – рока и для любителей более жестких и современных ритмов.</P>
+<P>Диск предоставлен концерном Группа СОЮЗ</P>
+Автор: Fucker
+
+### 12.07.2010 news 7&quot; от CORROSION OF CONFORMITY
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.07/16900.jpg" width=400 height=404>Собравшаяся в своём классическом составе - <STRONG>Mike Dean</STRONG> (бас, вокал), <B itxtvisited="1">Woody Weatherman</B> (гитара) and <B itxtvisited="1">Reed Mullin</B> (барабаны) - группа <STRONG>CORROSION OF CONFORMITY</STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff> подготовила к выпуску 7" сингл <STRONG>"Your Tomorrow (Parts 1 And 2)"</STRONG></FONT>. Диск выйдет на лейбле <STRONG>Southern Lord</STRONG> и&nbsp;будет включять в себя одну новую песню. Его продажа&nbsp;планируется на грядущих концертах группы, а так же, через интернет магазин <STRONG>Southern Lord</STRONG> <STRONG>Records</STRONG> и в некоторых других магазинах независимых лейблов. Оформление сингла выполнил <B itxtvisited="1">John Moore</B>.</P>
+Автор: Headcrusher
+
+### 06.01.2012 news CORROSION OF CONFORMITY: обложка и трек-лист нового полноформатника
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.01/22533.jpg" width=400 height=400>Группа <STRONG>CORROSION OF CONFORMITY</STRONG> готовит к выходу новый одноимённый полноформатник в составе, записавшем альбом<STRONG> "Animosity" </STRONG>(1985). Диск выйдет 27 февраля на лейбле <STRONG>Candlelight</STRONG>.</P>
+<P>Версия альбома на виниле увидет свет на значке&nbsp;<STRONG>Back On Black</STRONG> и будет содержать два дополнительных трека.</P>
+<P>Трек-лист альбома:</P>
+<P>1. <STRONG>Psychic Vampire<BR></STRONG>2. <STRONG>River Of Stone<BR></STRONG>3. <STRONG>Leeches</STRONG><BR>4. <STRONG>El Lamento de las Cabras<BR></STRONG>5. <STRONG>Your Tomorrow<BR></STRONG>6. <STRONG>The Doom<BR></STRONG>7. <STRONG>The Moneychangers<BR></STRONG>8. <STRONG>Come Not Here<BR></STRONG>9. <STRONG>What We Become<BR></STRONG>10. <STRONG>Rat City<BR></STRONG>11. <STRONG>Time Of Trials<BR></STRONG>12. <STRONG>Canyon Man</STRONG> (только на виниле)<BR>13. <STRONG>The Same Way</STRONG> (только на виниле)</P>
+Автор: Headcrusher
+
+### 12.03.2012 news Новости фестиваля Brutal Assault
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2012.03/23250.png" width=300 height=165>Ещё несколько участников добавилось в состав фестиваля <STRONG>"Brutal Assault"</STRONG> этого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Это - легендарная группа из Северной Каролины<STRONG> CORROSION OF CONFORMITY</STRONG>, канадские дет-металлисты <STRONG>GORGUTS</STRONG>, исландцы <STRONG>SOLSTAFIR</STRONG>, норвежские блэкари <FONT color=#ddd9d0><STRONG>KAMPFAR</STRONG> и поклонники древних египетских культов <STRONG>NILE</STRONG>.</FONT></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А также, одни из пионеров industrual <STRONG>GODFLESH</STRONG>, подтвердили своё участие в фестивале 2012 года.&nbsp;Проект образованный <STRONG>Джастином Бродриком</STRONG>&nbsp;(<FONT color=#ddd9d0>Justin Broadrick) и <STRONG>Джи Си Грином</STRONG> (G. C. Green)</FONT>&nbsp;в 1988 году и успешно просуществовал до 2002 года, после чего, была распущен, но снова вернулась к деятельности в 2010, выступив на нескольких фестивалях.</FONT></P>
+Автор: Headcrusher
+
+### 12.03.2012 news CORROSION OF CONFORMITY: клип на песню &quot;The Moneychangers&quot;
+
+<P><STRONG>"The Moneychangers"</STRONG> - новое видео легендарной группы из Северной Каролины <STRONG>CORROSION OF CONFORMITY</STRONG>, можно посмотреть ниже. Клип был снят в городе Raleigh режиссёром <STRONG>Чарльзом Крделло</STRONG> (Charles Cardello).</P>
+<P>Песня <STRONG>"The Moneychangers"</STRONG> вошла в одноимённый альбом <STRONG>CORROSION OF CONFORMITY</STRONG>, который вышел 28 февраля на&nbsp;лейбле <STRONG>Candlelight</STRONG>.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/WwdV7PhOs1Y" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 13.11.2012 news CORROSION OF CONFORMITY: &quot;Megalodon&quot; E.P. 
+
+<P><STRONG>CORROSION OF CONFORMITY</STRONG> выпускают пяти песенный миньон, названный <STRONG>"Megalodon"</STRONG>. Диск увидит свет на лейбле <STRONG>Scion A/V</STRONG> <STRONG>Metal</STRONG>. И уже завтра его можно будет скачать и послушать совершенно бесплатно на сайте лейбла: <A href="http://www.scionav.com/collection/1266?fb_action_ids=4056420613128">www.scionav.com</A></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2012.11/25041.jpg" width=450 height=450> 
+<P></P>
+<P>&nbsp;</P></CENTER>
+Автор: Headcrusher
+
+### 20.11.2012 news CORROSION OF CONFORMITY: видео на трек &quot;Feed On&quot;
+
+<P><STRONG>CORROSION OF CONFORMITY</STRONG> представили новый клип на трек <STRONG>"Feed On"</STRONG>, вошедший в миньон <STRONG>"Megaladon"</STRONG>.</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/QmYoObqenTU" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 05.02.2013 news И у CORROSION OF CONFORMITY будет своё пиво
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.02/25405.jpg" width=300 height=399>Пивоварни&nbsp;<STRONG>Burnt Hickory</STRONG> и <STRONG>Anderson Bros.</STRONG>, из американского города Kennesaw (штат Джорджия), работают над созданием тёмного пива имени группы <STRONG>CORROSION OF CONFORMITY</STRONG>. </P>
+<P>Согласно сообщению&nbsp;от&nbsp;пивоварни <STRONG>Burnt Hickory</STRONG>, <EM>"...брожение пива будет происходить в бочке (на фото), под пущенный по кругу&nbsp;EP <STRONG>"Technocracy"</STRONG>, до полной готовности!"</EM></P>
+<P>Официальный сайт <STRONG>CORROSION OF CONFORMITY</STRONG>: <A href="http://www.coc.com">www.coc.com</A></P>
+Автор: Headcrusher
+
+### 24.09.2014 news Новинки видео
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.09/27304.jpg" width=200 height=140>В этом постинге предлагаем вам&nbsp;ознакомится с&nbsp;десятью&nbsp;модными видеоклипами в металлической и не только музыке, которые появились за последний месяц на просторах интеренета и заслуживают вашего самого пристального внимания.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>01. <STRONG>1349 "Slaves"</STRONG> : <A href="http://youtu.be/ajvLJPzgL_o">http://youtu.be/ajvLJPzgL_o</A><BR>02. <STRONG>ACHERON "Satan Holds Dominion"</STRONG> : <A href="http://youtu.be/dIoQHF4YIC8">http://youtu.be/dIoQHF4YIC8</A><BR>03. <STRONG>AMON AMARTH "Deceiver of the Gods" </STRONG>: <A href="http://youtu.be/CpAcxbtXUgQ">http://youtu.be/CpAcxbtXUgQ</A><BR>04. <STRONG>CORROSION OF CONFORMITY "On Your Way"</STRONG> : <A href="http://youtu.be/H5RdqR6I8Uw">http://youtu.be/H5RdqR6I8Uw</A><BR>05. <STRONG>CRUCIFIED BARBARA "I Sell My Kids For Rock'N'Roll"</STRONG> : <A href="http://youtu.be/oVU_8D1aJoU">http://youtu.be/oVU_8D1aJoU</A><BR>06. <STRONG>MORTALS "View From A Tower"</STRONG> : <A href="http://youtu.be/mHPh_aUfGD8">http://youtu.be/mHPh_aUfGD8</A><BR>07. <STRONG>NOCTEM "The Adamantine Doors"</STRONG> : <A href="http://youtu.be/rsNQonZdRNM">http://youtu.be/rsNQonZdRNM</A><BR>08. <STRONG>ORANGE GOBLIN "Sabbath Hex"</STRONG> : <A href="http://youtu.be/2l4Ts2p7jPE">http://youtu.be/2l4Ts2p7jPE</A><BR>09. <STRONG>SPIDERS "Shake Electric"</STRONG> : <A href="http://youtu.be/4IlpVlGTjbA">http://youtu.be/4IlpVlGTjbA</A><BR>10. <STRONG>THE HAUNTED "Eye Of The Storm"</STRONG> : <A href="http://youtu.be/uNAwrj1EUo8">http://youtu.be/uNAwrj1EUo8</A></FONT></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Corrosion of Conformity

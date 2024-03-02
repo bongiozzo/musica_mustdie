@@ -86,6 +86,22 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.07.2011 news Обложка нового ASTRAL DOORS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом шведской команды <STRONG>ASTRAL DOORS</STRONG> <STRONG>"Jerusalem" </STRONG>выйдет в октябре. Пластинка была сведена <STRONG>Daniel Bergstrand, </STRONG>в активе которого работа с <STRONG>BEHEMOTH, </STRONG><STRONG>MESHUGGAH, </STRONG><STRONG>DIMMU BORGIR,&nbsp;</STRONG><STRONG>STRAPPING YOUNG LAD </STRONG>и <STRONG>SOILWORK.</STRONG></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Обложку этого релиза можно посмотреть ниже. </FONT></P>
+<P><center><IMG height=472 src="/images/news_rus/2011.07/20027.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 12.10.2011 news Новый клип ASTRAL DOORS
+
+<P>Новый ролик <STRONG>ASTRAL DOORS</STRONG> на песню с нового альбома "<STRONG>Child Of Rock'N'Roll</STRONG>" можно посмотреть ниже. Трек выйдет 21 октября на новом альбоме группы "<STRONG>Jerusalem</STRONG>".</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/GjHjYixBaOo" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

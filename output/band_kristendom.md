@@ -43,6 +43,22 @@ Sadness And Despair
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.05.2002 reviews Агрессивно-мелодичный death metal из преисподней
+
+<p>Второй альбом французов играющих яростную смесь мелодичного death metal с современным звуком и трэшово-индустриальными канонами. Напоминает смесь AT THE GATES, PANTERA и ранней SEPULTURA. Злобные ритмичные thrash-death риффы, брутальная мелодичность и неплохая техничность. Также следует отметить неплохую вокальную работу. Начинается альбом бодренько и приятно. Но, постепенно материал становится пресным, появляется некоторая монотонность и однообразность, которые сменяются короткими всплесками интересных мелодий и ходов. Все на приличном уровне: качество, техника, реализация. Однако, сухость и заштампованность не особо цепляющего материала не позволяют поставить альбому оценку намного выше средней.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru/">CD-MAXIMUM</A></p>
+
+Автор: Dimas
+
+### 20.05.2002 reviews Agressive-melodic death metal from hell
+
+<p>The second album of the French playing a furious mix of melodious death metal with a modern sound and thrash-industrial canons. Reminds a mix of AT THE GATES, PANTERA and early SEPULTURA. Spiteful rhythmical thrash-death riffes, brutal melodic and quite good technic. Also it is necessary to note quite good vocal work. The album begins vigor and pleasantly. But, gradually material becomes stale, there is some monotony and monotony, which are replaced by short bursts of interesting melodies and courses. All is at a decent level: quality, engineering, realization. However, dryness and cliche of material don't allow to put to an album an estimation much above average.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

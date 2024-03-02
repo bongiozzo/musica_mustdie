@@ -90,6 +90,122 @@ Heavy Metal Christmas (12 Days Of Christmas)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.02.1999 news 
+
+<p>Группа Twisted Sister, одна из самых популярных в восмидесятых, объединяется в своём первоначальном составе, чтобы дать несколько концертов летом 1999 года. Ди Снайдер, Джей Джей Френч, Марк Мендоза, Эдди Оеда и Эй Джей Перо дадут концерты в таком составе впервые за последние двадцать лет.</p>
+
+Автор: Vit Belov
+
+### 08.05.2000 news 
+
+<p>Фронтмэн Twisted Sister Dee Snider нашел чем заняться в свободное время. Snider устроился на работу в качестве DJ на радиостанцию WHRQ. Его радио-металл-шоу будет называеться 'House Of Hair'.</p>
+
+Автор: Vit Belov
+
+### 09.04.2001 news Возрождение TWISTED SISTER....
+
+<p>Создатель "TWISTED SISTER" Dee Snider объявил о возрождении команды и о грядущем реюнион туре. "Мы получили несколько предложений, достаточно интересных чтобы мотивировать команду возсоединиться для тура." Кроме того "сестренки" побывали в студии где и записали пару песен пылившихся со времен "Stay Hungry". Atlantic Records собираются дополнить ими уже выходящие диски с новой упаковкой и ремастерингом.</p>
+
+Автор: Yermola
+
+### 09.04.2001 news Dee Snider has offered an update on the much-rumored TWISTED SISTER reunion .....
+
+<p>Former TWISTED SISTER frontman Dee Snider has offered an update on the much-rumored TWISTED SISTER reunion and the reasons behind the band’s decision to hold off on the official reformation until a later date. According to Snider, “although we had some significant offers, they weren't consistent enough to motivate the band to reunite for a tour. So that's why I decided to take a handful of dates myself at festivals this summer instead. “Why wouldn't I perform with TWISTED just for those few dates? Because have committed to doing TWISTED correctly. To prepare it, costumes, make-up, stage show, rehearsals, crew, all at the level we want it to be, requires an outlay of cash just to get started. So even if they were to come up with the money for those two shows, it's just not cost-effective. It would take the cost of those two shows just to start the process. And what we would go through preparation-wise for two shows, we'd go through the same thing for a dozen shows or a hundred shows. So we just can't justify going through the process until we have a more comprehensive tour set up. We've got to have a tour that makes sense economically, routing, scheduling, before we do it. “TWISTED did, however, have its first rehearsal together a couple weeks ago, and we've got another one planned this weekend. I emphasize that we have scheduled no concert dates, there aren't any potential dates, or even dates being considered. We're all friends again, and we realize that something will come together sometime. So we figured we'd start now so we wouldn't be caught completely off-guard, completely cold when an offer comes along. We're trying to get together once a month, just to get our chops together. “There were some real moments in the rehearsal. The best moments were when people stopped thinking about it and just played. At one point I just started shouting out songs: we'd finish one, and then I'd shout out the next one and the next one. I noticed in myself when I first came back to it that if I thought about the words, I couldn't remember any of them. But if I opened my mouth and just went into auto-pilot, the words are like tattooed on my brain. “A while back we went into the studio and finished two songs from the Stay Hungry era. We thought they would be a great addition to an eventual re-release of Stay Hungry. Atlantic Records, at this point, doesn't think it's worth re-issuing. The album is out there, and it's still selling. But with the cost of re-mastering and re-packaging and whatever else they would do to it, they don't think it's cost-effective at this point. “We've had a number of offers from different people who want to put those two songs on other things, but I've been telling [guitarist] Jay Jay [French] to fight the urge to release them. Taken out of context, I think those two songs would end up being more of a throw-away kind of thing on something other than the Stay Hungry re-release. So I said, ‘What's the rush? When the time is right, we'll put them on the Stay Hungry re-release.’ But now with a lot of stuff going on Atlantic may be reconsidering, they may feel that the time is coming. And I don't know personally if I think the time is right, if the demand is high enough yet. It's getting to be. With the Behind the Music [special on VH1] on the way, the Hair Band countdown, etc., the focus on TWISTED is growing. So we'll see about that. “There was supposed to be another live album cut from the King Biscuit Flower Hour show. At the last minute I believe the deal fell through. So I don't think that's happening. We're saving those tapes for release on another day.” In related news, Snider also acknowledged that the last six months have been “one of the darkest periods of my life since the late-80s”, since the passing of Dee’s wife Suzette's mom. According to Dee, “we're almost completely back on track, and in many ways we're better off for it, for the questions that have been asked, the soul-searching and re-evaluating that comes with a loss like that. We're stronger for it, but it has not been easy… It's been tough. When you're seeing a psychologist, telling them what's going on, and the psychologist starts to get teary-eyed and says, ‘I'm so sorry for you,’ you can be pretty sure you have some real issues. “I feel no shame in going and seeing someone. I think you should take time to re-evaluate sometimes. We go through our whole life carrying these crosses, especially the ones we're not aware of. And when you become aware of them, to become better and a stronger person you need to re-evaluate these things, try to get to the bottom of them and understand them better. That's what happened to me: I know that I'll be stronger, wiser, better because of what I've been through. And I definitely encourage people to do this themselves should the need arise. As together as I may seem, we are the people we are because of the crosses we've had to bear, because of our psychoses. One of the things that has helped me most is to know that I'm not the only person going through this shit. When you go through stuff, you FEEL like you're alone. But the truth of the matter is that we're not all that much different, and all of our problems are pretty much the same at some level.”</p>
+
+Автор: Yermola
+
+### 26.04.2003 news Возвращение TWISTED SISTER
+
+<p>Спустя шестнадцать лет реформировалась американская команда TWISTED SISTER. Сегодня в ее составе вокалист и лидер группы Dee Snider, гитаристы Jay Jay French и Eddie Ojeda, басист Mark "The Animal" Mendoza и ударник A.J. Pero. Группа отправляется в мировой тур, а осенью планируется издание концертных записей с тура в формате DVD. В сет-лист тура включены все самые лучшие композиции группы, среди которых "We're Not Gonna Take It," "I Wanna Rock," "You Can't Stop Rock 'N' Roll," "I Am (I'm Me)" и "Under the Blade" с альбомов "Under the Blade", "'You Can't Stop Rock 'N' Roll", "Stay Hungry" и "Come Out and Play". Запись нового студийного альбома в планах группы пока не значится...</p>
+
+Автор: Dimas
+
+### 13.08.2004 reviews Классика
+
+<P>Дебютный альбом группы “Twisted Sister” был издан в 1982 году маленькой независимой фирмой Secret. Группе, к тому времени уже исполнилось 9 лет, правда, в том, первом её составе был только гитарист Johnny Heartbreaker, позже вошедший в историю тяжелой музыки как Jay Jay French. </P>
+<P>Правильно высчитанная музыка, с жесткими гитарными риффами и провокационные тексты на подростковую тематику, попали в точку. Да еще яркие шоу, подобные «киссовским». Именно этого и надо было публике. Плюс ко всему, выход альбома удачно совпал с усиливающимся интересом к новой, необычной музыке – Новой Волне Британского Тяжелого Метала. Сложно сейчас оценивать эту пластинку. По нынешним мерка и запись слишком сырая, хотя альбом переиздан в ремастированном виде, с чуть измененной обложкой, и поет Ди Снайдер не так убедительно, как на “Come Out And Play”, да и требования слушателей стали гораздо выше. По любому “Under The Blade” не лучшее творение Ди Снайдера и Ко. Но от этого меньшей классикой он не становится. Это один из кирпичей в фундаменте того, что теперь считают тяжелой металической музыкой. </P>
+<P>Приятной ностальгии.</P>
+<P>Диск предоставлен компанией <A href="http://www.cd-maximum.ru/">CD-MAXIMUM</A></P>
+<P>&nbsp;</P>
+<P>&nbsp;</P>
+Автор: Дофф
+
+### 22.02.2005 reviews Подарок от любимой сестрички
+
+<P>…Так уж повелось, что иногда они возвращаются. Возвращаются не просто так, а с шикарным подарком для всех своих фэнов, и именно так поступили легендарные TWISTED SISTER – патриархи американского глэм-рока. Они вернулись – как всегда, под чутким руководством своего харизматичного лидера - долговязого и носатого Ди Снайдера (также известного, как автора «Курса выживания для подростков»), и пусть это всего лишь концертный реюнион, пусть вряд ли будут новые альбомы – SISTER IS BACK. И она все еще голодна…</P>
+<P>У появления “Still Hungry” есть своя история и свои причины. По словам музыкантов, они были очень недовольны прилизанным и мягким звучанием своего классического альбома 1984 года “Stay Hungry”. Так получилось, что по настоянию рекорд-компании вместо Марка Мендозы, продюсировавшего первые два альбома, на “Stay Hungry” продюсером выступил Том Верман, до этого работавший с поп-группами и мало что смысливший в тяжелом роке. Спустя двадцать лет после выхода альбома, Снайдер сотоварищи решили исправить эту ошибку. </P>
+<P>Полностью перезаписав весь материал “Stay Hungry”, – буйный и неукротимый рок-н-ролл двадцатилетней выдержки, - СЕСТРЫ поместили на новое издание огромное количество самых разнообразных бонусов. Например, это новые версии боевиков “Never Say Never” и “Blastin’ Fast & Loud”, это записанные в том далеком 84-том, но так и не вошедшие на альбом “Come Back”, “Plastic Money”, “You Know I Cry” и “Rock’N’Roll Saviors”, и это “Heroes Are Hard To Find” – песня, написанная для саундтрэка к фильму “Strangeland”. И даже спустя столько лет, эта музыка не утратила своего истинно бунтарского духа и мощнейшего драйва, а поэтому – LONG LIVE ROCK’N’ROLL! </P>
+<P>Диск предоставлен <A href="http://www.artmusic-group.ru/">Art-Music</A></P>
+Автор: Dr. Grandma
+
+### 08.02.2008 reviews Скучнейшие рождественские песенки от Ди Снайдер и Со
+
+<P>Какого черта? Еще одна известная группа, полностью, видимо, лишившись своих собственных музыкальных мыслей, решила издать рождественский альбом. На этот раз к сей потрясающей по новизне мысли пришли Twisted Sister, который свой последний "нормальный" диск выпустили в 1987-ом году. Эти 20 лет они искусственно подогревали уже сильно подостывший интерес к себе посредством всяческих компиляций, концертников и перезаписанного заново материала. Самым же странным во всей этой дурацкой истории является тот факт, что "A Twisted Christmas" добился весьма внушительного коммерческого успеха - хотя, подозреваю, лишь в Штатах. Ибо даже опус Ричи Блэкмора был и то веселее. Весьма скучное исполнение (и никакое шутовство Ди Снайдера не помогло), жиденький звук (а над мастерингом работал басист группы Mark Mendoza), и даже какими-то хэви-метал-вариациями рождественских песенок (которые, кстати, российскому слушателю вообще до лампочки) всё это безобразие назвать можно лишь с натяжкой. Подобные пластинки записывают только "по приколу и для веселья", да еще и после немалой дозы спиртного около рождественской ёлки. Успешные тиражи можно объяснить лишь культовым статусом Twisted Sister. Про какой-либо "вклад" принявших участие в качестве вокалисток (типа на подхвате у Ди) Доро Пеш и Литы Форд не хочется даже говорить - просто из-за уважения к этим исполнительницам. Возможно, кто-то считает, что данный альбом проникнут тонким очаровательным юмором, но лично я считаю, что это просто недостойно данной группы. Если бы мой новогодний или рождественский праздник сопровождался подобной музыкой, то я бы уснул даже без всякого алкоголя. "A Twisted Christmas" должен был выйти и в виде DVD, но у меня нет ни малейшего желания смотреть его после столь слабого материала аудиоверсии.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 02.07.2009 news Новое видео TWISTED SISTER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на новую песню <STRONG>TWISTED SISTER "30"</STRONG>, записанную специально для юбилейного переиздания "<STRONG>Stay Hungry</STRONG>", можно посмотреть ниже:</FONT></P>
+<P>
+<CENTER>
+<OBJECT id=uvp_fop height=255 width=400 allowFullScreen="true"><PARAM NAME="movie" VALUE="http://d.yimg.com/m/up/fop/embedflv/swf/fop.swf"><PARAM NAME="flashVars" VALUE="id=v217250355&eID=1301797&lang=us&enableFullScreen=0&shareEnable=1"><PARAM NAME="wmode" VALUE="transparent">
+<embed height="255" width="400" id="uvp_fop" allowFullScreen="true" src="http://d.yimg.com/m/up/fop/embedflv/swf/fop.swf" type="application/x-shockwave-flash" flashvars="id=v217250355&eID=1301797&lang=us&ympsc=4195329&enableFullScreen=1&shareEnable=1" /></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 11.05.2011 news TWISTED SISTER выступят в России с единственным концертом!
+
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.05/19440.jpg" width=500 height=270> 
+<P></P>
+<P>Легендарная американская рок-группа <STRONG>TWISTED SISTER</STRONG> объявила о том, что 1 августа она выступит в России с единственным концертом, который пройдет в московском клубе <STRONG>Arena</STRONG>. За почти 40-летнюю историю существования коллектива это будет его первое выступление в нашей стране!</P>
+<P><STRONG>TWISTED SISTER</STRONG> заработали статус культовой группы еще в середине 80-х, когда их альбом "Stay Hungry" стал трижды "платиновым". Такие песни с этого альбома, как <STRONG>"I Wanna Rock"</STRONG> и <STRONG>"We're Not Gonna Take It"</STRONG>, до сих пор постоянно попадают в саундтреки различных компьютерных игр и фильмов, а также в хит-парады лучших композиций за всю историю рока. Уже не одно поколение рокеров выросло на музыке <STRONG>TWISTED SISTER</STRONG> и вот один простой факт, доказывающий это: во время турне 1984 года на разогреве у них работала... <STRONG>METALLICA</STRONG>!</P>
+<P>В биографии <STRONG>TWISTED SISTER</STRONG> нельзя переоценить роль фронтмена группы, её ведущего поэта и композитора, <STRONG>Ди Снайдера</STRONG>!&nbsp; Именно благодаря этому настоящему рок-н-ролльному акробату с карикатурным макияжем, выходящему на сцену в провокационных "женских" нарядах, родилась глэм-мода, своего рода "от кутюр" стиля! Но за ярким имиджем, бесшабашным шоу, ослепительной пиротехникой, оглушающим звуком и гипнотизирующими ритмами, он никогда не забывал о смысле. Его песни напрямую касались жизни тинэйджеров, выражали их мысли, затрагивали их (и не только) проблемы. Это была действенная и меткая критика системы - и поэтому во времена гонений на рок <STRONG>Дэниель "Ди" Снайдер</STRONG> выступил с исторической речью перед специально собранной комиссией конгресса США в защиту <STRONG>TWISTED SISTER </STRONG>и всей рок-музыки в целом! Так что он (впоследствии автор популярной книги для подростков, главы из которой публиковались еще в советской (!) молодежной прессе, радио-ведущий и актер) волне может претендовать на роль одного из духовных лидеров мирового рок-движения.</P>
+<P>В 2011 году <STRONG>TWISTED SISTER</STRONG> в своем классическом, "золотом" составе, возглавляемом <STRONG>Ди Снайдером</STRONG>, планируют активную гастрольную деятельность и целый ряд выступлений на крупных рок-фестивалях. 1 августа 2011 года группа впервые выступит в России со своим уникальным шоу.</P></CENTER>
+Автор: Headcrusher
+
+### 16.07.2011 news Выступление TWISTED SISTER
+
+<P>Съёмки выступления <STRONG>TWISTED SISTER</STRONG> в Афинах можно посмотреть ниже. Группа сейчас находится в туре по Европе, в рамках которого коллектив выступит и в Москве 1 августа в клубе <STRONG>Arena Moscow</STRONG>. Сет-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="88">What You Don't Know (Sure Can Hurt You)</B><BR itxtNodeId="87">02. <B itxtHarvested="0" itxtNodeId="86">The Kids Are Back</B> <BR itxtNodeId="85">03. <B itxtHarvested="0" itxtNodeId="84">Stay Hungry</B> <BR itxtNodeId="83">04. <B itxtHarvested="0" itxtNodeId="82">Captain Howdy</B> <BR itxtNodeId="81">05. <B itxtHarvested="0" itxtNodeId="80">You Can't Stop Rock 'n' Roll</B> <BR itxtNodeId="79">06. <B itxtHarvested="0" itxtNodeId="78">The Fire Still Burns</B> <BR itxtNodeId="77">07. <B itxtHarvested="0" itxtNodeId="76">Under the Blade </B><BR itxtNodeId="75">08. <B itxtHarvested="0" itxtNodeId="74">The Price</B> <BR itxtNodeId="73">09. <B itxtHarvested="0" itxtNodeId="72">We're Not Gonna Take It</B> <BR itxtNodeId="71">10. <B itxtHarvested="0" itxtNodeId="70">Burn In Hell</B> (with Drum Solo) <BR itxtNodeId="69">11. <B itxtHarvested="0" itxtNodeId="68">Whole Lotta Rosie</B> (AC/DC cover) <BR itxtNodeId="67">12. <B itxtHarvested="0" itxtNodeId="66">I Wanna Rock</B> <BR itxtNodeId="65">Encore:<BR itxtNodeId="63">13. <B itxtHarvested="0" itxtNodeId="61">Come Out and Play</B> <BR itxtNodeId="60">14. <B itxtHarvested="0" itxtNodeId="59">S.M.F.</B></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/299SlWou3J4?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/299SlWou3J4?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.04.2013 news Eddie Ojeda (TWISTED SISTER) выпустил соус
+
+<P><STRONG>Eddie Ojeda</STRONG>,&nbsp;гитарист<STRONG> TWISTED SISTER</STRONG>,&nbsp;выпустил собственный острый соус <STRONG>"Cherry Habanero"</STRONG>. Как его купить,&nbsp;его состав&nbsp;и другие подробности о соусе, можно почерпнуть на сайте: <A href="http://ojedasauces.com/">http://ojedasauces.com</A>&nbsp;</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.04/25653.jpg" width=300 height=446> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 24.03.2015 news Скончался AJ Pero (TWISTED SISTER, ADRENALINE MOB)
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2015.03/27793.jpg" width=300 height=412>Печальные новости пришли из-за границы... В прошлую пятницу, 20 марта, в возрасте 55 лет, скончался <STRONG>AJ Pero</STRONG>, барабанщик, прославившийся своим участием в группе <STRONG>TWISTED SISTER</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Произошло это во время тура группы <STRONG>ADRENALINE MOB</STRONG>, участником которой, <STRONG>AJ</STRONG> стал в 2013 году.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>С <STRONG>ADRENALINE MOB</STRONG> он успел записать полноформатник <STRONG>"Men Of Honor"</STRONG> (2014) и&nbsp;EP&nbsp;этого года&nbsp;под названием <STRONG>"Dearly Departed"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В <STRONG>TWISTED SISTER</STRONG> его игру можно услышать на всех альбомах, кроме диска <STRONG>"Love Is For Suckers"</STRONG> (1987).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Причина смерти пока не ясна.</FONT></P>
+Автор: Headcrusher
+
+### 29.09.2016 news DEE SNIDER опубликовал лирик-видео на заглавную композицию с сольного альбома
+
+<p>Лидер и вокалист <strong>TWISTED SISTER&nbsp;Dee Snider</strong>&nbsp;выложил в сеть лирик-видео на заглавную песню с нового сольного альбома "<strong>We Are The Ones</strong>", который выйдет 21 октября.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/tRLLHYN2vMM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 29.09.2016 news DEE SNIDER released title track from solo album
+
+<p>The leader and singer of <strong>TWISTED SISTER Dee Snider </strong>has posted a lyric video for the title track from the new solo album "<strong>We Are The Ones</strong>", which will be released October 21.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/tRLLHYN2vMM" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Золотая кладовая мирового рока!

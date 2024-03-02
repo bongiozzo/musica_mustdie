@@ -56,6 +56,75 @@ mixed by Sami Karpinen
 * C группой "Sundown" Johnny Hagel
 * C группой "Sorcerer" Johnny Hagel
 
+## Публикации
+
+### 30.10.2002 reviews Новое измерение экспериментальной музыки
+
+<p>Новый альбом сольного проекта Johnny Hagel (бывшего участника SUNDOWN и TIAMAT) предназначен для всех поклонников индастриала и электроники, для всех тех, кому не терпится исследовать новое музыкальное измерение, какому бы жанру они не отдавали предпочтение, для всех тех, кому интересно узнать, как будет звучать их любимая готика лет эдак через ...дцать, для всех, кто увлекается компьютерами и новыми технологиями, а также развитием искусственных механизмов и организмов. Представьте последние альбомы TIAMAT и PARADISE LOST, примешайте к нему тот же SUNDOWN, чуточку DIE KRUPPS и RAMMSTEIN и добавьте кучу электроники и индустриальных сэмплов. Этот оригинальный проект уже успели окрестить как величайшее открытие готик-индастриал-электрометаллического направления. Я не стал бы так громко говорить, но творчество группы не без интересных моментов. Одновременное сочетание спокойствия и агрессии, мягкой мелодики и жестких индустриальных риффов, традиционных металлических элементов и экспериментов присущих комммерческой поп музыке. Для своего жанра эта музыка довольно разнообразна и полна разных настроений, чаще мрачных и печальных. Быть может, это музыка будущего, но в наше время такая музыка исключительно на любителей подобного экспериментаторства.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 12.11.2002 news MassaBrutto Radioshow #124, 11-12 Nov 2002.
+
+<p>Playlist:<BR> <BR> 1. LOVE LIES BLEEDING - S.I.N. (CCP Recs/CD-Maximum Ltd)<BR> 2. OLEMUS - Rising (CCP Recs/CD-Maximum Ltd)<BR> 3. LITHIUM - Hero In Paradise (Cold Recs/CD-Maximum Ltd)<BR> 4. DEFORMITY - 7 Fathers 1 (Displeased Recs/CD-Maximum Ltd)<BR> 5. ALGHAZANTH - The Circle Of Six (Woodcut Recs/CD-Maximum Ltd)<BR> 6. ALGHAZANTH - Symphony Of Destruction [by MEGADETH] (Woodcut Recs/CD-Maximum Ltd)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. BOUND AND GAGGED - Seven Bodies (United Guttural Recs)<BR> 8. BOUND AND GAGGED - XX (United Guttural Recs)<BR> 9. SIKFUK - Still Born Feast/Festering Maggots (United Guttural Recs)<BR> 10. SIKFUK - Maggots Gorelore (United Guttural Recs)<BR> 11. FLESHGRIND - Sorrow Breeds Hatred... Bleed On Me [live] (United Guttural Recs)<BR> 12. FLESHGRIND - Litany Of Murder [live] (United Guttural Recs)<BR> 13. FLESHGRIND - Ejaculate On Entrails [live] (United Guttural Recs)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 12.11.2002 news MassaBrutto Radioshow #124, 11-12 Nov 2002.
+
+<p>Playlist:<BR><BR> 1. LOVE LIES BLEEDING - S.I.N. (CCP Recs/CD-Maximum Ltd)<BR> 2. OLEMUS - Rising (CCP Recs/CD-Maximum Ltd)<BR> 3. LITHIUM - Hero In Paradise (Cold Recs/CD-Maximum Ltd)<BR> 4. DEFORMITY - 7 Fathers 1 (Displeased Recs/CD-Maximum Ltd)<BR> 5. ALGHAZANTH - The Circle Of Six (Woodcut Recs/CD-Maximum Ltd)<BR> 6. ALGHAZANTH - Symphony Of Destruction [by MEGADETH] (Woodcut Recs/CD-Maximum Ltd)<BR> --- --- --- ---<BR> // news//<BR> --- --- --- ---<BR> 7. BOUND AND GAGGED - Seven Bodies (United Guttural Recs)<BR> 8. BOUND AND GAGGED - XX (United Guttural Recs)<BR> 9. SIKFUK - Still Born Feast/Festering Maggots (United Guttural Recs)<BR> 10. SIKFUK - Maggots Gorelore (United Guttural Recs)<BR> 11. FLESHGRIND - Sorrow Breeds Hatred... Bleed On Me [live] (United Guttural Recs)<BR> 12. FLESHGRIND - Litany Of Murder [live] (United Guttural Recs)<BR> 13. FLESHGRIND - Ejaculate On Entrails [live] (United Guttural Recs)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 12.12.2002 articles &quot;When I buy records it is mostly extreme music...&quot; (Carl @ LITHIUM)
+
+<p><I>Band: LITHIUM<BR> Style: goth / EBM<BR> MUSICA's questions answered by: Carl and Johnny</I></p>
+<P> <B>Would you say, the kind of music LITHIUM offer may easily become pretty much popular amongst those who consider MTV the only worthy music resource?</B></>
+<P> Carl: It depends what mood the listeners are. If they’re into LITHIUM it’s great…</>
+<P> <B>Haven't you chosen too minor label to work with? Do you think the guys at Cold Records are really good at what they do and would make "Cold" gain the recognition it deserves?</B></>
+<P> Carl: They are very nice to us and we’ve never had any problems with them.</>
+<P> <B>By the way, what about this similarity: "Cold" - Cold Records? Fortuity?</B></>
+<P> Carl: Yes, fortuity…</>
+<P> <B>Many have noticed a following tendency: bands and people whom formerly took part in doom metal combo's now come up with absolutely different kind of music.</B></>
+<P> Carl: I think it is hard to categorise music nowadays. It is more of a mix of everything so I think it is a natural process nowadays.</>
+<P> <B>Do you consider LITHIUM a metal band or you simply don't care about any stylistic definitions? </B></>
+<P> Carl: We simply don’t care. I really hate when music is categorised; it is very typical here in Sweden. And it really sucks.</>
+<P> <B>Even though "Cold" is rather untypical - or at least, distinguishable - work, it nevertheless makes me recall Sundown’s "Glimmer". Are you familiar with the bands Mathias Lodmalm participated in; particularly, SUNDOWN? Are there any other Sweden's acts that deliver the same kind of music and already managed to gain a certain fame?</B></>
+<P> Johnny: I have heard “Glimmer” but I cannot say that I like it that much. MALAISE is a band that I think could attract the same kind of audience that we do. The have released 2-3 albums and they are worth checking out. Anyone interested could find a link to their homepage at ours. www.all.at/lithium.</>
+<P> <B>By the way... if we broached a subject such as music efforts by other people... Johnny, what's your attitude to the latest offerings Johan Edlund have come up with? I mean, you've been a member of TIAMAT quite a while ago. What are your impressions of Johan and how has it been working with him?</B></>
+<P> Johnny: I think that “A Deeper Kind of Slumber” is a great album, but I think that the two albums after are ok but nothing special for me.</>
+<P> <B>TIAMAT started off a black-death metal; then there was doom metal; whilst the latest works of theirs actually have nothing to do with metal at all. However; is the reverse evolution possible? Yes or no? And why "yes" or why "no"?</B></>
+<P> Johnny: It could be, but I doubt because I think that TIAMAT is a band that wants evolution.</>
+<P> <B>Do you still care of extreme kinds of music (death, black, and doom metal...whatever)?</B></>
+<P> Carl: Absolutely! When I buy records it is mostly extreme music, but of course I listen to mainstream music too. But you get brainwashed with it on MTV and the radio, and that is the reason that I never listen to radio and MTV…</>
+<P> <B>What would you tell those who blame LITHIUM for being 100% commercial project? If you'd like to know my opinion, I feel sorry for all these wasted chaps. I mean; when your new album is totally different to everything you’ve done before, it may end in LESSER amount of copies cold, in decreased amount of fans and followers. On the other hand, delivering the same kind of music through years (hence embarking on a path of self-plagiarism) is no less than a perfect way to keep your sales at the same level and your audience faithful. Furthermore, if you sell even one single copy of your demo, your CD or whatever else, your music IS commercial since you gain at least few cents off it.</B></>
+<P> Carl: If people think that if a band becomes commercial when they release an album there wouldn’t be any music to listen too… If they think we are commercial I let them think that.</>
+<P> Johnny: If there are some people who think that bands that sell cdґs are commercial, I think that they are a waste of space on this planet.</>
+<P> <B>Are you capable of performing "Cold" live? Haven't you done any gigs yet? In case you have, did all the arrangements sound exactly the way they would sound if we gave "Cold" a listen at home? </B></>
+<P> Carl: We’ve done two gigs so far. Live we have a live drummer so the music sounds more dynamic and more “live”.</>
+<P> <B>Do you know anything regarding Russia? ... Our (metal) scene?</B></>
+<P> Carl: No I’m not into the metal scene in Russia unfortunately.</>
+<P> Johnny: I remember the band Kruiz, are they still playing?</>
+<P> <B>Final words, please.</B></>
+<P> Carl: Goodbye my ugly friend… ;-)</>
+<P> Johnny: If you buy the album we might visit you…</>
+
+Автор: Kai Mathias Stalhammar
+
+### 11.01.2003 news Paradise Lost, Within Temptatiaon and Lithium in Scandinavia...
+
+<p>20.02.2003 Copenhagen - Vega<BR> 21.02.2003 Oslo - John Dee<BR> 22.02.2003 Stockholm - Klubben<BR> 23.02.2003 Malmo - KB</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

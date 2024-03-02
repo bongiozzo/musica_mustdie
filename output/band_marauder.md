@@ -41,6 +41,31 @@ Heavy metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.11.2000 reviews Героям греческой революции 1821 года посвящается!
+
+<p>Героям греческой революции 1821 года посвящается! Что можно сказать? Тоже тема. Только если учесть, что группа выпускается в Бразилии? Ну что ж, как заявлено одним названием лэйбла, это должен быть progressive. Никакой это не progressive. Heavy-metal с небольшим уклоном в стандартную power-мелодику. Лёгкие рифы, лёгкие героические мелодии. Всё хорошо и в тоже время плохо. Радует вокал, такой мужественный с хрипотцой, но этого мало. Можно выдать этой группе авансы, может даже кто-то купит, но скорей всего такого материала повсюду просто завались.</p>
+
+Автор: Vit Belov
+
+### 01.11.2000 reviews To the heroes of the Greek revolution of 1821 is devoted!
+
+<p>To the heroes of the Greek revolution of 1821 is devoted! What it is possible to tell? Theme! Only if to take into account, what the group is let out in Brasil? Well that, as is declared by one name of a label, it should be progressive. Any it's not progressive. Heavy-metal with small part of standard power-melodies. Easy reeves, easy heroic melodies. it is good and also poorly. Vocal pleases, such courageous, but it is not enough of it. It is possible to give out to this group advance payments, even someone can will buy, but is faster than all such material everywhere be simply filled up.</p>
+
+Автор: Vit Belov
+
+### 16.07.2016 reviews For Us Metal is Enough
+
+<p>For Us Metal is Enough – это девиз греческой группы MARAUDER, существующей с 1990 года. «Bullethead” - шестой альбом музыкантов, ставший дебютом для нового вокалиста Nikos Antonoyiannakis. Коллектив играет метал, и этого действительно достаточно. Если вы хотите знать, что означает термин эпический, вам сюда.</p><p>Скажу честно, я был поражён этим альбомом. Представьте себе диск любой популярной группы тяжёлого метала от JUDAS PRIEST до GRAVE DIGGER. Упрощённо аналиризуя их музыку, не вдаваясь в излишние подробности, её можно разбить на две части, забойный куплет и мелодичный припев. Иногда эти куски музыки располагаются не в чёткой последовательности, иногда кто-то больше использует распевок, а кто-то ритмически уничтожает слушателя, но набор в heavy metal всегда такой. MARAUDER используют исключительно припевы. Вся их музыка состоит из одних эпических припевов. И не просто эпических припевов, а героических эпических припевов. Heavy metal от греков совсем не быстрый, совсем не тяжёлый, он очень-очень мелодичный. Я бы порекомендовал через него приучать к тяжёлому металу младенцев до шести месяцев, точно не испугаются.</p><p>Естественно, иногда хочется послушать настоящую тяжёлую музыку, но этим MARAUDER не балуют. Я не знаю, насколько большое количество любителей стиля действительно станут фанатами греков, но я уверен, что именно фанаты у греков есть. Потому что альбомы, подобные этому эпическому шедевру либо становятся любимыми в коллекции, либо раздражают до неприятия. </p><p>В любом случае MARAUDER заслуживают внимания, их творчество очень оринально, при этом находится в рамках любимого всеми жанра. Если вы ищете группу с нулевыми показателями по progressive, по тяжести, по ненужнуму авангардному разнообразию, MARAUDER выпустили альбом для вас.</p><p>P.S.: Вот только при таком мелодичном армагеддоне здесь нет ни одной баллады. Я уже приготовил носовые платки, но не пригодились.</p>
+Автор: Vit Belov
+
+### 18.07.2016 reviews For Us Metal is Enough
+
+<p>For Us Metal is Enough is the motto of a Greek band MARAUDER, existing since 1990. "Bullethead" - the sixth album from the musicians, which became the debut for new vocalist Nikos Antonoyiannakis. The band plays metal, and this is really enough. If you want to know what the term epic, you must listen.</p><p>Frankly, I was amazed by this album. Imagine a CD of any popular band of heavy metal from JUDAS PRIEST to GRAVE DIGGER. Simplistic analysis of their music, without going into too much detail, it can be broken into two parts, downhole verse and melodic chorus. Sometimes these pieces of music are not located in a clear sequence, sometimes someone uses a singsong, and someone rhythmically destroys the listener, but heavy metal is always like that. MARAUDER use only the choruses. All their music has some epic choruses. And not just epic choruses but heroic epic choruses. Heavy metal from the Greeks is not quick, not heavy, but very melodic. I would recommend using it to teach to heavy metal babies up to six months, they will not be scared.</p><p>Of course, sometimes you want to listen to real heavy music, but this MARAUDER does not spoil. I don't know how a large number of style lovers are really going to become fans of the Greeks, but I'm sure that there are fans of the Greeks. Because albums like this epic masterpiece or become a favourite in the collection, or annoying to rejection. </p><p>In any case, the MARAUDER deserve attention, their music is very original, and is in the framework of the beloved genre. If you are looking for a group with zero indicators of progressive and avant-garde variety, MARAUDER released the album for you.</p><p>PS: That's only with this melodic Armageddon here are no ballads. I have already prepared handkerchiefs, but not useful.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

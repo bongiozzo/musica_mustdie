@@ -16,6 +16,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.09.2011 news DIAMOND PLATE: клип на трек &quot;At The Mountains Of Madness&quot;
+
+<P><STRONG>"At The Mountains Of Madness"</STRONG> -&nbsp;новый клип группы <STRONG>DIAMOND PLATE</STRONG>. Режиссером видео стал <STRONG>Dave Vorhes</STRONG>. </P>
+<P>Трек <STRONG>"At The Mountains Of Madness"</STRONG>&nbsp;вошёл в дебютный альбом <STRONG>"Generation Why?"</STRONG>, вышедший 9 августа на <STRONG>Earache</STRONG>.</P>
+<CENTER><IFRAME height=360 src="http://www.youtube.com/embed/bWKt7GZ-baE" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

@@ -129,6 +129,430 @@ Bonus DVD track listing:
 * C группой "Erben Der Schopfung" Sabine Dunser (Vocal), Pete Streit (Guitar)
 * C группой "Erben Der Schopfung" Franky Koller (Drums)
 
+## Публикации
+
+### 05.10.2003 reviews Редкий хороший релиз с женским вокалом
+
+<P>Очень хороший gothic-metal. Известная ранее в довольно широких кругах группа ERBEN DER SCHOPFUNG была переименована в ELIS, из-за контрактных разногласий. Записав новый альбом в Mastersound Studio вместе с Alex Krull, коллектив реализовал один из лучших&nbsp;CD в этом жанре в этом году.&nbsp;Такой альбом безусловно понравиттся всем поклонникам классического THE GATHERING и WITHIN TEMPTATION. Солирующий вокал Sabine Danser и редкие вкрапления гроулинга. Очень мелодичные и разнообразные песни. Подобного жёсткого gothic-metal с хорошим женским пением, где каждый занимается своим делом (кто-то поёт и позирует, а кто-то музыку сочиняет),&nbsp;выходит довольно мало. И раскопать такие пластинки в куче непотребного дерьма довольно сложно. Берите смело ELIS не пожалеете.</P>
+<P>Диск предоставлен точкой B2-100</P>
+<CENTER><IMG height=268 src="/images/news_rus/2003.09/4921.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 30.10.2003 articles TOP-50 продаж лицензионных компакт-дисков за октябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=769 border=0>
+<TBODY>
+<TR>
+<TD align=middle width="9%" height=17><B>1(3)</B></TD>
+<TD align=middle width="20%" height=17><B>RAGE </B></TD>
+<TD align=middle width="30%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B></TD>
+<TD align=middle width="20%" height=17><B>STRATOVARIUS</B></TD>
+<TD align=middle width="30%" height=17><B>ELEMENTS PART 2</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>3(1)</B></TD>
+<TD align=middle width="20%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=middle width="30%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=26><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=26><B>HUGHES/TURNER PROJECT</B></TD>
+<TD align=middle width="30%" height=26><B>II</B></TD>
+<TD align=middle width="21%" height=26><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=26><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>DESTRUCTION</B></TD>
+<TD align=middle width="30%" height=17><B>METAL DISCHARGE +7 bonus tracks</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>thrash-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B>6(14)</B></TD>
+<TD align=middle width="20%" height=17><B>GRAVEWORM</B></TD>
+<TD align=middle width="30%" height=17><B>ENGRAVED IN BLACK</B></TD>
+<TD align=middle width="21%" height=17><B>Irond</B></TD>
+<TD align=middle width="20%" height=17><B>black-doom-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>CHARON</B></TD>
+<TD align=middle width="30%" height=17><B>THE DYING DAYLIGHTS</B></TD>
+<TD align=middle width="21%" height=17><B>Fono</B></TD>
+<TD align=middle width="20%" height=17><B>gothic-rock</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>GARY HUGHES</B></TD>
+<TD align=middle width="30%" height=17><B>ONCE AND FUTURE KING, PART II</B></TD>
+<TD align=middle width="21%" height=17><B>CD-MAXIMUM</B></TD>
+<TD align=middle width="20%" height=17><B>progressive</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>MORBID ANGEL</B></TD>
+<TD align=middle width="30%" height=17><B>HERETIC</B></TD>
+<TD align=middle width="21%" height=17><B>Soyuz</B></TD>
+<TD align=middle width="20%" height=17><B>death-metal</B></TD></TR>
+<TR>
+<TD align=middle width="9%" height=17><B></B>&nbsp;</TD>
+<TD align=middle width="20%" height=17><B>ALTARIA</B></TD>
+<TD align=middle width="30%" height=17><B>INVITATION</B></TD>
+<TD align=middle width="21%" height=17><B>AMG</B></TD>
+<TD align=middle width="20%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ELIS</TD>
+<TD align=middle width="30%" height=17>GOD'S SILENCE, DEVIL'S TEMPTATION</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASP</TD>
+<TD align=middle width="30%" height=17>WELTUNTER</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>synth-gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TARAXACUM</TD>
+<TD align=middle width="30%" height=17>RAINMAKER</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>PSYCHO MAGNET +8 bonus tracks</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>THE CHAINHEART MACHINE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LONDON AFTER MIDNIGHT</TD>
+<TD align=middle width="30%" height=17>SELECTED SCENES FROM THE END OF THE WORLD</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWISTED TOWER DIRE</TD>
+<TD align=middle width="30%" height=17>CREST OF THE MARTYRS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MISERY INDEX</TD>
+<TD align=middle width="30%" height=17>RETALIATE</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SOILWORK</TD>
+<TD align=middle width="30%" height=17>STEELBATH SUICIDE +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>20 (20)</TD>
+<TD align=middle width="20%" height=17>PARAGON</TD>
+<TD align=middle width="30%" height=17>THE DARK LEGACY</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>VIRGIN BLACK</TD>
+<TD align=middle width="30%" height=17>ELEGANT … AND DYING</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>NOKTURNAL MORTUM</TD>
+<TD align=middle width="30%" height=17>TASTE OF GLORY EP</TD>
+<TD align=middle width="21%" height=17>self-prod</TD>
+<TD align=middle width="20%" height=17>pagan-black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>23 (30)</TD>
+<TD align=middle width="20%" height=17>HELLOWEEN</TD>
+<TD align=middle width="30%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>24 (22)</TD>
+<TD align=middle width="20%" height=17>FOR MY PAIN…</TD>
+<TD align=middle width="30%" height=17>FALLEN</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TAROT</TD>
+<TD align=middle width="30%" height=17>SUFFER OUT PLEASSURES</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>26 (2)</TD>
+<TD align=middle width="20%" height=17>DARKSEED</TD>
+<TD align=middle width="30%" height=17>ASTRAL ADVENTURES</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 2</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>PARADOX LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BLOODFLOWERZ</TD>
+<TD align=middle width="30%" height=17>7 BENEDICTIONS - 7 MALEDICTIONS</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-alternative</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>END OF GREEN </TD>
+<TD align=middle width="30%" height=17>LAST NIGHT ON EARTH</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>LAMIA </TD>
+<TD align=middle width="30%" height=17>DARK ANGEL</TD>
+<TD align=middle width="21%" height=17>IROND - DD</TD>
+<TD align=middle width="20%" height=17>gothic</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>BATHORY</TD>
+<TD align=middle width="30%" height=17>NORDLAND 1</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>33 (10)</TD>
+<TD align=middle width="20%" height=17>POISONBLACK</TD>
+<TD align=middle width="30%" height=17>EXCAPEXTASY</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TWILIGHTNING</TD>
+<TD align=middle width="30%" height=17>DELIRIUM VEIL</TD>
+<TD align=middle width="21%" height=17>Fono</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>35 (23)</TD>
+<TD align=middle width="20%" height=17>BATTLELORE</TD>
+<TD align=middle width="30%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>REPTILIAN</TD>
+<TD align=middle width="30%" height=17>CASTLE OF YESTERDAY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROYAL HUNT</TD>
+<TD align=middle width="30%" height=17>THE MISSION LTD EDITION</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>progressive-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>38 (4)</TD>
+<TD align=middle width="20%" height=17>ROB ROCK</TD>
+<TD align=middle width="30%" height=17>EYES OF ETERNITY</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>39 (15)</TD>
+<TD align=middle width="20%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=middle width="30%" height=17>INHUMANITY</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>HARD RAIN</TD>
+<TD align=middle width="30%" height=17>WHEN THE GOOD TIMES COME</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>41 (17)</TD>
+<TD align=middle width="20%" height=17>CATAMENIA</TD>
+<TD align=middle width="30%" height=17>CHAOSBORN</TD>
+<TD align=middle width="21%" height=17>AMG</TD>
+<TD align=middle width="20%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>GORGOROTH</TD>
+<TD align=middle width="30%" height=17>TWILIGHT OF THE IDOLS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ROSSOMAHAAR</TD>
+<TD align=middle width="30%" height=17>REGNUM SOMNI</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>TANZWUT</TD>
+<TD align=middle width="30%" height=17>IHR WOLLTET SPASS</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>gothic-industrial</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="30%" height=17>MICHAEL BORMANN</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>melodic hard-rock</TD></TR>
+<TR>
+<TD align=middle width="9%" height=17>46 (5)</TD>
+<TD align=middle width="20%" height=17>DGM</TD>
+<TD align=middle width="30%" height=17>HIDDEN PLACE</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>progressive</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SPIRITU</TD>
+<TD align=middle width="30%" height=17>SPIRITU</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>stoner-rock</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>ASMEGIN</TD>
+<TD align=middle width="30%" height=17>HIN VORDENDE SOD & SO</TD>
+<TD align=middle width="21%" height=17>Irond</TD>
+<TD align=middle width="20%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="9%" height=17></TD>
+<TD align=middle width="20%" height=17>SHIVA</TD>
+<TD align=middle width="30%" height=17>SHIVA</TD>
+<TD align=middle width="21%" height=17>CD-MAXIMUM</TD>
+<TD align=middle width="20%" height=17>hard-rock</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 16.12.2003 news Новости от ELIS
+
+Альбом <B>ELIS "God's Silence, Devil's Temptation"</B> до сих пор в чартах TOP-10 <B>Gothicworld charts</B>. Группа же уже закончила пре-продукцию к новому альбому. Запись его начнётся в конце года в <B>Mastersound Studios</B>, а в феврале у <B>Elis </B>намечается тур с <B>Eishelig</B>.
+Автор: Vit Belov
+
+### 16.12.2003 news ELIS recordings for new album and tour in february 2004!
+
+<SPAN><B>ELIS </B>are still in the Top 10 of the <B>Gothicworld charts</B> with their album "<B>God's Silence, Devil's Temptation</B>"! The band has finished their pre-production from the follow up album! End of the year the recordings for <B>ELIS</B>' new album will begin at <B>MASTERSOUND Studio</B>. An European tour together with <B>EISHEILIG</B> and </SPAN><B>THE VISION BLEAK</B> is planned for February 2004!
+Автор: Vit Belov
+
+### 20.09.2004 news Выходит второй альбом ELIS
+
+<P><STRONG>ELIS</STRONG>, подданные Княжества Лихтенштейн, 4 октября готовы представить на суд слушателей новейший готик-металлический эпос - <STRONG>"Dark Clouds in a Perfect Sky"</STRONG>. Альбом продюссировался в студии Mastersound под руководством Алекса Крулла. <STRONG>ELIS</STRONG> также недавно закончили съёмку видеоклипа на песню <STRONG>"Der letzte Tag"</STRONG> c нового альбома. Чтобы посмотреть видео, скачивайте его <A href="http://www.napalmrecords.com/elis.wmv">отсюда</A>, либо настраивайте тарелки своих спутниковых приёмников на передачу WOM SHOP (Viva и Viva+) 29 сентября.</P>
+Автор: Morsus
+
+### 20.09.2004 news ELIS - &quot;Dark Clouds in a Perfect Sky&quot;
+
+<P><STRONG>"Dark Clouds in a Perfect Sky"</STRONG> is the latest Gothic Metal epos from The Principality of Lichtenstein's own <STRONG>ELIS</STRONG>. The anxiously awaited follow up to their debut, <STRONG>"God's Silence, Devil's Tempation"</STRONG> is scheduled for a 4 Oct release. The album was produced at the Mastersound Studio under the expertise of Alex Krull.</P>
+<P><STRONG>ELIS</STRONG> has also recently completed work on a videoclip to <STRONG>"Der letzte Tag"</STRONG>, from their soon-to-be release album <STRONG>"Dark Clouds in a Perfect Sky"</STRONG>. The band journeyed to an obscure destination in the heart of old Europe to offer their fans a glimpse of their "last day". To view the video, simply click <A href="http://www.napalmrecords.com/elis.wmv">here</A> or tune in to the WOM SHOP (Viva and Viva+) on 29 Sept.</P>
+Автор: Morsus
+
+### 10.03.2005 reviews Нужен ли кому «дикий» восторг?
+
+<P>Группа из Лихтенштейна ELIS уже своим первым альбомом должна была порадовать поклонников gothic-metal с женским вокалом. От второй пластинки эти самые поклонники получат ровно столько же удовольствия, как и от дебюта.</P>
+<P>Хороший вокал, грамотно построенные песни, полное отсутствие брака. К сожалению, совсем недавно я рецензировал альбомы WITHIN TEMPTATION, XANDRIA, LEAVES EYES, и поэтому ELIS не произвели уже такого мощного впечатления, как в позапрошлом году. Чисто субъективно обозреваемый альбом проигрывает этим пластинкам, но придраться совершенно не к чему.</P>
+<P>Великолепная реализация от Alex Krull и Mastersound, наличие песен, как на английском, так и немецком языках, а также несколько электронно-ориентированных композиций добавляют вистов этому альбому. Безусловно, все любители подобного gothic-metal должны приобретать, но «дикого» восторга я не испытал:)) Хотя кому он нужен этот «дикий» восторг?</P>
+<P>Диск предоставлен <A href="http://www.irond.ru/">Irond</A><BR></P>
+Автор: Vit Belov
+
+### 02.06.2005 news ELIS сочиняют новый материал
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ELIS</STRONG> сочиняют песни для третьего альбома. По всей видимости в <STRONG>Mastersound Studios</STRONG> группа войдёт осенью, а пластинка увидит свет в начале 2006 года.</FONT></P>
+Автор: Vit Belov
+
+### 22.03.2006 news ELIS закончили запись
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ELIS</STRONG> закончили запись нового альбома в <STRONG>Mastersound Studio</STRONG> вместе с <STRONG>Alex Krull</STRONG>. Релиз намечен на лето на <STRONG>Napalm</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 10.07.2006 news Умерла вокалистка ELIS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=301 alt="" hspace=0 src="/images/news_rus/2006.07/10528.jpg" width=200 align=right border=5>В возрасте 29 лет от кровоизлияния в мозг&nbsp;умерла вокалистка<STRONG> ELIS Sabine Danser</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 28.08.2006 news Альбом ELIS всё-таки выйдет
+
+<P>Новый альбом<STRONG> ELIS "Griefshire"</STRONG> выйдет в октябре 2006 года. На него войдут песни, которые группа успела записать ещё при жизни вокалистки<STRONG> Sabine Danser</STRONG>, которая скончалась несколько месяцев назад.</P>
+Автор: Vit Belov
+
+### 13.09.2006 news ELIS не распадутся
+
+<P>Вчера<STRONG> ELIS</STRONG> сообщили о своём решении не прекращать своё существование после смерти вокалистки <STRONG>Sabine Danser</STRONG>. Группа находится в поисках новой певицы.</P>
+Автор: Vit Belov
+
+### 05.10.2006 news Подробности о новом альбоме ELIS
+
+<P>Новый альбом австрийской группы<STRONG> ELIS</STRONG> под названием <STRONG>"Griefshire"</STRONG> поступит в продажу с 24 ноября через <STRONG>Napalm Records. </STRONG>Продюсером альбома выступил <STRONG>Alexander Krull</STRONG> (<STRONG>ATROCITY</STRONG>, <STRONG>LEAVES' EYES),</STRONG> запись альбома велась в его собственной студии <STRONG>Mastersound</STRONG>. Этот концептуальный альбом будет посвящен ушедшей из жизни этим летом вокалистке коллектива <STRONG>Sabine Dunser,</STRONG> чей голос предстоит всем услышать последний раз на этой работе. Окончательный трек-лист выглядит следующим образом:</P>
+<P><IMG height=300 src="/images/news_rus/2006.10/10772.jpg" width=330 align=left border=10>1. <B>Tales from Heaven or Hell</B><BR>2. <B>Die Stadt</B><BR>3. <B>Show Me the Way</B><BR>4. <B>Brothers</B><BR>5. <B>Seit Dem Anbeginn Der Zeit</B><BR>6. <B>Remember the Promise</B><BR>7. <B>Phoenix from the Ashes</B><BR>8. <B>How Long</B><BR>9. <B>Innocent Hearts</B><BR>10. <B>Forgotten Love</B><BR>11. <B>The Burning</B><BR>12. <B>A New Decade</B><BR>13. <B>Heaven and Hell</B> (bonus track on digipack)<BR></P>
+Автор: Dimas
+
+### 28.12.2006 news Новая вокалистка ELIS
+
+<P><IMG height=173 alt="" hspace=10 src="/images/news_rus/2006.12/11125.jpg" width=200 align=left border=0>Gothic metal коллектив из Лихтенштейна <B>ELIS</B> представил свою новую вокалистку, которая стала заменой <B>Sabine Dunser</B>, покинувшей этот мир в июле 2006 года. Теперь, у микрофонной стойки в группе будет <STRONG>Sandra Schleret</STRONG>, известная ранее как вокалистка <B>DREAMS OF SANITY</B> и <B>SIEGFRIED</B>, также она принимала участие в записях <B>SAMAEL</B>. </P>
+Автор: Dimas
+
+### 18.08.2008 news ELIS вошли в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>ELIS</STRONG> вошли в <STRONG>Mastersound Studios</STRONG> к <STRONG>Alex Krull</STRONG> для записи нового альбома, который выйдет в начале следующего года на <STRONG>Napalm Records</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 23.10.2008 reviews Сколько можно ковать железо, пока горячо?
+
+<P>Продолжения существования gothic-metal группы ELIS вызывает вопросы не только у меня. В прошлом году скончалась вокалистка этой группы, которая была одной из её основательниц. Мало того, что оставшиеся сИроты выпустили посмертный альбом, они ещё взяли новую вокалистку и продолжили свою деятельность под старым названием. Мини-альбом «Show Me The Way» стал пробой для новой фронтвуман, небезызвестной вокалистки DREAM OF SANITY Sandra Schleret.</P>
+<P>Она, правда поёт здесь только на одной песне, три оригинальных трэка на этом EP по-прежнему исполняет покойница, и это ужасно. Возможно, стоило бы выложить эти вещи в Интернет, чтобы почтить её память, но брать студийные наработки и превращать их в полноценные релизы в течение нескольких лет после смерти главной героини? Я веду здесь речь о моральной стороне вопроса, сами песни очень не дурны. Хороший вокал Сабины сдобрен гроулингом, хорами... Всё, как положено. Да и песня с новой певицей тоже очень хорошая, вот только не можешь никак отделаться от ощущения неприятного.</P>
+<P>Хороший диск для EP. Если не обращать внимания на моральные угрызения, нужно покупать и слушать.</P>
+Автор: Vit Belov
+
+### 05.03.2009 news Новое видео от ELIS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видеоклип<STRONG> ELIS</STRONG> на песню "<STRONG>Show Me The Way</STRONG>" можно псмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/2cwoN625qSA&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/2cwoN625qSA&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 27.09.2009 news Новый альбом ELIS
+
+<P><IMG height=396 alt="" hspace=0 src="/images/news_rus/2009.09/15125.jpg" width=400 align=right border=5>Новый альбом <STRONG>ELIS</STRONG> <STRONG>"Catharsis" </STRONG>выйдет до конца года на <STRONG>Napalm Records</STRONG>. Трэк-лист:</P>
+<P>01. <B>Core Of Live</B><BR>02. <B>Twinkling Shadow</B><BR>03. <B>Warrior's Tale</B><BR>04. <B>Des Lebens Traum, des Traumes Leben</B><BR>05. <B>I Come Undone</B><BR>06. <B>Firefly</B><BR>07. <B>Morning Star</B><BR>08. <B>Das kleine Ungeheuer</B><BR>09. <B>Mother's Fire</B><BR>10. <B>Rainbow</B><BR>11. <B>The Dark Bridge</B><BR>12. <B>Ghost Of The Past</B> (bonus on digipack)<BR>13. <B>No Hero</B> (bonus on digipack)</P>
+Автор: Vit Belov
+
+### 17.12.2009 reviews ELIS продолжили без Sabine Danser
+
+<P>Все помнят, какое горе постигло группу ELIS несколько лет назад. Скоропостижно скончалась их оригинальная певица Sabine Danser. Решение продолжать деятельность коллектива уже тогда выглядело странным. Sabine была одной из двух основных персоналий в этой группе. Более того, группа существовала ко времени смерти госпожи Danser всего несколько лет и какой-то огромной популярностью не пользовалась. Но всё-таки гитарист Pete Streit решил продолжать.</P>
+<P>Новейший альбом “Catharsis” стал первым полноценным релизом с новой певицей Sandra Schleret, известной нам по DREAMS OF SANITY и SIEGFRIED. Что ж, музыка ELIS развивается всё в том же ключе. В сторону коммерческого и всем понятного gothic-metal с женским вокалом. Набор композиций на “Catharsis” очень не плох. Здесь есть и быстрые хиты, и медленные печальные композиции. Безусловно, трудно анализировать эту музыку в свете смены вокалистки. ELIS не стали ничего изобретать, а взяли певицу, которая чётко вписывается в их концепцию. В профессионализме же Sandra никто не сомневается. Лично я даже был слегка удивлён таким большим перерывом в её творческой деятельности. </P>
+<P>Хорошая пластинка с хорошим вокалом и неплохими мелодиями. По моему мнению, были у ELIS и лучшие работы, но и эта пластинка отторжения не вызывает.</P>
+Автор: Vit Belov
+
+### 10.05.2011 news Sandra Schleret покинула ELIS
+
+<P>Певица <STRONG>Sandra Schleret </STRONG>приняла решение покинуть<STRONG> ELIS</STRONG>. Девушка пробыла в коллективе четыре года, заменяя умершую <STRONG>Sabine Dunser</STRONG>. Теперь<STRONG> Sandra</STRONG> решила, что её время с группой из Лихтенштейна подошло к концу.</P>
+<P>С <STRONG>ELIS</STRONG> бывшая вокалистка <STRONG>DREAMS OF SANITY</STRONG> выпустила один полноформатный альбом "<STRONG>Catharsis</STRONG>" в 2009 году на <STRONG>Napalm Records</STRONG>.</P>
+<P><center><IMG height=280 src="/images/news_rus/2011.05/19425.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 27.02.2012 news ELIS прекратили существование
+
+<P>Группа из Лихтенштейна<STRONG> ELIS </STRONG>объявила о завершении карьеры. Это случилось после того, как коллектив покинула очередная вокалистка <STRONG>Simone Christinat</STRONG>.</P>
+<P>Оригинальная певица коллектива<STRONG> Sabine Danser</STRONG> умерла в 2006 году. После её смерти&nbsp;группа записала один полноформатный альбом с <STRONG>Sandra Schleret</STRONG>, которая также покинула <STRONG>ELIS</STRONG>. Записей с последней вокалисткой музыканты не выпускали.</P>
+<P><center><IMG height=221 src="/images/news_rus/2012.02/23156.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

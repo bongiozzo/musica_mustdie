@@ -77,6 +77,338 @@ Photos by Jouko Lehtola
 * C группой "Stratovarius" NEW STRATOVARIUS (Timo Tolkki)
 * C группой "Symfonia" NEW STRATOVARIUS (Timo Tolkki)
 
+## Публикации
+
+### 07.12.2001 news CENTURY MEDIA RECORDS Release Schedule...
+
+<p>January 22nd, 2002 <BR> PUNGENT STENCH, Masters of Moral - Servants of Sin<BR> AGATHODAIMON, Chapter III<BR> V/A, A Tribute to Accept Vol. II<BR><BR> February 5th, 2002<BR> SINERGY, Suicide By My Side<BR> TIDFALL, Instinct Gate<BR> DIMMU BORGIR, Alive in Torment (ltd. shaped picture disc)<BR><BR> February 19th, 2002<BR> LOCK UP, Hate Breeds Suffering<BR> DEW-SCENTED, Inwards<BR> TIMO TOLKKI, Hymn to Life<BR> THE DEFACED, Domination Commence <BR><BR> March 5th, 2002<BR> IMMORTAL, Sons of Northern Darkness</p>
+
+Автор: Yermola
+
+### 07.12.2001 news График релизов Century Media Records ...
+
+<p>22-е января 2002 <BR> PUNGENT STENCH, Masters of Moral - Servants of Sin<BR> AGATHODAIMON, Chapter III<BR> V/A, A Tribute to Accept Vol. II<BR><BR> 5-е февраля 2002<BR> SINERGY, Suicide By My Side<BR> TIDFALL, Instinct Gate<BR> DIMMU BORGIR, Alive in Torment (ltd. shaped picture disc)<BR><BR> 19-е февраля 2002<BR> LOCK UP, Hate Breeds Suffering<BR> DEW-SCENTED, Inwards<BR> TIMO TOLKKI, Hymn to Life<BR> THE DEFACED, Domination Commence<BR><BR> 5-е марта 2002<BR> IMMORTAL, Sons of Northern Darkness</p>
+
+Автор: Yermola
+
+### 04.02.2002 reviews Объективность, смелость и чувство ответственности
+
+<p>Объективность, смелость и чувство ответственности. Второй сольный альбом гитариста и лидера группы STRATOVARIUS Timo Tolkki спустя восемь лет после первенца. Если на первом альбоме Timo занимался гитарными упражнениями переигрывая классику и собственные сочинения, то на новом альбоме этому мало уделяется внимания. Timo на новом альбоме не выпячивает свой профессионализм и технику. Сам материал заметно отличается от материала его основной группы, что должно подкупать, не очень-то интересно слушать вариации STRATOVARIUS в исполнении музыкантов этой же группы. Он представляет собой набор медленных хард-роковых песенок напоминающих DEF LEPPARD и RAINBOW, и лиричных душевных баллад с вокалом самого Timo, под конец вас ждет длинная эпичная заглавная вещь. Под такой альбом хорошо танцевать медленные танцы. Как включишь, так и целый час придется кружиться. Так что, возьмите этот диск на заметку кавалеры, если собираетесь пригласить даму в гости. Timo сыграл партии бас-гитары, немного клавишных, спродюсировал и записал всё, и смикшировал запись альбома. В студии ему также помогали Anssi Nykanen (самый крутой финский сессионный ударник), Mika Ervaskari (первый клавишник Stratovarius с 1985 - 1987), Michael Kiske (ex-Helloween) спел "Key to the Universe", Sharon Den Adel (Within Temptation) спела "Are You the One?". Альбом глубоко эмоционален и выражает все самые интимные чувства автора открывая его богатый внутренний мир. Немного воздушная, легкая музыка, далеко выходящая за рамки металлической музыки, к коей причисляется с большой натяжкой.</p>
+
+Автор: Dimas
+
+### 23.04.2002 articles Тимо Толкки: Новый альбом Stratovarius увидит свет в январе 2003 года
+
+<p>В то время, как группа Stratovarius находится на заслуженном отдыхе её музыканты участвуют во всевозможных сайд-проектах. Первым же, кто порадовал нас своим сольным альбомом стал лидер коллектива гитарист Тимо Толки. С ним и встретился корреспондент греческого web-zine Tombstone. <BR> <IMG SRC="/images/articles_rus/2002.04/2623.jpg" ALT="pho" width=200 height=300 hspace="15" vspace="5" border="1" align="left"> - Тимо, в прошлой раз мы разговаривали с тобой около года назад в поддержку последнего альбома Stratovarius. Помню, ты сказал, что нового альбома Stratovarius не будет, как минимум два года, правда ты и не упоминал про сольный альбом. Почему ты решил его записать? <BR> <B>- По правде говоря, были разные причины, одной из причин было то, что у меня появилось много свободного времени, из-за перерыва в творчестве основной команды. Во-вторых, мне хотелось написать материал о моей личной жизни. Это очень персональная запись, и я думаю, что она сильно отличается от того, что я когда-либо делал со Stratovarius.</B><BR> - Расскажи мне, какие вещи ты хотел передать слушателю, из тех что ты не можешь передать со Stratovarius. <BR> <B>- Я считаю, ты прав, говоря, что этот материал не мог быть записан под маркой Stratovarius. Это невозможно, как по музыке, так и по текстам. Особенно это касается музыки, потому что я считаю, что музыкально Stratovarius – это такой вид динозавра. Конечно, динозавр в хорошем смысле слова. Альбом Stratovarius должен звучать в одном ключе с предшественниками, это никак не перекликается с моим сольником.</B><BR> - Почему ты назвал альбом “Hymns Of Life” (Гимны жизни)?<BR> <B>- Я думаю, это название хорошо передаёт общее настроение альбома. Я имею в виду, что если ты вслушаешься во все песни, ты увидишь, что все они чем-то напоминают гимны жизни. Как только мне пришло на ум это название, я сразу понял, как оно подходит.</B><BR> - Несмотря на то, что вся музыка навевает меланхолические чувства, тексты иногда очень позитивные. Как ты это совместил? <BR> <B>- Ну, это, как сама жизнь. Бывают очень депрессивные моменты, бывают и очень позитивные. Я думаю, первое вдохновило меня на музыку, а второе на тексты, и это хороший способ описать обе стороны жизни. Но мне кажется, что всё-таки этот альбом достаточно мрачен. Я думаю, что в этом альбоме лирика даже более важна, чем музыка. Очень важно прочитать слова, чтобы полностью понять альбом. Тексты это та вещь, которая придаёт значение данному альбому.</B><BR> - О чём она рассказывает? <BR> <B>- В общем, я писал о своём прошлом, о детстве, о Боге, вселенной, обществе, личных отношениях, злости, ненависти, любви и о чём-то подобном.</B><BR> - Можем мы сказать, что это декларация Тимо Толки, или может быть биография? <BR> <B>- Это точно не декларация. Но это достаточно биографичная пластинка. Декларация звучит слишком тяжело, я ничего не хочу проповедовать. Это мои персональные взгляды, и я не хочу, чтобы люди смотрели на это слишком серьёзно. Это только моё мнение! Я думаю жизнь – это комедия, чёрная комедия.</B><BR> - Почему так? <BR> <B>- Потому что жизнь пародоксальна.</B><BR> - Если, как ты сказал это автобиографический альбом, песни расположены хронологически или связаны как-то иначе? <BR> <B>- Если это и так, то я не делал этого сознательно. Но я не думаю, что это так.</B><BR> - Если быть честным, есть вещь, которая мне не нравится в твоём альбоме. Это не тексты или музыка – это кавер-арт. <BR> <B>- Да? Во-первых, это не конечный вариант. Две фигуры, которые сейчас там присутствуют, исчезнут в конечном варианте. В оригинальной концепции два человека не замечают эту долину, в которой представлены безумие современного общества и всё зло в Мире. Я думаю, что Дерек Риггс сделал потрясающую работу, и кавер точно передаёт настроение альбома.</B><BR> - Когда ты писал альбом, что у тебя было на уме? <IMG SRC="/images/articles_rus/2002.04/2624.jpg" ALT="pho" width=220 height=147 hspace="15" vspace="5" border="1" align="right"> <BR> <B>- Ничего, абсолютно ничего. Я не думал о чём-то специально. У меня очень интересный способ писать песни. Я беру кусок бумаги и записываю названия песен, которые постоянно находятся у меня перед глазами. Затем я думаю, что заинтересовывает меня в этих названиях, а уж потом я пишу музыку. Вы никогда не думаете о чём-то таком, когда делаете вещи, которые вам знакомы, например, ведёте машину.</B><BR> - Все песни новые или у тебя были какие-то наработки в течение времени? <BR> <B>- Нет. Все они новые, написаны в феврале прошлого года.</B><BR> - Ты поёшь на альбоме? <BR> <B>- Да. Но я не буду больше петь в Stratovarius, потому что всё настолько классно у нас в группе в данный момент, что менять что-то было бы неправильно. Я наблюдаю эволюционный процесс и считаю, что всё великолепно. Я знаю, многие люди упрекают нас, что мы никогда не меняем нашей музыки. Но я думаю, что если вы сравните наши альбомы, вы увидите какие они разные. Кстати, я не очень люблю петь.</B><BR> - Говоря о Stratovarius, в каком направлении развивалась группа в прошлые годы?<BR> <B>- В разных направлениях. Вы можете заметить эволюцию в различных аспектах. Лирика, музыка, музыка развивалась в направлении расширения кругозора и включения новых элементов, особенно на “Infinite”.</B><BR> - Я так понимаю, ты уже начал писать новый альбом для Stratovarius? <BR> <B>- Да, мы начали. Мы планируем войти в студию в мае этого года для записи новых песен. Если всё пойдёт, как планировалось, альбом выйдет в январе 2003 года.</B><BR> Быстро время-то пролетело. Уже скоро, лэйблы получат новые деньги, Stratovarius получит порцию любви зрителей, а фэны купят новый альбом сей выдающейся команды. Будем ждать, чем ещё новеньким порадуют нас музыканты, и порадуют ли вообще.</p>
+
+Автор: Vit Belov
+
+### 10.04.2004 articles TOP-50 лицензионных дисков за март
+
+<TABLE cellSpacing=0 cellPadding=0 width=609 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 145pt" width=193>
+<COL style="WIDTH: 216pt" width=288>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=193><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD width=288><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>IN FLAMES</B></TD>
+<TD><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CRUACHAN</B></TD>
+<TD><B>PAGAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD width=193><B>PELL, AXEL RUDI</B></TD>
+<TD width=288><B>KINGS AND QUEENS</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>6 (12)</B></TD>
+<TD width=193><B>MY DYING BRIDE</B></TD>
+<TD width=288><B>SONGS OF DARKNESS WORDS OF LIGHT</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NORTHER</B></TD>
+<TD><B>DEATH UNLIMITED</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>GREED (mini CD + multimedia bonus)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=193><B>PAIN OF SALVATION</B></TD>
+<TD><B>12:05</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (39)</B></TD>
+<TD width=193><B>UFO</B></TD>
+<TD width=288><B>YOU ARE HERE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>DISMEMBER</TD>
+<TD>WHERE IRONCROSSES GROW</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>UDO</TD>
+<TD width=288>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORYTELLER, THE</TD>
+<TD>TALES OF A HOLY QUEST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN FLAMES</TD>
+<TD>THE QUIET PLACE (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ENTWINE</TD>
+<TD>DIEVERCITY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>16 (6)</TD>
+<TD>BESEECH</TD>
+<TD>DRAMA + multimedia section</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATAKLYSM</TD>
+<TD>SERENITY IN FIRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ARDA</TD>
+<TD width=288>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>METALIUM</TD>
+<TD>AS ONE CHAPTER FOUR + multimedia bonus</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KARELIA</TD>
+<TD>USUAL TRAGEDY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (3)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>23 (10)</TD>
+<TD>DRACONIAN</TD>
+<TD>WHERE LOVERS MOURN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>SUN CAGED</TD>
+<TD width=288>SUN CAGED</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HOCICO</TD>
+<TD>SIGNOS DE ABERRACHON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (7)</TD>
+<TD>EXODUS</TD>
+<TD>TEMPO OF THE DAMNED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>BRAVE MURDER DAY + 7 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KATATONIA</TD>
+<TD>DISCOURAGED ONES +4 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SANGUIS ET CINIS</TD>
+<TD>TH1RTE3N</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>ADAGIO</TD>
+<TD width=288>UNDERWORLD</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (1)</TD>
+<TD>ЭПИДЕМИЯ</TD>
+<TD>ЭЛЬФИЙСКАЯ РУКОПИСЬ</TD>
+<TD>Moroz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (4)</TD>
+<TD>HYPOCRISY</TD>
+<TD>THE ARRIVAL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=193>VENINNOIR</TD>
+<TD width=288>RAINY DAYS OF OCTOBER</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>VIRTUOCITY</TD>
+<TD>NORTHERN TWILIGHT SYMPHONY</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>36 (5)</TD>
+<TD>THUNDERSTONE</TD>
+<TD>THE BURNING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HEARSE</TD>
+<TD>ARMAGEDDON, MON AMOUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TIMO TOLKKI</TD>
+<TD>CLASSICAL VARIATIONS AND THEMES</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>ANTHEMS OF REBELLION</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (Re)</TD>
+<TD>STRATOVARIUS</TD>
+<TD>ELEMENTS PART 2</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EKTOMORF</TD>
+<TD>DESTROY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAIN PAINT</TD>
+<TD>NIHIL NISI MORS</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>44 (47)</TD>
+<TD>DEATHSTARS</TD>
+<TD>SYNTHETIC GENERATION +2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>45 (Re)</TD>
+<TD>DIMMU BORGIR</TD>
+<TD>DEATH CULT ARMAGEDDON +1 bonus track</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (Re)</TD>
+<TD>SAMSAS TRAUM</TD>
+<TD>TINEOIDEA ODER DIE FOLGEN EINER NACHT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (2)</TD>
+<TD>EDGUY</TD>
+<TD>KING OF FOOLS (mini CD + multimedia bonus)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (28)</TD>
+<TD width=193>TVANGESTE</TD>
+<TD width=288>FIRESTORM</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>RAUNCHY</TD>
+<TD>CONFUSION BAY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DIORAMA</TD>
+<TD>HER LIQUID ARMS</TD>
+<TD>Irond - DD</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 26.01.2007 news Timo Tolkki сочиняет оперу
+
+<P><STRONG>Timo Tolkki (STRATOVARIUS)</STRONG> подготовил новый проект - классическую рок-оперу “<STRONG>Saana-Warrior of Light</STRONG>”. Оперу будут петь семь вокалистов, пока известна только исполнительница главной партии <STRONG>Saana</STRONG> - оперная певица из США <STRONG>Jennifer Sowle</STRONG>. Пластинка выйдет осенью на <STRONG>Frontiers</STRONG>. Подробности последуют.&nbsp;</P>
+Автор: Vit Belov
+
+### 20.02.2008 news Timo Tolkki разорвал контракт с Frontiers
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лидер <STRONG>STRATOVARIUS Timo Tolkki</STRONG>, записавший классическую рок-оперу <STRONG>"Saana - Warrior of Light Part 1: Journey to Crystal Island"</STRONG>, объявил о разрыве контракта с <STRONG>Frontiers</STRONG>, из-за несоблюдения лэйблом его обязательств. В ответ на заявление музыканта <STRONG>Frontiers</STRONG> сообщили, что выпустят диск в любом случае. <STRONG>Timo Tolkki</STRONG> рассказал, что лэйбл имеет в своём распоряжении только MP3 этой работы. Пластинка теперь выйдет на собственном лэйбле гитариста <STRONG>Goldenworks</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 09.03.2008 news Timo Tolkki помирился с Frontiers
+
+<P><STRONG>Timo Tolkki</STRONG> исчерпал свои разногласия о выпуске сольного альбома <STRONG>"Saana – Warrior of Light Pt. 1" </STRONG>с <STRONG>Frontiers</STRONG>. Новый договор гластит, что пластинка выйдет на этом на собственной фирме гитариста <STRONG>STRATOVARIUS</STRONG>,&nbsp;а итальянский лэйбл получит назад инвестированные в проект деньги.</P>
+Автор: Vit Belov
+
+### 03.04.2008 news STRATOVARIUS прекратили существование
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Timo Tolkki</STRONG> сообщил, что <STRONG>STRATOVARIUS</STRONG> больше не существует. Гитарист заявил, что музыкантам группы это было известно уже в октябре. Также <STRONG>Timo</STRONG> опубликовал неформальное заявление, в котором раскрыл причины произошедшего. Как мы могли предположить, всё связано с неразрешимыми противоречиями между <STRONG>Tolkki </STRONG>и <STRONG>Kotipelto</STRONG> с <STRONG>Jorg Michael</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А альбом нового проекта гитариста <STRONG>STRATOVARIUS Timo Tolkki</STRONG> <STRONG>REVOLUTION RENAISSANCE</STRONG> под названием <STRONG>"New Era" </STRONG>выйдет уже 6 июня на <STRONG>Frontiers</STRONG>. Мы уже сообщали, что на пластинку вошли песни, которые <STRONG>Timo</STRONG> сочинял для нового альбома<STRONG> STRATOVARIUS</STRONG>. Музыкант обещает материал в духе "<STRONG>Visions</STRONG>". Песни на пластинке исполнят <STRONG>Michael Kiske</STRONG> и<STRONG> Tobias Sammett</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 26.02.2009 news Новый проект Timo Tolkki
+
+<P>Бывший гитарист <STRONG>STRATOVARIUS Timo Tolkki</STRONG> объявил о создании ещё одного проекта. Вместе с такими же бывшими, как и он, барабанщиком <STRONG>Tuomo Lassila </STRONG>и клавишником <STRONG>Anti Ikonen</STRONG>, <STRONG>Timo </STRONG>запишет альбом <STRONG>"Return To Dremspace". </STRONG>Названия у&nbsp;коллектива пока нет, оно будет опубликовано после общения с фэнами.&nbsp;</P>
+Автор: Vit Belov
+
+### 03.12.2011 news Исповедь старого металиста
+
+<P><IMG height=468 alt="" hspace=0 src="/images/news_rus/2011.12/22247.jpg" width=350 align=right border=0>Бывший гитарист <STRONG>STRATOVARIUS Timo Tolkki</STRONG> рассказал о своей нелёгкой судьбе в своём дневнике на страничке <STRONG>Facebook</STRONG>. Последней на сегодня записью музыканта стал альбом группы <STRONG>SYMFONIA</STRONG> с вокалистом <STRONG>Andre Matos</STRONG> у микрофона. Видимо, <STRONG>Timo Tolkki</STRONG> и положение на современной сцене вещи несовместимые.</P>
+<P>"<EM>Я не знаю, какому количеству людей интересно то, что я здесь пишу, но меня, если честно, это не очень волнует. Мне просто хочется записать некоторые мысли о SYMFONIA и других вещах, происходящих в моей жизни. Всё началось с двух фэнов, которые подошли ко мне пожать руку после последнего концерта тура по Южной Америке. После трёх ночей в мотеле с грязно-серыми бетонными стенами, похожем на тюрьму, в Сантьяго и после 28-часового перелёта для выступления перед 100-350 фэнами я подумал, что то, что они сказали может быть правдой. А сказали они: "Хей, Тимо, разве ты не видишь, что всё кончено?</EM>"</P>
+<P>Вот, что<STRONG> Timo</STRONG> рассказал про деятельность группы<STRONG> SYMFONIA</STRONG>:</P>
+<P>"<EM>Andre Matos достаточно ясно мне сказал, что мы не будем выступать с концертами, если это не будет приносить денег. В общем-то, я согласился, но в то же время я знал людей, которые рассматривали нас как новую группу, а не как суперпроект. Барабанщик Uli Kusch покинул группу в середине записи вокала. Он прислал мне сообщение, в котором написал, что больше не будет давать концертов в своей жизни, так как устал от зассанных гримёрок и утомительных путешествий. Я попытался объяснить ему, что это не то, о чём мы договаривались, но он ответил, что SYMFONIA могут использовать его имя на втором альбоме за 10000 Евро, вернее, за 13000 Евро, включая налог. Я даже не стал отвечать на это, потому что не смог поверить свои глазам, когда прочёл сообщение</EM>".</P>
+<P>"<EM>Andre Matos&nbsp;нашёл инвестора в Южной Америке, и мы отправились в тур", -</EM> продолжает <STRONG>Timo</STRONG><EM>. "Не хочу больше слышать слова&nbsp;"инвестор". Мы летели 30 часов по маршруту Хельсинки-Франкфурт-Рим-Сан-Паоло лишь для того, чтобы услышать, что тур отменён. Я уже собирался лететь домой, но нас оставили, организовав&nbsp;на скорую руку шесть концертов. Это был самый тяжёлый и самый ужасный тур в моей карьере. Клавишник Mikko Harkin&nbsp;заработал пневмонию. Когда я лежал два дня в темноте в отеле Формула-1, самый дешёвый отель в тех краях, я начал задумываться о своём будущем как музыканта</EM>".</P>
+<P>"<EM>Когда я увидел цифры продаж, присланные мне Edel&nbsp;и получил сообщение от нашего концертного агента, касаемо выступлений на фестивалях в 2012 году, я понял что пора завязывать. Глупо пытаться завоевать метал-сцену, когда нет достаточной отдачи. Не поймите меня превратно, можно работать и без должной отдачи, но я оборачиваюсь на свою карьеру - 3000 концертов, 20 лет, 20 альбомов - я сделал достаточно</EM>".</P>
+<P>"<EM>Думаю, многие из вас знают, что я страдаю биполярным расстройством. Это одно из самых скверных психических заболеваний, которое невозможно вылечить. Рецепт лишь один, жизнь без стресса, а туры нельзя отнести&nbsp;к подобному образу жизни. Что сказать о будущем? Возможно, я больше не вернусь в студию</EM>", - заканчивает музыкант.&nbsp;</P>
+<P>Видимо, "<STRONG>Return To Dreamspace</STRONG>" мы так и не услышим?</P>
+Автор: Vit Belov
+
+### 22.05.2012 news Timo Tolkki решил собрать денег
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=572 alt="" hspace=0 src="/images/news_rus/2012.05/24001.jpg" width=337 align=right border=0>Финский гитарист <STRONG>Timo Tolkki</STRONG> решил обратиться к фанатам через сайт <STRONG>PledgeMusic.Com</STRONG> для сбора средств на запись нового сольного альбома <STRONG>"Classical Variations 2: Credo"</STRONG>. Альбом должен выйти 29 октября, и в его&nbsp;записи примут участие <STRONG>Michael Kiske</STRONG> (ex-<UNISONIC< b><B>HELLOWEEN</B>), <B>Jens Johansson</B> (<B>STRATOVARIUS</B>), <B>Derek Sherinian</B> (<B>BLACK COUNTRY COMMUNION</B>, <B>DREAM THEATER</B>), <B>Tuomo Lassila</B> (основатель <B>STRATOVARIUS</B>), <B>Michael Vescera</B> (<B>OBSESSSION</B>, <B>LOUDNESS</B>, <B>YNGWIE MALMSTEEN</B>), <B>Michele Luppi</B> (<B>THAUROROD</B>, ex-<B>VISION DIVINE</B>). Также состоится долгожанный релиз альбома <STRONG>"Dreaming In Twilight" </STRONG>с перезаписанными 12 треками с первых трх альбомов <STRONG>STRATOVARIUS</STRONG>:</FONT></P>
+<P>* <B>Future Shock</B><BR>* <B>Witch Hunt</B><BR>* <B>Night Screamer</B><BR>* <B>The Hands Of Time</B><BR>* <B>The Hills Have Eyes</B><BR>* <B>Out Of The Shadows</B><BR>* <B>4th Reich</B><BR>* <B>Abyss</B><BR>* <B>Dreamspace</B><BR>* <B>Eyes Of The World</B><BR>* <B>Wings Of Tomorrow</B><BR>* <B>Hold On To Your Dream</B></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -156,6 +156,45 @@ Kasia Molenda – Vocals
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.09.2002 news Cemetery Of Screams are working on the new album
+
+<p>Cemetery Of Screams are working on the new mini-album which is planned to be released at the end of this year. The full length album should be ready latter of next year.</p>
+
+Автор: Morsus
+
+### 06.09.2002 news Cemetery Of Screams работают над новым альбомом
+
+<p>Cemetery Of Screams работают над новым мини-альбомом, который появится в конце этого года. Полный альбом должен быть готов только к концу следующего года.</p>
+
+Автор: Morsus
+
+### 03.01.2003 reviews Трилогия угасающего Мира
+
+<p>Великолепная пластинка, выходящая за рамки обычного gothic-doom metal. Польские мастера расширяют границы стиля и занимают независимую позицию. Наполненная безысходностью жизни и тихой скорбью по уходящей реальности данная работа воспринимается, как некий симбиоз стилей близких к готике. Чистейшая реализация и мастерство исполнителей не оставляют места для придирок. Музыка, в меру тяжёлая и в меру мелодичная, с чистым вокалом и гроулингом, с быстрыми номерами и медленными пассажами... Предлагаю всем отведать сего изыскнного блюда, не пожалеете.</p>
+
+Автор: Vit Belov
+
+### 03.01.2003 reviews Trilogy of dying World
+
+<p>Magnificent CD which come out from frameworks of usual gothic-doom metal. Polish masters enlarge borders of style and occupy independent position. This work is filled by hopelessness of life and quiet grief about fading reality. Album is perceived as certain symbiosis of near gothic styles. Cleanest realization and skill of musicians don't give the place to find fault. Music is heavy and melodious moderatly, with clean vocal and growling, with fast tracks and slow passages... I offer to taste this delicacy. You will not be sorry.</p>
+
+Автор: Vit Belov
+
+### 10.12.2008 news CEMETERY OF SCREAM назвали альбом
+
+<P>Новый альбом поляков <STRONG>CEMETERY OF SCREAM</STRONG> будет называться "<STRONG>Frozen Images</STRONG>" и выйдет 26 января на <STRONG>Metal Mind</STRONG>.</P>
+Автор: Vit Belov
+
+### 23.01.2009 news Новая песня CEMETERY OF SCREAM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=350 alt="" hspace=0 src="/images/news_rus/2009.01/13441.jpg" width=350 align=right border=5>Новый альбом<STRONG> CEMETARY OF SCREAM "Frozen Images"</STRONG> выходит 29 января на<STRONG> Metal Mind</STRONG>. Новую песню "<STRONG>In Your Blood</STRONG>" можно послушать на официальной <STRONG>MySpace</STRONG> страничке лэйбла. Трэк-лист:</FONT></P>
+<P>1. <STRONG>The Ashes Bridge</STRONG><BR>2. <STRONG>Bluebird<BR></STRONG>3. <STRONG>Prince Of The City's Lights</STRONG><BR>4. <STRONG>Geisha Out Of Dreams<BR></STRONG>5. <STRONG>Million As One<BR></STRONG>6.<STRONG> In Your Blood <BR></STRONG>7. <STRONG>Sapphire Sun</STRONG> <BR>8. <STRONG>Golden Lullaby</STRONG> <BR>9. <STRONG>Cat's Grin</STRONG><BR>10. <STRONG>Black Flowers</STRONG><BR>11. <STRONG>Ritual Fire Dance</STRONG><BR>12. <STRONG>Night In White Satin</STRONG></P>
+<P>Ссылка: <A href="http://www.myspace.com/metalmindproductions">http://www.myspace.com/metalmindproductions</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

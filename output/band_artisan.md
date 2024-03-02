@@ -21,6 +21,20 @@ Vortex, Mustis etc
 * C группой "Borknagar" Jens F. Ryland (guitar)
 * C группой "ICS Vortex" Jens F. Ryland (guitar)
 
+## Публикации
+
+### 04.07.2011 news ARTISAN: Новый проект Jens F. Ryland
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первое музыкальное видео <STRONG>ARTISAN</STRONG>, проекта гитариста <STRONG>BORKNAGAR Jens F. Ryland</STRONG>, можно посмотреть ниже. Необычный ролик был подготовлен&nbsp;музыкантом&nbsp;с использованием кадров из игры <STRONG>"Age Of Conan", </STRONG>которой вдохновлялся <STRONG>Jens</STRONG>. В составе коллектива:</FONT></P>
+<P>* <B itxtHarvested="0" itxtNodeId="17">ICS Vortex</B> (ex-DIMMU BORGIR, ICS VORTEX, BORKNAGAR, ARCTURUS) – Bass, Vocals<BR itxtNodeId="16">* <B itxtHarvested="0" itxtNodeId="15">Mustis</B> (ex-DIMMU BORGIR) - Keyboards<BR itxtNodeId="14">* <B itxtHarvested="0" itxtNodeId="13">Asgeir Mickelson</B> (ex-BORKNAGAR, ex-TESTAMENT, SPIRAL ARCHITECT. SARKE, ICS VORTEX) - Drums, Guitar<BR itxtNodeId="12">* <B itxtHarvested="0" itxtNodeId="11">Jens F. Ryland</B> (BORKNAGAR, ICS VORTEX) - Guitar, Video Production</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/uvQhNEsaHC0?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/uvQhNEsaHC0?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

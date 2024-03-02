@@ -22,6 +22,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.09.2011 news FROZEN DAWN на Mighty Hordes Productions
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2011.09/21275.jpg" width=200 height=200>Испанцы <STRONG>FROZEN DAWN</STRONG> выпустили дебютный альбом <STRONG>"The Old Prophecy Of Winterland"</STRONG> на <STRONG>Mighty Hordes Productions</STRONG>. Группа представляет настоящий old school black-metal в духе<STRONG> SATYRICON</STRONG> и <STRONG>DARKTHRONE</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Cold Winds</STRONG> <BR>2. <STRONG>Black Spells</STRONG> <BR>3. <STRONG>The Order of the Winter Moon</STRONG><BR>4. <STRONG>Through the Gates of Hate</STRONG>&nbsp; <BR>5. <STRONG>Cold Souls</STRONG> <BR>6. <STRONG>Dark Lady</STRONG>&nbsp; <BR>7. <STRONG>Calm Before the Storm</STRONG> <BR>8. <STRONG>Winds from the North</STRONG> <BR>9. <STRONG>Frozen Dawn<BR></STRONG>10. <STRONG>The Old Prophecy of Winterland</STRONG>&nbsp; <BR>11. <STRONG>Fuel for Hatred</STRONG> (Satyricon cover)</P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/truefrozendawn">http://www.myspace.com/truefrozendawn</A>&nbsp;</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

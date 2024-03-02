@@ -162,6 +162,221 @@ Ariлn Van Weesenbeek - drums
 * C группой "Epica" Arien van Weesenbeek (drums)
 * C группой "Mayan" Arien van Weesenbeek (drums)
 
+## Публикации
+
+### 01.04.1999 news 
+
+<p>Новые альбомы Immolation "Failure For Gods" и God Dethroned "Bloody Blaphemey" выйдут 1 июня.</p>
+
+Автор: Vit Belov
+
+### 13.09.2000 news God Dethroned работают над третьим альбомом
+
+<p> God Dethroned занимаются сочинением материала к своему третьему альбому "Ravenous", для Metal Blade. В октябре фэны смогут купить диск "The Ancient Ones", включающий демо, раритетные и прочие нереализованные вещи, и, также, первое видео группы.</p>
+
+Автор: Nybras
+
+### 28.09.2000 news У God Dethroned новый драммер
+
+<p> God Dethroned сообщили, что нашли замену ушедшему недавно из группы барабанщику Роэлю Сандерсу, который покинул товарищей, чтобы полностью посвятить себя своей другой группе Inhume. Новый драммер Тони вместе с группой запишет альбом "Ravenous".</p>
+
+Автор: Nybras
+
+### 28.09.2000 news News from God Dethroned
+
+<p> GOD DETHRONED announce they have found a new drummer. As Roel Sanders left the band to concentrate more on his other band INHUME, the Dutch recruited Tony, most of you should be familiar with him as he used to drum for Angel Corpse (R.I.P.). Tony will record the new album "Ravenous" with the band and tour with them the world next year.</p>
+
+Автор: Nybras
+
+### 18.11.2000 news God Dethroned закончили запись нового альбома
+
+<p> God Dethroned закончили запись своего четвертого альбома под названием "Ravenous". Альбом был записан с новым барабанщиком Тони Лауреано (Angel Corpse), который заменил покинувшего группу Роэля Сандерса.</p>
+
+Автор: Nybras
+
+### 02.03.2001 news Anti-Christian Message....
+
+<p>Дата выхода нового анти-христианского послания GOD DETHRONED - Ravenous передвинута на 24 Апреля. По словам Sattler альбом получился более провокационным: "Власть церкви в общем-то уже закончилась. Так почему мы так серьезно относимся к ним?" Вернувшийся на время барабанщик Roel вновь покидает команду и им придется искать срочную замену.</p>
+
+Автор: Yermola
+
+### 02.03.2001 news Anti-Christian Message....
+
+<p>GOD DETHRONED's new album, Ravenous, is slated for North American release on April 24th. Despite the band's name and the provocative, anti-Christian message, the band are having more fun with a bent form of sacriledge than many of their peers. "The power of the church is gone already," Sattler says, "So why we should be that serious about it? The funny part is though that people who don't know the band, or people who are into religion, are really frightened by the way we expose ourselves. And that's good." Due to other obligations, the band's drummer, Roel, will be leaving shortly, and Sattler's immediate task will be to audition a new drummer.</p>
+
+Автор: Yermola
+
+### 04.05.2001 news Свергнутый с трона бог....
+
+<p>Голландцы "GOD DETHRONED" всю следующую неделю будут заняты прослушиванием разных барабанщиков дерзающих занять вакантное место за ударной установкой. Временно исполнявший обязанности Janne Saarenpaa ("THE CROWN") вернулся в родные пенаты для участия в No Mercy Festivals.</p>
+
+Автор: Yermola
+
+### 04.05.2001 news GOD DETHRONED will be auditioning drummers .....
+
+<p>Holland's GOD DETHRONED will be auditioning drummers next week after THE CROWN skinsman Janne Saarenpaa returned to his full-time gig following the completion of the recent No Mercy Festivals. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 17.08.2001 news Фестиваль в поддержку Шульдинера...
+
+<p>Голландская металлическая общественность организует фестиваль с целью помочь тяжело больному лидеру Death оплатить счета за лечение. 14-го октября в Тилбурге и пройдет весь этот THE OFFICIAL CHUCK SCHULDINER TRIBUTE FESTIVAL. Принимают участие: GOD DETHRONED, ALTAR, GODDES OF DESIRE, OCCULT, CALLENISH CIRCLE, SEVERE TORTURE, THANATOS, MANGLED, SHADOWBREED, OUTBURST и FLESH MADE SIN. Если вы лично можете чем-то помочь, пишите на адрес: metalmania@home.nl. Подробная информация <a href="http://come.to/chucktribute">здесь.</a></p>
+
+Автор: Yermola
+
+### 17.08.2001 news THE OFFICIAL CHUCK SCHULDINER TRIBUTE FESTIVAL ...
+
+<p>Holland’s THE OFFICIAL CHUCK SCHULDINER TRIBUTE FESTIVAL will be held on October 14th in Tilburg, and it will include the following line-up of performers: GOD DETHRONED, ALTAR, GODDES OF DESIRE, OCCULT, CALLENISH CIRCLE, SEVERE TORTURE, THANATOS, MANGLED, SHADOWBREED, OUTBURST, FLESH MADE SIN. For more information, write to metalmania@home.nl, or visit the web site at: <a href="http://come.to/chucktribute">http://come.to/chucktribute</a> Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 13.09.2001 news Новое видео GOD DETHRONED ...
+
+<p>На сайте <a href="http://www.metalblade.de/gdvvvideo.html">Metal Blade Records </a>можно скачать и посмотреть новое видео "GOD DETHRONED" - "Villa Vampiria" в виде MP4...</p>
+
+Автор: Yermola
+
+### 13.09.2001 news New GOD DETHRONED - Video &quot;Villa Vampiria&quot; ....
+
+<p>You can download new GOD DETHRONED - Video "Villa Vampiria" at <a href="http://www.metalblade.de/gdvvvideo.html">Metal Blade Records site...</a></p>
+
+Автор: Yermola
+
+### 19.02.2002 news God Dethroned пишут новые песни
+
+<p>God Dethroned в настоящее время сочиняют песни для очередного альбома. Его рабочее название - "The Universal Slavedriver".</p>
+
+Автор: Morsus
+
+### 19.02.2002 news God Dethroned is writing new songs
+
+<p>God Dethroned is currently writing songs for the new album. The working title is "The Universal Slavedriver".</p>
+
+Автор: Morsus
+
+### 14.12.2002 news Новости от GOD DETHRONED
+
+<p>Голландские death-металлеры GOD DETHRONED завершили работу над своим новым альбомом, который будет называться "Into the Lungs of Hell". Альбом содержит восемь вещей на 38 минут. Трэк-лист альбома:</p>
+<p> 01. Into The Lungs Of Hell <BR> 02. The Warcult <BR> 03. Enemy Of The State<BR> 04. Soulsweeper <BR> 05. Slaughtering The Faithful<BR> 06. Subliminal <BR> 07. The Tombstone <BR> 08. Gods Of Terror</p>
+<p> Также, ограниченным тиражом выйдет лимитированное издание альбома со вторым бонус-диском, куда войдут концертные записи с шоу в Лос-Анджелесе, два видеоклипа "Villa Vampiria" и "Under the Golden Wings of Death", нереализованные ранее трэки и кавер POSSESSED "Satan's Curse".</p>
+
+Автор: Dimas
+
+### 20.07.2003 reviews Ничем не примечательный альбом
+
+<p>Абсолютно ничем не примечательный альбом. Что называется, в одно ухо влетает, из другого вылетает. Это по-прежнему немного приблэкованный дэт, по-прежнему качественно сыгранный и качественно же записанный… но толку от этой качественности, если здесь абсолютно не за что зацепиться?.. Запоминается разве что заглавная композиция, да пояснения к текстам… Alles.</p>
+<P><I>Диск предоставлен компанией <B><A HREF="http://www.fono.ru">ФОНО</A></B></I></p>
+
+Автор: Kai Mathias Stalhammar
+
+### 18.09.2003 news GOD DETHRONED have been added to the bill of the Bonded By Metal Over Europe Tour...
+
+Dutch masters of blasphemy GOD DETHRONED have been added to the bill of the Bonded By Metal Over Europe Tour, which also includes EXODUS, NUCLEAR ASSAULT, CALLENISH CIRCLE, plus antoher five bands. The confirmed dates are as follows: <br><br>
+
+07.10. FR RENNES – ANTIPODE<br>
+08.10. UK SCHEFFIELD – CORPORATION<br>
+09.10. UK LONDON – CAMDEN PALACE<br>
+10.10. NL EINDHOVEN – EFFENAAR<br>
+11.10. BL ANTWERPEN – HOF TER LOO<br>
+12.10. FR PARIS – LA LOCOMOTIVE<br>
+13.10. D ESSEN – ZECHE CARL<br>
+14.10. D BERLIN – COLUMBIA HALLE FRITZ<br>
+15.10. D HAMBURG – MARKTHALLE<br>
+16.10. D MUNSTER(breitefeld)- LIVE ARENA<br>
+17.10. D BISCHOFSWERDA – HANGAR<br>
+18.10. D MUNCHEN – BACKSTAGE<br>
+19.10. CZ BRNO – BABYLON<br>
+20.10. A INNSBRUCK – HAFEN<br>
+21.10. CH PRATTELN – Z7<br>
+22.10. ITA MILANO – ALCATRAZ<br>
+23.10. FR T.B.A.<br>
+24.10. SP BARCELONA – LA CAPSA<br>
+25.10. SP MADRID – AQUALING<br>
+26.10. PR PORTO – HARD CLUB
+Автор: Yermola
+
+### 21.06.2004 news GOD DETHRONED войдут в студию в июне
+
+<P><B>GOD DETHRONED</B> готовятся войти в <B>Berno Studios</B>&nbsp;в июле для записи нового альбома. Группа запишет&nbsp;9 новых песен, а альбом выйдет в конце этого - в начале следующего года.&nbsp;</P>
+Автор: Vit Belov
+
+### 08.07.2004 news GOD DETHRONED назвали новый альбом
+
+<P>Новый альбом <B>GOD DETHRONED</B> будет называться <B>"The Lair of the White Worm" </B>и выйдет в ноябре на <B>Metal Blade</B>. Приблизительный трэк-лист:</P>
+<P>01. <B>The Lair of the White Worm</B> <BR>02. <B>Nihilism</B><BR>03. <B>Salt in your Wounds</B> <BR>04. <B>The Last Zip of Spit</B> <BR>05. <B>Loyal To The Crown of God Dethroned</B> <BR>06. <B>Rusty Nails</B> <BR>07. <B>Sigma Enigma</B> <BR>08. <B>Arch Enemy Spain</B> <BR>09. (untitled) <BR></P>
+Автор: Vit Belov
+
+### 19.07.2005 reviews Логово белого червя
+
+<P>Нет, сейчас речь пойдёт не о произведении Брэма Стокера. Так называется новый альбом голландской дэт-группы <STRONG>God Dethroned</STRONG>. В Голландии дэт-метал умеют играть. Достаточно вспомнить такие группы, как Sinister или Illdisposed. Вот и <STRONG>God Dethroned </STRONG>можно смело отнести к высшей лиге голландского дэта. Уже восьмой альбом и восьмая попытка низвергнуть Бога. Что ж, ещё чуть-чуть и у них это получится. Слышавшие предыдущие работы коллектива, и кому нравится творчество голландцев, не должны пропустить этот альбом. Собственно изменений никаких. Всё тот же жёсткий, как трёхдневная щетина, дэт с мелодичными соляками. Некоторые соляки, на мой взгляд, слишком уж мелодичные, но это у группы такая фишка. А в целом весьма крепкая работа. Проходных композиций, пожалуй, что и нет. Зато есть несколько 100% хитов, которые интересно слушать и переслушивать. Я прослушал альбом два раза подряд и оба раза получил от него удовольствие. Чего желаю и всем остальным.</P>
+<P>Диск предоставлен Фоно</P>
+Автор: Graver
+
+### 15.01.2009 news Новый гитарист GOD DETHRONED
+
+<P>Новым гитаристом <STRONG>GOD DETHRONED</STRONG> стала девушка <STRONG>Susan Gerl </STRONG>из группы <STRONG>MURDER SYNDICATE</STRONG>. Она заменила ушедшегго в прошлом году<STRONG> Isaac Delhaye</STRONG>.</P>
+Автор: Vit Belov
+
+### 04.02.2009 news Новый альбом GOD DETHRONED
+
+<P>27 апреля на<STRONG> Metal Blade</STRONG> выйдет новый альбом <STRONG>GOD DETHRONED</STRONG> <STRONG>"Passiondale".</STRONG> Лимитированное издание работы будет содержать бонусный диск с концертным выступлением:</P>
+<P>01. <STRONG>The Cross of Sacrifice</STRONG> <BR>02. <STRONG>Under a Darkening Sky<BR></STRONG>03. <STRONG>No Man's Land</STRONG> <BR>04. <STRONG>Poison Fog</STRONG> <BR>05. <STRONG>Drowning in Mud</STRONG> <BR>06. <STRONG>Passiondale</STRONG> <BR>07. <STRONG>No Survivors</STRONG> <BR>08. <STRONG>Behind Enemy Lines</STRONG> <BR>09. <STRONG>Fallen Empires</STRONG> <BR>10. <STRONG>Artifacts of the Great War<BR><BR>"Live in 2005"</STRONG> bonus CD track listing:<BR>01. <STRONG>Nihilism<BR></STRONG>02. <STRONG>Boiling Blood<BR></STRONG>03. <STRONG>The Warcult<BR></STRONG>04. <STRONG>Soul Sweeper<BR></STRONG>05. <STRONG>The Art of Immolation<BR></STRONG>06. <STRONG>Villa Vampiria<BR></STRONG>07. <STRONG>The Last Zip of Spit<BR></STRONG>08. <STRONG>Sigma Enigma<BR></STRONG>09. <STRONG>The Serpent King</STRONG></P>
+Автор: Vit Belov
+
+### 04.03.2009 news Обложка GOD DETHRONED
+
+<P>27 аперля на <STRONG>Metal Blade</STRONG> выйдет новый альбом <STRONG>GOD DETHRONED</STRONG> <STRONG>"Passiondale". </STRONG>Стала доступна обложка этой пластинки.</P>
+<P>
+<CENTER><IMG height=357 src="/images/news_rus/2009.03/13700.jpg" width=357 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 19.03.2009 news GOD DETHRONED выложили песню
+
+Песня с будущего альбома<STRONG> GOD DETHRONED</STRONG> <STRONG>"Passiondale" </STRONG>под названием <STRONG>"Under a Darkening Sky" </STRONG>доступна здесь: <A href="http://www.myspace.com/villavampiria">http://www.myspace.com/villavampiria</A>
+Автор: Vit Belov
+
+### 17.04.2009 news GOD DETHRONED дают послушать
+
+<P>Новый альбом <STRONG>GOD DETHRONED</STRONG> <STRONG>"Passiondale" </STRONG>можно послушать на<STRONG> MySpace</STRONG> группы: <A href="http://www.myspace.com/villavampiria">http://www.myspace.com/villavampiria</A></P>
+<P>Пластинка выйдет 27 апреля на <STRONG>Metal Blade</STRONG>.</P>
+Автор: Vit Belov
+
+### 12.06.2009 news Новое видео GOD DETHRONED
+
+<P><STRONG>"Drowning In Mud" - </STRONG>новое видео <STRONG>GOD DETHRONED</STRONG> можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/QDYmZhakrCw&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/QDYmZhakrCw&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 25.09.2009 news Видео GOD DETHRONED
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню <STRONG>GOD DETHRONED</STRONG> <STRONG>"Poison Fog" </STRONG>доступно в сети.</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/RBW2LUjWaFY&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/RBW2LUjWaFY&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.09.2010 news Девятый альбом голландцев GOD DETHRONED
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17271.jpg" width=300 height=300>Голландцы&nbsp; <B itxtvisited="1">GOD DETHRONED</B>&nbsp;только что&nbsp;закончили запись своего девятого студийного альбома, <B itxtvisited="1">"Under The Sign Of The Iron Cross"</B>, в студии <B itxtvisited="1">Soundlodge </B>(город Leer, Германия).<BR itxtvisited="1"><BR itxtvisited="1">Трек-лист диска:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">The Declaration of War</B><BR itxtvisited="1">02. <B itxtvisited="1">Storm of Steel</B><BR itxtvisited="1">03. <B itxtvisited="1">Fire Storm</B><BR itxtvisited="1">04. <B itxtvisited="1">The Killing is Faceless</B><BR itxtvisited="1">05. <B itxtvisited="1">Under the Sign of the Iron Cross</B><BR itxtvisited="1">06. <B itxtvisited="1">Chaos Reigns at Dawn</B><BR itxtvisited="1">07. <B itxtvisited="1">Through Byzantine Hemispheres</B><BR itxtvisited="1">08. <B itxtvisited="1">The Red Baron</B><BR itxtvisited="1">09. <B itxtvisited="1">On Fields of Death & Desolation</B></P><STRONG></STRONG>
+<P><BR itxtvisited="1">Вокалист/гитарист группы&nbsp;<B itxtvisited="1">Henri Sattler</B> не так давно рассказал о новой работе группы:</P>
+<P><BR itxtvisited="1"><EM>"<STRONG>'Under The Sign Of The Iron Cross' -</STRONG>&nbsp;ещё один концептуальный альбом о Первой Мировой Войне<STRONG>.</STRONG>&nbsp;То, что мы прежде делали концептуальный альбом на ту же тему,&nbsp; вовсе не делает работу, по созданию ещё одного,&nbsp;более простой, но чтение книги <STRONG>Ernst</STRONG>'а<STRONG> Juenger</STRONG>'а <B itxtvisited="1">'In Stahlgewittern'</B> (Storm of Steel), в которой описывается биография его жизни, проходившей в ежедневном рытье траншей в течении той войны, дало мне&nbsp;настолько&nbsp;много вдохновения, что я проделал отличную работу при написании лирики и действительно удовлетворён результатом; но в&nbsp;этом вы, конечно, должны убедиться сами."<BR itxtvisited="1"><BR itxtvisited="1">"Музыкально, новый альбом станет одним из самых тяжёлых, что мы когда-либо делали. Как бы то ни было,&nbsp;в каждой песне будут фирменные хуки <B itxtvisited="1">GOD DETHRONED</B>. На этот раз, продюсер <B itxtvisited="1">J&#246;rg Uken</B> превзашёл сам&nbsp;себя, потому-что наш новый альбом, по моему мнению, это самый хорошо спродюсированный диск, который у нас когда-либо был. Крайне сырой, тяжёлый, но в тоже время, кристально чистый и супердинамичный."</EM></P>
+<P><STRONG>"Under The Sign Of The Iron Cross"</STRONG> будет выпущен 23 ноября на <B itxtvisited="1">Metal Blade Records</B>. <BR itxtvisited="1"><BR itxtvisited="1"></P>
+Автор: Headcrusher
+
+### 15.02.2011 news GOD DETHRONED прекращают своё существование
+
+<P><IMG height=171 alt="" hspace=0 src="/images/news_rus/2011.02/18589.jpg" width=400 align=right border=0>Голландцы <STRONG>GOD DETHRONED</STRONG> сообщили, что 2011 станет последним годом их существования. Основной причиной этого собьтия называется усталостьучастников коллектива от гастрольной деятельности. "<EM>Количество предложений нескончаемо, но я больше не люблю туры</EM>", - сообщает лидер <STRONG>GOD DETHRONED</STRONG> гитарист/вокалист <STRONG>Henri Sattler.</STRONG></P>
+<P>Последнее шоу группы состоится в декабре на фестивале <STRONG>Eindhoven Metal Meeting. </STRONG>"<EM>Я горд нашими достижениями, но пришло время для чего-то нового</EM>", - заканчивает своё послание музыкант.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

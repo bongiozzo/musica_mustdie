@@ -85,6 +85,120 @@ Justin Foley - drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.09.2004 bios KILLSWITCH ENGAGE BIO
+
+<P>Когда в 1998 году образовался легендарный OVERCAST , история музыки в стиле metal пришла к своему логическому концу. OVERCAST помог зародиться стилю metalcore, который сейчас стал доминантой в мире музыки. Но Mike D'Antonio, лидер OVERCAST и автор большинства песен, был парень не промах, у него было много музыкальных идей и он провел год работая в подполье и ища кого-нибудь, кто помог бы ему поднять музыку в стиле metal на новый уровень.&nbsp; <BR>&nbsp;&nbsp;&nbsp; Летом 99-го Mike начал сотрудничать с Adam Dutkiewicz , а очень скоро к ним присоединился гитарист Joel Stroetzel, который заинтересовался направлением музыки, кторую играли Maike и Adam. Теперь они вместе стали искать вокалиста, чтобы полностью завершить картину. Им повезло на горизонте появился Jesse Leach который и стал незабвенным вокалистом KILLSWITCH ENGAGE. В таком составе они начали покорять мир. KILLSWITCH ENGAGE дебютировали в качестве группы, которая открыла IN FLAMES.</P>
+<P><A href="http://www.skamsk.ru/rock_and_metal/index03_17.html">http://www.skamsk.ru/rock_and_metal/index03_17.html</A></P>
+Автор: Vit Belov
+
+### 08.09.2006 news Новости от KILLSWITCH ENGAGE
+
+<P><IMG height=229 alt="" hspace=20 src="/images/news_rus/2006.09/10694.jpg" width=250 align=left border=0>21 ноября на<STRONG> Roadrunner Records</STRONG> выходит новый альбом американских модерн металлистов<STRONG> </STRONG><FONT style="BACKGROUND-COLOR: #000000"><STRONG>KILLSWITCH ENGAGE</STRONG> под названием </FONT><STRONG>"As Daylight Dies". </STRONG>Он был записан музыкантами при помощи продюсера <STRONG>Adam Dutkiewicz</STRONG> (<STRONG>UNDEROATH</STRONG>, <STRONG>ALL THAT REMAINS</STRONG>), который также занимался и микшированием материала. </P>
+Автор: Dimas
+
+### 24.08.2008 news KILLSWITCH ENGAGE войдут в студию
+
+<P><STRONG>KILLSWITCH ENGAGE</STRONG> войдут в студию в октябре для записи нового альбома для <STRONG>Roadrunne</STRONG>r. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 07.01.2009 news Артисты Roadrunner опубликовали топы
+
+<P><STRONG>Roadrunner Records</STRONG> опубликовали на своём сайте&nbsp;Top-10 за 2008 год от своих артистов. </P>
+<P><STRONG>Shawn Drover</STRONG> (MEGADETH)<BR>01. <B>CYNIC</B> - Traced in Air<BR>02. <B>TESTAMENT</B> - The Formation of&nbsp;Damnation<BR>03. <B>MESHUGGAH</B> - Obzen<BR>04. <B>CHILDREN OF BODOM</B> - Blooddrunk<BR>05. <B>OPETH</B> - Watershed<BR>06. <B>EVERGREY</B> - Torn<BR>07. <B>BLOTTED SCIENCE</B> - The Machinations of Dementia<BR>08. <B>AIRBOURNE</B> - Runnin' Wild<BR>09. <B>INTO ETERNITY</B> - The Incurable Tragedy<BR>10. <B>BRAIN DRILL</B> - Apocalyptic Feasting<BR><BR><B>Frederic Leclercq</B> (DRAGONFORCE)<BR>01. <B>GUNS N' ROSES</B> - Chinese Democracy<BR>02. <B>DISTURBED</B> - Indestructible<BR>03. <B>SLIPKNOT</B> - All Hope Is Gone<BR>04. <B>CYNIC</B> - Traced in Air<BR>05. <B>CRADLE OF FILTH</B> - Godspeed on the Devil's Thunder<BR>06. <B>ULTRA VOMIT</B> - Objectif Thunes<BR>07. <B>SEBASTIEN TELLIER</B> - Sexuality<BR>08. <B>ALICE COOPER</B> - Along Came a Spider<BR>09. <B>MOTLEY CRUE</B> - Saints of Los Angeles<BR>10. <B>METALLICA</B> - Death Magnetic<BR><BR><B>Matt Heafy</B> (TRIVIUM)<BR>01. <B>COLDPLAY</B> - Viva La Vida<BR>02. <B>COLDPLAY</B> - Prospekt's March<BR>03. <B>MAXIMUM THE HORMONE</B> - Tsume Tsume Tsume<BR>04. <B>LONDON SYMPHONY ORCHESTRA</B> - Mozart's Requiem<BR>05. <B>GOJIRA</B> - The Way Of All Flesh<BR>06. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>07. <B>SLIPKNOT</B> - All Hope Is Gone<BR>08. <B>OPETH</B> - Watershed<BR>09. <B>METALLICA</B> - Death Magnetic<BR>10. <B>TRIVIUM</B> - Shogun<BR><BR><B>Robb Flynn</B> (MACHINE HEAD)<BR>01. <B>ALL SHALL PERISH</B> - Awaken The Dreamers<BR>02. <B>METALLICA</B> - Death Magnetic<BR>03. <B>TRIVIUM</B> - Shogun<BR>04. <B>WINDS OF PLAGUE</B> - Decimate The Weak<BR>05. <B>LIL WAYNE</B> - The Carter III<BR>06. <B>LA COKA NOSTRA</B> - A Brand You Can Trust<BR>07. <B>SLIPKNOT</B> - All Hope Is Gone<BR>08. <B>WHITECHAPEL</B> - This Is Exile<BR>09. <B>MESHUGGAH</B> - Bleed<BR>10. <B>BLEEDING THROUGH</B> - Sister Charlatan<BR><BR><B>Joel Stroetzel</B> (KILLSWITCH ENGAGE)<BR>01. <B>KINGS OF LEON</B> - Only by the Night<BR>02. <B>RYAN ADAMS AND THE CARDINALS</B> - Cardinology<BR>03. <B>RADIOHEAD</B> - In Rainbows<BR>04. <B>TOMMY EMMANUEL</B> - Center Stage<BR>05. <B>ALL THAT REMAINS</B> - Overcome<BR>06. <B>NICK CAVE AND THE BAD SEEDS</B> - Dig, Lazarus, Dig!!!<BR>07. <B>Augustana</B> - Can't Love (Can't Hurt<BR>08. <B>IN FLAMES</B> - A Sense of Purpose<BR>09. <B>NADA SURF</B> - Lucky<BR>10. <B>RAY LAMONTAGNE</B> - Gossip in the Grain<BR><BR><B>Max Cavalera</B> (SOULFLY; CAVALERA CONSPIRACY; SEPULTURA)<BR>01. <B>BAD BRAINS</B> - Build a Nation <BR>02. <B>DISFEAR</B> - Live the Storm<BR>03. <B>GOJIRA</B> - The Way of All Flesh<BR>04. <B>GOGOL BORDELLO</B> - Gypsy Punks<BR>05. <B>TURBO TRIO</B> - Turbo Trio<BR>06. <B>INCITE</B> - Divided We Fail<BR>07. <B>AGNOSTIC FRONT</B> - Warriors<BR>08. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>09. <B>AGORAPHOBIC NOSEBLEED</B> - Insect Warfare<BR>10. <B>HIRAX</B> - The New Age of Terror<BR><BR><B>Michael Spretizer</B> (DEVILDRIVER)<BR>01. <B>THE BIRTHDAY MASSACRE</B> - Walking With Strangers<BR>02. <B>AMON AMARTH</B> - Twilight of the Thunder God<BR>03. <B>MINDLESS SELF INDULGENCE</B> - If<BR>04. <B>ALL THAT REMAINS</B> - Overcome<BR>05. <B>GOJIRA</B> - The Way of All Flesh<BR>06. <B>IN FLAMES</B> - A Sense of Purpose<BR>07. <B>CHILDREN OF BODOM</B> - Blood Drunk<BR>08. <B>OPETH</B> - Watershed<BR>09. <B>RAUNCHY</B> - Wasteland Discotheque<BR>10. <B>TESTAMENT</B> - The Formation of Damnation</P>
+Автор: Vit Belov
+
+### 28.02.2009 news Вокалист KILLSWITCH ENGAGE спел для BELIEVER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гостевое участие в новом альбоме возрождённых <STRONG>BELIEVER </STRONG>принял фронтмэн<STRONG> KILLSWITCH ENGAGE</STRONG> <STRONG>Howard Jones. </STRONG>Видео из студии можно посмотреть ниже:</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/nEXN-_X29Cw&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/nEXN-_X29Cw&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 15.04.2009 news KILLSWITCH ENGAGE выпустят второй одноимённый альбом
+
+<P>Американцы <STRONG>KILLSWITCH ENGAGE</STRONG> выпустят четвёртый альбом 30 июня на <STRONG>Roadrunner</STRONG>. Интересно, что называться пластинка будет просто "<STRONG>Killswitch Engage</STRONG>". Так называлась дебютная работа коллектива, вышедшая в 2000 году. Вот некоторые названия песен: <STRONG>"Reckoning"</STRONG>, <B>"The Forgotten"</B>, <B>"Light in a Darkened World"</B>&nbsp;и <B>"Starting Over"</B>.</P>
+Автор: Vit Belov
+
+### 22.05.2009 news Трэк-лист нового KILLSWITCH ENGAGE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>30 июня на <STRONG>Roarunner</STRONG> выходит новый альбом <STRONG>KILLSWITCH ENGAGE "Killswitch Engage"</STRONG>. Стал известен трэк-лист пластинки:</FONT></P>
+<P>01. <B>Never Again</B><BR>02. <B>Starting Over</B><BR>03. <B>The Forgotten</B><BR>04. <B>Reckoning</B><BR>05. <B>The Return</B><BR>06. <B>A Light In A Darkened World</B><BR>07. <B>Take Me Away</B><BR>08. <B>I Would Do Anything</B><BR>09. <B>Save Me</B><BR>10. <B>Lost</B><BR>11. <B>This Is Goodbye</B><BR><BR>Bonus tracks (deluxe edition):<BR>12. <B>In A Dead World</B><BR>13. <B>My Curse</B> [Live]<BR>14. <B>Rose Of Sharyn</B> [Live]<BR>15. <B>Holy Diver</B> [Live]<BR><BR>Disc Two - DVD (deluxe edition):<BR>01. "Making Of" Footage<BR>02. Interviews</P>
+Автор: Vit Belov
+
+### 07.06.2009 news Новое видео KILLSWITCH ENGAGE
+
+<P>Новое видео<STRONG> KILLSWITCH ENGAGE</STRONG> на песню "<STRONG>Starting Over</STRONG>" можно посмотреть ниже.</P>
+<P>
+<CENTER><EMBED src=http://media.mtvnservices.com/mgid:uma:video:mtv.com:397235 width=450 height=280 type=application/x-shockwave-flash flashVars="configParams=type%3Dnetwork%26vid%3D397235%26uri%3Dmgid%3Auma%3Avideo%3Amtv.com%3A397235%26startUri=mgid%3Auma%3Avideo%3Amtv.com%3A397235" allowFullScreen="true" allowScriptAccess="always" base="."></EMBED> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.07.2009 news KILLSWITCH ENGAGE попали в десятку
+
+<P>Новый одноимённый альбом <STRONG>KILLSWITCH ENGAGE</STRONG> попал в десятку самых продаваемых на прошедшей неделе в США. 58000 и седьмое место.</P>
+Автор: Vit Belov
+
+### 05.01.2010 reviews Паразитам не стать гениями
+
+<P>Пятый студийный альбом KILLSWITCH ENGAGE вышел в России. Этот пятый альбом называется точно так же, как их дебют “Killswitch Engage”. Возможна путаница, но я думаю, никто особо не пострадает.</P>
+<P>Как может группа, которая даже не в состоянии придумать название для своей новейшей пластинки, сочинять новую музыку, спросите вы и будете правы. Даже закрыв глаза на то, что KsE представляют на этом альбоме не самый лучший вариант современного метала, музыка этой группы не отличается особой выразительностью. Среднетемповые прогоны, заимствования из grunge и melodic death-metal, странный для стиля вокал с нотками Mike Patton. Всё это раздражает. Этот альбом не «качает», не поражает мелодиями, он просто пуст как пробка. Возможно, существуют люди, которые ничего кроме подобной музыки не слушают. Я не могу им позавидовать, но о вкусах не спорят. Просто эти люди не любят тяжёлую музыку, они не любят драйв, не любят сочную мелодию… Отмечу также, странноватую реализацию этой пластинки. Звук мне показался, мягко говоря, не идеальным.</P>
+<P>Коллектив, который всю свою историю паразитирует на чужой музыке, называется второсортным. KILLSWITCH ENGAGE – второсортный коллектив, достигший небывалого для подобного сорта групп успеха. К несчастью для нас, даже паразитируя, этой группе не удаётся создать что-то запоминающееся или выделяющееся из общей массы.</P>
+Автор: Vit Belov
+
+### 10.02.2010 news Вокалист ALL THAT REMAINS споёт с KILLSWITCH ENGAGE
+
+<P>Фронтмэн <STRONG>KILLSWITCH ENGAGE Howard Jones</STRONG> был вынужден покинуть группу во время текущего тура по США по независищим от него причинам. Группа быстро подыскала временную замену. Место у микрофона займёт <STRONG>Phil Labonte (ALL THAT REMAINS</STRONG>, ex-<STRONG>SHADOWS FALL</STRONG>).</P>
+Автор: Vit Belov
+
+### 03.03.2010 news Металисты поддержали игру
+
+<P>2 марта на<STRONG> Roadrunner</STRONG> вышло специальное EP, посвящённое выходу мегаблокбастера <STRONG>"God of War III"</STRONG>. Этот сборник из шести песен будет доступен в качестве бонуса к специальному изданию этой игры для<STRONG> Sony Playstation</STRONG>. Вот трэк-лист:</P>
+<P>01. <B>KILLSWITCH ENGAGE</B> - "My Obsession"<BR>02. <B>TRIVIUM</B> - "Shattering The Skies Above"<BR>03. <B>DREAM THEATER</B> - "Raw Dog"<BR>04. <B>TAKING DAWN</B> - "This Is Madness"<BR>05. <B>OPETH</B> - "The Throat Of Winter"<BR>06. <B>MUTINY WITHIN</B> - "The End"</P>
+<P><STRONG>TRIVIUM </STRONG>выложили в сеть видео на свою песню, которое можно посмотреть чуть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/jk-mECRczNk&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/jk-mECRczNk&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.01.2012 news KILLSWITCH ENGAGE расстались с вокалистом
+
+<P>Вокалист<STRONG> Howard Jones</STRONG> и <STRONG>KILLSWITCH ENGAGE</STRONG> прекратили совместное сотрудничество. Группа сообщила, что остаётся в дружеских отношениях с музыкантом и никаких особых проблем с ним не имела.</P>
+<P>Коллектив начал поиск нового певца.</P>
+<P><center><IMG height=327 src="/images/news_rus/2012.01/22493.jpg" width=490 border=0></P>
+Автор: Vit Belov
+
+### 07.02.2012 news KILLSWITCH ENGAGE вернули вокалиста
+
+<P>Новым вокалистом<STRONG> KILLSWITCH ENGAGE</STRONG> стал <STRONG>Jesse Leach</STRONG>, покинувший группу в 2002 году. Он заменит <STRONG>Howard Jones</STRONG>, покинувшего коллектив в начале этого года.</P>
+<P>Новый музыкант работает с участниками<STRONG> KILLSWITCH ENGAGE</STRONG> гитаристами <STRONG>Adam Dutkiewicz</STRONG> и<STRONG> Joel Stroeltzel</STRONG>&nbsp; в группе<STRONG> TIMES OF GRACE</STRONG>, которая выпустила дебют в январе 2011 года на<STRONG> Roadrunner</STRONG>.</P>
+<P><center><IMG height=368 src="/images/news_rus/2012.02/22978.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 03.08.2013 news Видео новинки
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.08/26013.jpg" width=200 height=285>В этом постинге&nbsp;опубликованы ссылки на 10 самых последних видео новинок от&nbsp;&nbsp;тяжёлых групп, которые так или иначе заслуживают внимание:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BLACK TUSK</STRONG> "Truth Untold": <A href="http://youtu.be/yJXIvu4HqiY">http://youtu.be/yJXIvu4HqiY</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>BRING ME THE HORIZON</STRONG> "Go To Hell, For Heaven's Sake": <A href="http://youtu.be/9xLiI_-N4Hc">http://youtu.be/9xLiI_-N4Hc</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CATTLE DECAPITATION</STRONG> "Your Disposal": <A href="http://youtu.be/szOlMfoN-jU">http://youtu.be/szOlMfoN-jU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>CHIMAIRA</STRONG> "All That's Left Is Blood": <A href="http://youtu.be/9OCh9hIGbGo">http://youtu.be/9OCh9hIGbGo</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEADLOCK</STRONG> "I'm Gone": <A href="http://youtu.be/R7M97B7bLZU">http://youtu.be/R7M97B7bLZU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>DEBAUCHERY</STRONG> "Let There Be Blood": <A href="http://youtu.be/7W8EU9HykoI">http://youtu.be/7W8EU9HykoI</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>KILLSWITCH ENGAGE</STRONG> "Always": <A href="http://youtu.be/xcZIwXABBKA">http://youtu.be/xcZIwXABBKA</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MY RUIN</STRONG> "Moriendo Renascor": <A href="http://youtu.be/wNP_nITIuyQ">http://youtu.be/wNP_nITIuyQ</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>NEWSTED</STRONG> "Above All": <A href="http://youtu.be/6AWprBmbyuU">http://youtu.be/6AWprBmbyuU</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>TERROR</STRONG> "I'm Only Stronger": <A href="http://youtu.be/Gnx6ZusJbE4">http://youtu.be/Gnx6ZusJbE4</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Приятного просмотра!</FONT></P>
+<P>&nbsp;</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Два альбома с одинаковым названием

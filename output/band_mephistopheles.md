@@ -12,6 +12,15 @@ Black Metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.05.2001 news Чистота инстинкта Mephistopheles
+
+<p> "Modern Instinct's Purity" - так будет называться новый диск Mephistopheles, запись которого в настоящее время проходит в Oldenburg's Soundloge Studio. Как заявили сами музыканты, новый материал будет отличаться от старого наличием "дэт-металлических элементов" и хоровых вокальных партий. Это также будет дебютная работа нового вокалиста группы. Им стал некто Eike C. Kroger. Вот названия некоторых песен: "Killing Conscious", "(Galaxia) An Empire Beneath The Sun", "First Death Introdus", "Bastard Blood's Prosperity", "My Enemy Divine", "Conquer Self", "Destruction", "Solarian".</p>
+
+Автор: Nybras
+
+
 ## Обсуждения
 
 

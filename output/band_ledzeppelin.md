@@ -207,6 +207,76 @@ Released November 19, 1982
 * C группой "Plant, Robert" Vocal
 * C группой "Page, Jimmy" Guitar Player
 
+## Публикации
+
+### 12.09.2001 news Ранние дни Лэд Зэппелин...
+
+<p>Лэд Зэппелиновский сборник "Early Days: The Best Of Led Zeppelin Volume 1" получил платиновый сертификат, достигнув уровня продаж в один миллион копий в США. Из других новостей, также диск Роберта Планта "Now And Zen" получил тройную платину...</p>
+
+Автор: Yermola
+
+### 12.09.2001 news Early Days: The Best Of Led Zeppelin Volume 1...
+
+<p>LED ZEPPELIN’s Early Days: The Best Of Led Zeppelin Volume 1 has been certified platinum for sales in excess of one million copies in the US. Also recently platinum-certified were ALIEN ANT FARM’s Anthology and RUSH’s 1991 release Roll The Bones. Meanwhile, DEF LEPPARD’s Vault – Greatest Hits was certified triple-platinum (for sales of over 3 million copies in the US), as was ROBERT PLANT’s Now And Zen. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 25.12.2001 news Former LED ZEPPELIN Men Get Charitable...
+
+<p>A Gibson Les Paul Standard guitar signed by former LED ZEPPELIN axeman Jimmy Page was the star prize at the auction held by The Bath International Guitar Festival for the ABC Trust to help the plight of Brazil's street children. Incredibly, the winner of the guitar generously donated it back to the ABC Trust to help raise even more money for the charity's good causes. This signed Les Paul is now once again available for auction. (auction runs until Feb. 28, 2002. Reserve price: Ј2,600 - approx $3,500 USD) Commented Page (the charity's patron): "My life has afforded me the opportunity to travel all over the world. In doing so, I have witnessed the plight of its children. Having worked on this project for the past six years, I feel there can be no greater legacy then investing in our future by helping to improve the lives of today's children. Thank you for supporting our efforts to help the less fortunate children in Brazil.” In other news, Jimmy Page and ex-ZEPPELIN frontman Robert Plant are slated to appear in an upcoming benefit concert at the Royal Albert Hall in London for the Teenage Cancer Trust on February 9th. Plant is on the bill with his STRANGE SENSATION band, who are also scheduled to perform at Bristol University in Bristol, UK on February 5th.</p>
+
+Автор: Yermola
+
+### 14.09.2007 news Ре-юнион LED ZEPPELIN
+
+<P><STRONG>LED ZEPPELIN</STRONG> объединятся на одно шоу 26 ноября в память об умершем совладельце <STRONG>Atlantic Records</STRONG> <STRONG>Ahmet Ertegun. </STRONG>Состав группы будет такой: <STRONG>Jimmy Page</STRONG> (guitar), <B>Robert Plant</B> (vocals), <B>John Paul Jones</B> (bass)&nbsp;и <STRONG>Jason Bonham </STRONG>(сын <STRONG>John Bonham). </STRONG>Интересно, что билеты будут стоить 125 фунтов стерлингов и будут распространяться только через интернет, где их счастливые обладатели будут выявлены путём жеребьёвки. Уже сейчас ясно,&nbsp;арена, вместимостью 22000 человек, будет заполнена.</P>
+Автор: Vit Belov
+
+### 10.12.2007 news Лимитированный Jeep LED ZEPPELIN
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=266 alt="" hspace=0 src="/images/news_rus/2007.12/12023.jpg" width=400 align=left border=5>Автомобильная кампания <STRONG>RGVA</STRONG> выпустила в продажу лимитированное издание <STRONG>LED ZEPPELIN Jeep Patriot</STRONG>. Всего будет продано 7 подобных автомобилей по цене 34860&nbsp;фунтов стерлингов. Приобретшие этот "сувенир" получили VIP билеты на концерт<STRONG> LED ZEPPELIN</STRONG> 10 декабря.</FONT></P>
+Автор: Vit Belov
+
+### 11.12.2007 news Реюнион LED ZEPPELIN состоялся
+
+<P>Вчера в Лондоне произошло событие месяца, а может быть и года, в рок музыке. Состоялся реюнион концерт <STRONG>LED ZEPPELIN</STRONG> на O2 арене. Сэт-лист:</P>
+<P>01. <B>Good Times, Bad Times</B><BR>02. <B>Ramble On</B><BR>03. <B>Black Dog</B><BR>04. <B>In My Time Of Dying</B><BR>05. <B>For Your Life</B><BR>06. <B>Trampled Under Foot</B><BR>07. <B>Nobody's Fault But Mine</B><BR>08. <B>No Quarter</B><BR>09. <B>Since I've Been Loving You</B><BR>10. <B>Dazed and Confused</B><BR>11. <B>Stairway To Heaven</B> <BR>12. <B>The Song Remains the Same</B><BR>13. <B>Misty Mountain Hop</B><BR>14. <B>Kashmir</B><BR><BR>Encore:<BR>15. <B>Whole Lotta Love</B><BR>16. <B>Rock and Roll</B></P>
+<P>Небольшой отрывок этого шоу можно посмотреть ниже:</P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/a8v_Rqi4B-E&rel=1&border=0"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/a8v_Rqi4B-E&rel=1&border=0" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 07.04.2008 reviews Стыдно, товарищи британцы
+
+<P>Всего месяц назад я обозревал странный DVD о группе Queen под названием "Magic Moments" от британского лэйбла Chrome Dreams. Ничего удивительного, что еще один релиз (который, правда, вышел за год до упомянутого выше), на этот раз о Led Zeppelin, "The Making Of A Super Group", оказался практически его близнецом. Та же структура диска (интервью, викторина, дискография), те же русские субтитры с ошибками, вновь отсутствие музыки группы, вновь беседы ни о чем. Единственное, что отличает данный DVD от "куиновского", это замечание в самом начале о том, что здесь, мол, музыки Led Zeppelin нет и что ни сами участники коллектива, ни его менеджмент данный диск не авторизовывали, так сказать. Спасибо и на этом. Несильное отличие от пиратской продукции, не так ли? И всё было бы не так плохо, но кому нужна вся эта тягомотина, мне совершенно непонятно. Более половины времени речь идет вообще не о Led Zeppelin, а о&nbsp;The Yardbirds (где играл Пейдж), которые да, явились в некотором роде предтечей LZ, но в тот момент никакой речи о "супергруппе" даже идти не могло, тем более что история про The Yardbirds подается таким образом, как будто это был коллектив, совершенно неизвестный и чуть ли не подпольный в то время. От всяких интервьюируемых товарищей вы услышите полные мудрости фразы из серии "Бонэм был отличным барабанщиком", "Никто не играл так, как Пейдж" и другие подобные перлы. Грамматические огрехи переводчика и его явное нежелание переводить более 50% фраз еще более усугубляют и так не столь приятное впечатление от данного релиза. Такой часовой DVD вполне подошел бы для начальной раскрутки молодой и неизвестной&nbsp;команды (тем более, что бюджет там явно невелик), но лепить подобные самоделки про великие группы - это, наверное, даже больше, чем издевательство, и над музыкантами, и над их поклонниками. О серьезности подхода к созданию этого "шедевра" говорит еще, например,&nbsp;и то, что дискография LZ в плане бутлегов&nbsp;показана весьма куцей, принимая во внимание тот факт, что группа очень известна еще и как один из рекордсменов по бутлегам. После просмотра "The Making Of A Super Group" главным вопросом для меня стал "а кто следующий"? Какой из великих рок-коллективов падет следующей жертвой поделок от Chrome Dreams? Стыдно, товарищи британцы.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 15.08.2008 news Jimmy Page закроет Олимпиаду
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Jimmy Page</STRONG> выступит на закрытии Олимпиады в Пекине. Он споёт дуэтом с поп-звездой <STRONG>Leona Lewis.</STRONG>&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 20.09.2008 news Жёлтая пресса о LED ZEPPELIN
+
+<P>Британский таблоид <STRONG>The Sun</STRONG> опубликовал статью о ситуации в <STRONG>LED ZEPPELIN</STRONG>. По словам газеты,&nbsp;три музыканта ветеранов рока намерены совершить ре-юнион тур и репетируют сейчас в Лондоне. Однако, вокалист группы <STRONG>Robert Plant</STRONG> может отказаться присоединиться к коллегам. На этот случай, по слухам, группа уже подготовила замену, а тур <STRONG>LED ZEPPELIN</STRONG> всё равно состоится.</P>
+Автор: Vit Belov
+
+### 02.01.2009 news Рейтинг от &quot;искателей автографов&quot;
+
+<P><IMG height=263 alt="" hspace=0 src="/images/news_rus/2009.01/13274.jpg" width=250 align=left border=5>Канадский сайт <STRONG>HoundsTV.Com</STRONG> опубликовал свой рейтинг рок-знаменитостей по доступности для любителей сбора автографов. Рейтинг составлялся по материалам "искателей автографов" в Канаде в прошедшем году. Сайт определил лучших и худших в этом смысле. Самыми доступными стали: <STRONG>AC/DC</STRONG>, <B itxtvisited="1">COLDPLAY</B> and <STRONG>THE GUESS WHO</STRONG>. Самыми недосягаемыми:&nbsp;<STRONG>LED ZEPPILIN</STRONG>, <STRONG>BON JOVI</STRONG> и <STRONG>EAGLES</STRONG>.&nbsp;<STRONG>Robert Plant</STRONG> и <STRONG>Jimmy Page</STRONG> попали в этот список по отдельности, но с одинаковым негативным результатом. Оба, приезжая в Канаду порознь, отказались ставить свои росписи.</P>
+Автор: Vit Belov
+
+### 08.01.2009 news LED ZEPPELIN больше не будет
+
+<P>Менеджер <STRONG>Jimmy Page</STRONG> <STRONG>Peter Mensch </STRONG>окончательно перечеркнул все слухи о грядущем ре-юнионе <STRONG>LED ZEPPELIN</STRONG>.<STRONG> Robert Plant</STRONG> отказался этим заниматься чуть ранее, но, по словам господина <STRONG>Mensch</STRONG>, и <STRONG>Jimmy Page</STRONG>, <B>John Paul Jones</B>&nbsp;с <STRONG>Jason Bonham </STRONG>не собираются давать концертов и записывать новую музыку.</P>
+<P>"<EM>Если вы не видели концерт LED ZEPPELIN в 2007 году, вы всё пропустили. Больше LED ZEPPELIN не будет</EM>", - сказал <STRONG>Peter</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### как вы относитесь к ВИА Deep puple, Led Zeppelin и т.д.?

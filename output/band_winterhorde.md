@@ -8,6 +8,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.01.2013 news Новое видео WINTERHORDE
+
+<P>Новый клип израильской команды<STRONG> WINTERHORDE</STRONG> на песню <STRONG>"Wreckage Ghost" </STRONG>можно посмотреть ниже. Трек взят с последней работы группы <STRONG>"Underwatermoon"</STRONG>, которая вышла в 2010 году.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/VUQ2Vu7ApJU?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

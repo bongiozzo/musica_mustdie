@@ -60,6 +60,57 @@ Paul Masvidal - guitar (Cynic)
 * C группой "Cynic" Sean Reinert (drums)
 * C группой "Aghora" Sean Reinert (drums)
 
+## Публикации
+
+### 19.06.2001 news Разрубить Гордиев Узел....
+
+<p>Проговый проект "GORDIAN KNOT" (состоящий из участников культового "CYNIC" - Sean Malone (басс), Jason Gobel (гитара), и Sean Reinert) заменил гитариста Ron Jarzombek (WATCHTOWER, SPASTIC INK) на участника "GENESIS" (?!?!)- Steve Hackett. Новый гитареро уже записывает свои партии для второго полноформатника "Emergent". Диск выйдет на Sensory Records в январе 2002.</p>
+
+Автор: Yermola
+
+### 19.06.2001 news GORDIAN KNOT, featuring former CYNIC members Sean Malone ....
+
+<p>Prog supergroup GORDIAN KNOT, featuring former CYNIC members Sean Malone (bass), Jason Gobel (guitar), and Sean Reinert, have replaced guitarist Ron Jarzombek (WATCHTOWER, SPASTIC INK) with former GENESIS guitarist Steve Hackett, who is reportedly recording his parts for the group's upcoming second album, Emergent. The CD is due to be issued through Sensory Records in January. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 27.05.2002 news Новый суперпроект...
+
+<p>Барабанщик DREAM THEATER - Mike Portnoy, гитарист FATES WARNING - Jim Matheos, клавишник CHROMA KEY/ex-DREAM THEATER - Kevin Moore, бассист GORDIAN KNOT/ex-CYNIC - Sean Malone и вокалист PAIN OF SALVATION - Daniel Gildenlоw объединили усилия в новом пока-еще-не-названном проекте. Запись альбома запланирована на Июнь и релиз в Октябре/Ноябре на Inside Out Records.....</p>
+
+Автор: Yermola
+
+### 27.05.2002 news DREAM THEATER, FATES WARNING Members Join Forces ....
+
+<p>DREAM THEATER drummer Mike Portnoy, FATES WARNING guitarist Jim Matheos, CHROMA KEY/ex-DREAM THEATER keyboardist Kevin Moore, GORDIAN KNOT/ex-CYNIC bassist Sean Malone and PAIN OF SALVATION vocalist Daniel Gildenlцw have joined forces in a brand new, as-yet-unnamed supergroup which is scheduled to record its debut album in early June for a late October/early November release—possibly through Inside Out Records. In a May 18th update on his official web site, Malone commented on the project by saying that "there will be an announcement soon of a new project that will be recorded this summer. I'm not allowed to reveal the players just yet, but it's a project involving some people whose names won't be unfamiliar to you. I'm very excited about it for a few reasons - one, just glad I got picked for it, but also that I can go back to just bein</p>
+
+Автор: Yermola
+
+### 24.09.2002 news GORDIAN KNOT: New MP3 Posted Online ....
+
+<p>GORDIAN KNOT, a prog supergroup featuring former CYNIC members Sean Malone (bass), Jason Gobel (guitar), and Sean Reinert, along with former GENESIS guitarist Steve Hackett, have posted a full-length MP3 of the track "Muttersprache", taken from the group's forthcoming Emergent CD, <A HREF="http://www.seanmalone.net/mp3/Muttersprache.mp3">at this location. </A></p>
+
+Автор: Yermola
+
+### 24.09.2002 news MP3 новой песни GORDIAN KNOT...
+
+<p>Проговая супер-группа "GORDIAN KNOT" состоящяя из бывших участников культовых "CYNIC" Sean Malone (басс), Jason Gobel (гитара) и Sean Reinert вместе с гитаристом "GENESIS" Steve Hackett выложили в сети MP3 песни "Muttersprache" взятой с еще не вышедшего альбома группы названного Emergent. Скачать ее можно здесь: <A HREF="http://www.seanmalone.net/mp3/Muttersprache.mp3">http://www.seanmalone.net/mp3/Muttersprache.mp3</A></p>
+
+Автор: Yermola
+
+### 20.12.2002 news Новости от GORDIAN KNOT
+
+<p>Наконец-то, 14 января 2003 года на Sensory Records выходит долгожданный второй альбом группы GORDIAN KNOT под названием "Emergent". Это проект Sean Malone'a - бывшего басиста CYNIC и нынешнего OSI (ORCHESTRA OF STRATEGIC INFLUENCE). В записи альбома принимали участие такие музыканты, как Bill Bruford (YES, KING CRIMSON), Jason Gobel (ex-CYNIC), Steve Hackett (GENESIS), Jim Matheos (OSI, FATES WARNING), Paul Masvidal (ex-CYNIC) и Sean Reinert (ex-CYNIC).</p>
+
+Автор: Dimas
+
+### 30.03.2003 reviews Вход и выход
+
+<p>Второй альбом американского суперпроекта потрясшего в 1999 году весь прогрессивный мир своим одноименным дебютным альбомом. И вот, наконец-то, увидел свет и второй альбом этого суперпроекта. Состав существенно изменился, и нынешняя компания музыкантов еще более впечатляет. Судите сами: Sean Malone (CYNIC), Jason Gobel (CYNIC), Bill Bruford (KING CRIMSON, YES, GENESIS), Steve Hackett (GENESIS), Jim Matheos (FATES WARNING, OSI), Sean Reinert (CYNIC) и Paul Masvidal (CYNIC). Несмотря на изменения в составе, музыка коллектива не претерпела никаких изменений. Это все тот же, чисто инструментальный progressive metal с элементами jazz-fusion, невероятно техничный и сложный, полный импровизационных моментов и звуковых экспериментов, но при этом умиротворяющий и расслабляющий, вгоняющий в апатию. В первую очередь, конечно же, обращают на себя внимание басовые риффоплеты издаваемые двенадцатиструнным инструментом и партии ударных. Этот альбом содержит меньшее количество звуковых эффектов и атмосфера на нем менее богатая, чем на дебюте. Зато, здесь поболее гитарных соло, да и тяжести чуток прибавилось. Продюссером записи выступил Scott Burns, прославившийся в качестве продюссера, установившего каноны death metal саунда начала девяностых. Он же продюссировал и единственный альбом CYNIC. Кстати, наверное впервые с тех пор, при записи "Emergent" произошло воссоединение всех участников CYNIC образца 1993 года. Альбом переполнен неожиданными ходами невиданной сложности, грандиозными музыкальными темами, великолепным чувством ритма и ломаными акробатическими мелодиями. Трудно описывать подобную музыку. Стоит только отметить, что лучше и легче всего музыка воспринимается в фоновом режиме. Рекомендую всем любителям экстранеординарной и прогрессивной музыки, далекой от стандартов.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

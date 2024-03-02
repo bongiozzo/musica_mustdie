@@ -61,6 +61,53 @@ Dividead
 * C группой "Entombed" Jorgen Sandstrom  (bass)
 * C группой "Krux" 
 
+## Публикации
+
+### 28.03.2001 news Новости Ненавистного Проекта...
+
+<p>Сидящие в студии шведы THE PROJECT HATE MCMXCIX (имеющие в своем составе басиста ENTOMBED Jorgen Sandstrom) весьма довольны получившимся вторым альбомом "When We Are Done...Your Flesh Will Be Ours". Выходящий в июне релиз будет содержать буклет работы Leif Ericsson. Запись проходила в Soundlab Studios в &Ouml;rebro (Швеция) под руководством мэтра Talarzcyk (NASUM). На диск вошли следующие песни: 01. Can’t Wait 02. Believing is bleeding 03. Blessed Are We To Be Lied Upon 04. Disciples Of The Apocalypse 05. Hellucination 06. Dividead 07. I Smell Like Jesus...Dead 08. Hate Incarnate 09. Forsaken By The Naked Light Of Day 10. In Sickness And In Hell</p>
+
+Автор: Yermola
+
+### 28.03.2001 news When We Are Done...Your Flesh Will Be Ours....
+
+<p>Freshly out of the studio, Sweden’s THE PROJECT HATE MCMXCIX (featuring ENTOMBED bassist Jorgen Sandstrom) are “incredibly satisfied” with their just-completed second album, When We Are Done...Your Flesh Will Be Ours, which “[lived up to] all of our expectations and more so”. Tentatively due for release in May/June, the album will reportedly feature a booklet designed by graphic artist Leif Ericsson that is so gruesome and beautiful, “it [perfectly] completes this new masterpiece”. Ten tracks and nearly 60 minutes of music will appear on the CD, featuring a style that the group describe as “the same [one] we previously dominated the world with” on last year’s debut Cybersonic Superchrist. Recorded at the Soundlab Studios in Цrebro, Sweden with producer Mr. Talarzcyk (i.e. NASUM), the CD is said to feature a sound that is “as fat as it can get”. The full track listing for When We Are Done...Your Flesh Will Be Ours is as follows: 01. Can’t Wait 02. Believing is bleeding 03. Blessed Are We To Be Lied Upon 04. Disciples Of The Apocalypse 05. Hellucination 06. Dividead 07. I Smell Like Jesus...Dead 08. Hate Incarnate 09. Forsaken By The Naked Light Of Day 10. In Sickness And In Hell</p>
+
+Автор: Yermola
+
+### 02.10.2001 reviews Красивейшие звуки ненависти
+
+<p>Красивейшие звуки ненависти. Вот уж не думал, что ненависть может быть такой прекрасной. Эмоциональный и технологизированный doom-death metal с космической атмосферой, клавишными подкладками и резко выделенными жесткими гитарами с ломаными риффами и структурами переходящими в плавные мелодичные соло. Суровый мужской голос иногда переходит в чистый и им обоим вторит ангельский женский голосок. Местами мне музыка группы напомнила Orphanage. Но это не их копия. Довольно много компьютерных сэмплов и фишек. Материал очень интересный и весьма оригинальный. Второй альбом шведской группы явно внушительнее и качественнее прошлогоднего дебюта. Кибернетический смертельный металл в его лучшем виде. Здесь воедино уживаются прозрачная агрессия и обнаженная красота. Агрессивно мелодичный и зверски красивый альбом. А под конец альбома вас ждет приятный сюрприз в виде потрясающего и в то же время очень простого инструментала. Когда стихнут звуки альбома, ваша плоть уже не будет вам принадлежать...</p>
+
+Автор: Dimas
+
+### 01.05.2003 news Название нового альбома ненавистного проекта
+
+<p>Шведская группа THE PROJECT HATE решила назвать свой третий альбом "Hate, Dominate, Congregate, Eliminate". Альбом выйдет в конце лета на Threeman Records. В альбом войдут следующие вещи:</p>
+<p> 1. Hate <BR> 2. Nailed <BR> 3. Dominate <BR> 4. Deviate <BR> 5. Congregate <BR> 6. Burn <BR> 7. Eliminate <BR> 8. Weep</p>
+
+Автор: Dimas
+
+### 11.08.2005 news Новый альбом THE PROJECT HATE
+
+<P><STRONG>THE PROJECT HATE</STRONG><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff> - шведская группа, в составе которой <STRONG>Jorgen Sandstrom</STRONG>&nbsp;(бывший вокалист&nbsp;<STRONG>ENTOMBED и GRAVE</STRONG>), подготовила к выпуску свой четвертый альбом <STRONG>"Armageddon March Eternal (Symphonies of Slit Wrists)". </STRONG>Он был записан с продюсером <STRONG>Dan Swano, </STRONG>при участии басиста <B>EVERGREY</B> <STRONG>Michael Hakansson.</STRONG> Релиз ожидается 5 октября на<STRONG> Threeman Recordings. </STRONG>Трек-лист альбома:</FONT></P>
+<P><STRONG><IMG height=250 alt="" hspace=15 src="/images/news_rus/2005.08/9089.jpg" width=250 align=left border=0>1. At the entrance to hell's unholy fire (<A href="http://abyss.sapphire-faeries.net/tph/tph_-_entrance.mp3">mp3</A>)<BR>2. The bleeding eyes of a breeding whore <BR>3. I see nothing but flesh <BR>4. Resurrected for massive torture <BR>5. We couldn't be further from the truce <BR>6. Godslaughtering murder machine <BR>7. Symphony of the deceived <BR>8. Loveless, godless, flawless<BR></STRONG></P>
+Автор: Dimas
+
+### 31.12.2008 news THE PROJECT HATE в студии
+
+<P><STRONG>THE PROJECT HATE</STRONG> работают над своим шестым альбомом. Музыканты планируют завершить запись через пару месяцев. Подробности последуют.</P>
+Автор: Vit Belov
+
+### 27.04.2009 news Новый альбом THE PROJECT HATE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=300 alt="" hspace=0 src="/images/news_rus/2009.04/14011.jpg" width=300 align=right border=5>Новый альбом <STRONG>THE PROJECT HATE</STRONG> <STRONG>"The Lustrate Process" </STRONG>выходит 6 июля на<STRONG> Vic Records</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Descend Into The Pits Of Eternal Possession</B><BR>02. <B>You Come To Me Through Hell</B><BR>03. <B>See The Filth Become Flames In This Furnace</B><BR>04. <B>Our Wrath Will Rain Down From The Sky</B><BR>05. <B>The Locust Principles</B><BR>06. <B>Arise To His World Of Infamy</B><BR>07. <B>The Burial Of Gods</B></P>
+<P>Список приглашённых музыкантов:</P>
+<P><STRONG>Mike Wead</STRONG> (MERCYFUL FATE, KING DIAMOND) - solos<BR><B>P&#228;r Fransson</B> (CARNAL GRIEF) - solos<BR><B>Martin van Drunen</B> (ASPHYX, ex-PESTILENCE) - vocals<BR><B>Christian &#196;lvestam</B> (ex-SCAR SYMMETRY) - vocals<BR><B>L.G. Petrov</B> (ENTOMBED) - vocals<BR><B>Johan Hegg</B> (AMON AMARTH) - vocals<BR><B>Robban Eriksson</B> - vocals</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

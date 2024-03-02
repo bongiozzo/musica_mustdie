@@ -47,6 +47,54 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.12.2011 news DIABULUS IN MUSICA на Napalm Records
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=317 alt="" hspace=0 src="/images/news_rus/2011.12/22248.jpg" width=475 align=right border=0>Испанский коллектив с женским вокалом <STRONG>DIABULUS IN MUSICA </STRONG>подписал контракт с <STRONG>Napalm Records</STRONG>. Второй альбом группы выйдет в марте. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютный альбом <STRONG>DIABULUS IN MUSICA "Secrets" </STRONG>вышел в 2010 году на <STRONG>Metal Blade/Фоно</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 30.01.2012 news Детали нового DIABULUS IN MUSICA
+
+<P><IMG height=250 alt="" hspace=0 src="/images/news_rus/2012.01/22854.jpg" width=250 align=right border=0>Новый альбом группы с женским вокалом<STRONG> DIABULUS IN MUSICA "The Wanderer"</STRONG> выйдет 5 марта на<STRONG> Napalm Records</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>A Journey's End<BR></STRONG>2. <STRONG>Ex Nihilio<BR></STRONG>3. <STRONG>Sceneries of Hope<BR></STRONG>4. <STRONG>Blazing a Trail<BR></STRONG>5. <STRONG>Call from a Rising Memory</STRONG><BR>6. <STRONG>Hidden Reality<BR></STRONG>7. <STRONG>Shadow of the Throne<BR></STRONG>8. <STRONG>Allegory of Faith, Innocence and Future<BR></STRONG>9. <STRONG>Sentenced to Life <BR></STRONG>10. <STRONG>Oihuka Bihotzetik<BR></STRONG>11. <STRONG>No Time for Repentance</STRONG> (Lamentatio)<BR>12. <STRONG>The Wanderer</STRONG></P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/yd17f21f58s?version=3&feature=player_embedded"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/yd17f21f58s?version=3&feature=player_embedded" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.03.2014 news Новое видео DIABULUS IN MUSICA
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В апреле на <STRONG>Napalm Records</STRONG> выходит третий альбом испанской sympho-metal команды<STRONG> DIABULUS IN MUSICA "Argia"</STRONG>. Видео на песню&nbsp;<STRONG>'Inner Force'</STRONG> с этого альбома можно увидеть ниже. Трек-лист:</FONT></P>
+<P><STRONG>'Et Resurrexit (Libera Me)' <BR>'From The Embers' <BR>'Inner Force' <BR>'Furia de Libertad' (feat. Ailyn Gim&#233;nez) <BR>'Maitagarri' <BR>'Sed Diabolus' <BR>'Spoilt Vampire' <BR>'Eternal Breeze' <BR>'Mechanical Ethos' <BR>'Encounter At Chronos' Maze' (feat. Thomas Vikstr&#246;m) <BR>'Indigo' <BR>'Healing' <BR>'Horizons'</STRONG> </P>
+<P><center><IMG border=0 src="/images/news_rus/2014.03/26724.jpg" width=410 height=410></P>
+<P><center><iframe width="640" height="360" src="//www.youtube.com/embed/M6A9Kywcasc?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 08.09.2016 news Первый сингл DIABULUS IN MUSICA
+
+<p>Первый сингл "<strong>Earthly Illusions</strong>" с нового альбома gothic metal группы с женским вокалом <strong>DIABULUS IN MUSICA "Dirge For The Archons"</strong> можно послушать ниже. Релиз назначен на 18 ноября на <strong>Napalm Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/AaM-9dwhZ5g" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 08.09.2016 news Debut single from ne album of DIABULUS IN MUSICA revealed
+
+<p>The first single "<strong>Earthly Illusions</strong>" from the new album of gothic metal band with female vocals <strong>DIABULUS IN MUSICA "Dirge For The Archons" </strong>can be streamed below. Scheduled for release on November 18 via <strong>Napalm Records</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/AaM-9dwhZ5g" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 12.11.2016 news Новое видео группы с женским вокалом DIABULUS IN MUSICA
+
+<p>18 ноября на <strong>Napalm Records</strong> выйдет новый альбом gothic metal коллектива <strong>DIABULUS IN MUSICA "Dirge For The Archons"</strong>. Новый клип испанцев "<strong>Invisible</strong>" можно посмотреть ниже.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Uopyt1uuUig" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 12.11.2016 news Female fronted band DIABULUS IN MUSICA released video
+
+<p><strong>Napalm Records</strong> will release the new album of gothic metal band <strong>DIABULUS IN MUSICA "Dirge For The Archons" </strong>on November, 18. New clip of the Spanish "<strong>Invisible</strong>" can be viewed below.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/Uopyt1uuUig" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

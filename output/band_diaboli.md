@@ -21,6 +21,9 @@ Brutal Death Black
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 ### DIABOLICAL MASQUERADE'2001

@@ -102,6 +102,76 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.03.2009 news LAMB OF GOD на втором месте!!!
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>LAMB OF GOD "Wrath" </STRONG>стартовал в американском чарте <STRONG>Billboard</STRONG> со второго места. За первую неделю было продано 68000 экземпляров. Группа уступила только <STRONG>Taylor Swift</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 03.06.2010 articles LAMB OF GOD в Санкт-Петербурге: &quot;Концерт, на котором безопаснее быть пьяным&quot;
+
+<P><STRONG>28 мая, <SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1">Санкт-Петербург, "ГлавClub"</SPAN></STRONG></P>
+<P><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"></SPAN>Lamb of God – сейчас пожалуй одна из самых известных групп новой волны американского хэви метал. Ребята прошли долгий путь к настоящему признанию публикой. А наградами за столь упорный труд&nbsp; стали ни много ни мало место в первых строчках&nbsp; Billboard, совместные гастроли с Metallica в 2008 году, номинация Грэмми в 2007 году в категории Best Metal Performance за трек "Redneck" (альбом "Sacrament" (2006)) и конечно, бесконечная любовь фанатов по всему миру.</P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=left src="/images/articles_rus/2010.06/16778.jpg" width=267 height=400>Наконец они добрались и до Питера! Радости фанатов не было предела. Судя по лицам людей перед концертом, приезд группы многие начали отмечать задолго до начала концерта. Народ в тот вечер в ГЛАВCLUB&nbsp; делился на две категории: первые были отчаянно пьяны и счастливы, они веселились, как только могли. Они танцевали, прыгали, кричали, кидали на сцену пластиковые стаканы и других представителей этой же категории! Вторые были относительно трезвы, по крайней мере, инстинкт самосохранения у них еще работал, поэтому они были вынуждены весь концерт быть на чеку, так как представители первой категории так и норовили кого-нибудь случайно толкнуть, чем-нибудь облить или, что ничуть не лучше, поделиться своим счастьем, кто как его ощущал. Так что в этот вечер в ГЛАВКЛАБе лучше было быть пьяным -&nbsp;в общей массе веслее и <IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/articles_rus/2010.06/16776.jpg" width=267 height=400>безопаснее, а если что-то и случится, не так обидно будет!</P>
+<P>Хотя Lamb of God и не задержали свой выход ни на минуту, стоило им появиться на сцене, как толпа взорвалась. А при первых же нотах "In Your Words" в зале начался слэм. Фотографы, которые ни как ни ожидали жесткого слема на первых же песнях, были очень удивлены, когда на них из толпы полетели передаваемые по рукам фанаты. Но, даже когда фотограф успевал увернуться от «снаряда», его с другой стороны атаковал какой-нибудь доблестный охранник, спешивший обезвредить и вывести обратно в зал нарушителя. В общем работой в этот вечер секьюрити в ГЛАВCLUB были обеспечены как минимум на месяц вперед! </P>
+<P>На самом деле все было очень позитивно и весело. Эту атмосферу умело создавал солист Randy Blythe, который весь концерт провоцировал фанатов фразами типа «Сегодня вы можете делать что хотите! Давайте!».&nbsp; И люди отрывались по полной! Randy пришел в группу в 1995 году, когда группе было еще только 5 лет и называлась она Burn the Priest.&nbsp; Говорят, «как корабль назовешь, так он и поплывет». Эта поговорка пришлась как нельзя кстати группе, ведь пока они назывались Burn the Priest (англ. «сожги священника»), они не имели особой популярности и ни чем за тот период не отличились. Многие концертные площадки отказывали им из-за чересчур жесткого имени. Однако, стоило сменить это дьявольское название на Lamb of God, как карьера группы пошла в гору.</P>
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=left src="/images/articles_rus/2010.06/16777.jpg" width=244 height=400>Редкий исполнитель может так умело завести зал, чтоб галерка прыгала в такт с первым рядом. Правда, ни кто кроме Randy больше на сцене не был столь активен. Он, можно сказать, один задавал настроение публике. Возможно дело в возрасте, самой группе уже 20 лет, а участникам примерно в 2 раза больше. Но фронтмэн для того и существует, чтоб за всех отдуваться. От жары Randy спасался литровыми дозами воды, выливаемыми на длинную шевелюру, а потом он тряс волосами с такой силой, что брызги долетали практически до середины зала! Фанаты были в экстазе!</P>
+<P>Завершили американцы свое выступление композицией "Black Label" и традиционной раздачей медиаторов и барабанных палочек. Они так же вошли в положение изнеможенных за концерт фанатов и выкинули в зал все бутылки с водой, что нашли в пределах сцены. Но фанаты не спешили уходить, они еще долго после окончания концерта скандировали название группы, а когда поняли, что&nbsp; Lamb of God уже не выйдут на сцену, отправились ждать их машину у ворот клуба. Однако не все смогли выйти сразу, для многих участие в слэме принесло такие потери как левый ботинок, кофта и т. п. Так что люди ходили по залу в поисках своих вещей, а охранники с явным удивлением на лице складировали все свои находки в кучку возле сцены. И только когда все нашли свои вещи, а автобус с группой скрылся за поворотом под громкие крики фанатов, концерт можно было считать полностью законченным и все начали расходиться, делясь друг с другом впечатлениями.</P>
+<P>Текст и фото: Анна Ходакова.</P>
+Автор: Headcrusher
+
+### 02.12.2010 news Номинанты &quot;Грэмми&quot; за этот год
+
+<P><IMG height=299 alt="" hspace=0 src="/images/news_rus/2010.12/17727.jpg" width=400 align=right border=0>Объявлены номинанты музыкальной премии<STRONG> "Грэмми"</STRONG> за 2010 год. 53 церемония вручения наград состоится 13 февраля 2011 года в <STRONG>Staples Center</STRONG> в Лос-Анджелесе. </P>
+<P>На звание лучшей 'hard-rock' команды претендуют следующие&nbsp;песни и исполнители:</P>
+<P>* <B>ALICE IN CHAINS</B> - "A Looking In View" (from "Black Gives Way to Blue")<BR>* <B>OZZY OSBOURNE</B> - "Let Me Hear You Scream" (from "Scream")<BR>* <B>SOUNDGARDEN</B> - "Black Rain" (from "Telephantasm")<BR>* <B>STONE TEMPLE PILOTS</B> - "Between The Lines" (from "Stone Temple Pilots")<BR>* <B>THEM CROOKED VULTURES</B> - "New Fang" (from "Them Crooked Vultures")</P>
+<P>На премию в категории "метал" номинированы:</P>
+<P>* <B>IRON MAIDEN</B> - "El Dorado" (from "The Final Frontier")<BR>* <B>KORN</B> - "Let The Guilt Go" (from "Korn III: Remember Who You Are")<BR>* <B>LAMB OF GOD</B> - "In Your Words" (from "Wrath")<BR>* <B>MEGADETH</B> - "Sudden Death" (from "Guitar Hero: Warriors Of Rock")<BR>* <B>SLAYER</B> - "World Painted Blood" (from "World Painted Blood")</P>
+<P>На заветный "граммофон" могут претендовать исполнители, выпустившие новую музыку с 1 сентября 2009 года по 30 сентября 2010 года.</P>
+Автор: Vit Belov
+
+### 16.04.2011 news Jamey Jasta выпустит сольный альбом
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.04/19231.jpg" width=213 height=300>26 июля на лейбле <STRONG>eOne Music</STRONG> выходит сольный альбом Джеймса Джаста (<STRONG>Jamey Jasta</STRONG>), вокалиста&nbsp;<STRONG>HATEBREED</STRONG> и <STRONG>KINGDOM OF SORROW</STRONG>.</P>
+<P>На альбоме, получившим скромное название <STRONG>"Jasta"</STRONG>, отметятся следующие гостевые музыканты: <B>Tim Lambesis</B> (<B>AS I LAY DYING</B>),&nbsp;профессиональный скейтер&nbsp;<B>Mike Vallely</B>, <B>Philip Labonte</B> (<B>ALL THAT REMAINS</B>), <B>Randy Blythe</B> и <B>Mark Morton</B> (<B>LAMB OF GOD</B>) и легендарный гитарист&nbsp;<B>Zakk Wylde</B>. <BR></P>
+<P><BR>&nbsp;</P>
+Автор: Headcrusher
+
+### 06.07.2011 news Chris Adler признан лучшим метал-барабанщиком
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=513 alt="" hspace=0 src="/images/news_rus/2011.07/19915.jpg" width=232 align=right border=0>По результатам опроса читателей&nbsp;журнала <STRONG>Modern Drummer </STRONG>в категории "метал" победил <STRONG>Chris Adler (LAMB OF GOD)</STRONG>. Вот первая пятёрка лауреатов:</FONT></P>
+<P>01. <B>Chris Adler</B> (LAMB OF GOD)<BR>02. <B>Joey Jordison</B> (SLIPKNOT)<BR>03. <B>Morgan Rose</B> (SEVENDUST)<BR>04. <B>Gene Hoglan</B> (FEAR FACTORY, TESTAMENT, DETHKLOK)<BR>05. <B>Brann Dailor</B> (MASTODON)</P>
+<P><STRONG>Chris Adler</STRONG> совсем недавно записал гостевые партии для нескольких песен нового альбома <STRONG>TESTAMENT</STRONG>. Там же, кстати, работает и номер 4 списка <STRONG>Gene Hoglan</STRONG>.</P>
+Автор: Vit Belov
+
+### 10.01.2012 news LAMB OF GOD поют с оркестром
+
+<P>Ниже можно посмотреть новый трейлер к новому альбому <STRONG>LAMB OF GOD "Resolution"</STRONG>, который выйдет 24 января на <STRONG>Roadrunner</STRONG>. В клипе можно услышать фрагмент завершающей альбом вещи "<STRONG>King Me</STRONG>", в записи которой приняли участие симфонический оркестр и певица-сопрано <STRONG>Amanda Munton</STRONG>. Группа заявляет, что это самый амбициозный её проект за всю историю.</P>
+<P>
+<CENTER><IFRAME src="http://player.vimeo.com/video/34820409" frameBorder=0 width=400 height=220 allowFullScreen mozallowfullscreen webkitAllowFullScreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 09.04.2015 news Изменения в составе MEGADETH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2015.04/27893.jpg" width=350 height=462>Как возможно уже многие из вас знают, в конце ноября прошлого года, группа <STRONG>MEGADETH</STRONG> лишилась сразу двух своих музыкантов. Ими стали <STRONG>Shawn Drover</STRONG> (барабаны) и <STRONG>Chris Broderick</STRONG> (гитара).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На днях <STRONG>MEGADETH</STRONG> объявили новых участников (по крайней мере, на время записи нового альбома). Первый из них, это <STRONG>Chris</STRONG> <STRONG>Adler</STRONG>, барабанщик <STRONG>LAMB OF GOD</STRONG>, а второй - гитарист <STRONG>Kiko Loureiro</STRONG>, снискавший известность&nbsp;со&nbsp;своей группой <STRONG>ANGRA</STRONG>. Остаётся только с нетерпением ожидать, что же принесёт данный союз.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как заявил <STRONG>Dave Mustaine</STRONG> в своём аккаунте в Twitter, у группы уже сочинено 15 песен для новой пластинки. Интересно, сколько из них&nbsp;в итоге увидит свет?</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Тем временем, <STRONG>Shawn Drover</STRONG> и <STRONG>Chris Broderick</STRONG> сколотили новый совместный проект под названием <STRONG>ACT OF DEFIANCE</STRONG>,&nbsp;куда также вошли&nbsp;вокалист <STRONG>Henry Derek</STRONG> (ex-<STRONG>SCAR THE MARTYR</STRONG>) и басист <STRONG>Matt Bachand</STRONG> (<STRONG>SHADOWS FALL</STRONG>).</FONT></P>
+Автор: Headcrusher
+
+### 11.08.2016 news Новый клип LAMB OF GOD
+
+<p>Новое видео<strong> LAMB OF GOD</strong> на песню "<strong>Embers</strong>" можно посмотреть ниже. Трек - последний сингл с прошлогоднего альбома <strong>LAMB OF GOD "VII: Sturm Und Drang".</strong></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/02gM-EMW1B4" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 11.08.2016 news New video from LAMB OF GOD
+
+<p>New <strong>LAMB OF GOD</strong> video for the song "<strong>Embers</strong>" can be viewed below. The track is the latest single from the album <strong>LAMB OF GOD "VII: Sturm Und Drang".</strong></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/02gM-EMW1B4" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

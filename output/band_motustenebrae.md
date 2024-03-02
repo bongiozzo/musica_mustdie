@@ -28,6 +28,29 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.07.2016 news MOTUS TENEBRAE празднуют юбилей
+
+<p>Итальянская gothic doom metal команда <strong>MOTUS TENEBRAE</strong> празднует своё пятнадцатилетие кавером на песню <strong>THE CURE "Burn"</strong>. Ниже можно его услышать.</p><p>Коллектив выпустил в этом году новый альбом "<strong>Deathrising</strong>".</p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/rv5A-nbkNmA" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 05.07.2016 news &quot;Burn&quot;, THE CURE classic, to celebrate MOTUS TENEBRAE 15th anniversary
+
+<p>Italian Gothic Doom Metal masters<strong> MOTUS TENEBRAE</strong> celebrate the 15 years of career covering <strong>THE CURE</strong>'s classic "<strong>Burn</strong>" for what is intented to be a new manifesto of heaviness, depth & atmosphere.</p><p>After 15 years, 5 full-length albums + 1 EP released, dozens of live shows and a great fame into the international Gothic Metal and Dark scene, the band recorded its own version of this great classic of the cult English Dark band for the occasion mastered by the great <strong>Colin Davis</strong> at the <strong>Imperial Mastering Studio</strong>.</p><p><center><iframe width="854" height="480" src="https://www.youtube.com/embed/rv5A-nbkNmA" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 09.08.2016 news Новый клип MOTUS TENEBRAE
+
+<p>Новый ролик итальянской группы <strong>MOTUS TENEBRAE</strong> на песню "<strong>Desolation</strong>" можно посмотреть ниже. Трек взят с последнего альбома коллектива "<strong>Deathrising</strong>".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/AC7KwlfzD7s" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 09.08.2016 news New clip of MOTUS TENEBRAE
+
+<p>Italian Gothic Doom masters<strong> MOTUS TENEBRAE</strong> release the new videoclip off their album "<strong>Deathrising</strong>". It is for the track "<strong>Desolation</strong>", and it's a new masterpiece of Gothic Doom Metal by one of the best bands in that genre. You can view it below.</p><p>The video, directed and edited by the great surreal artist <strong>Andrea Falaschi</strong> (<a href="http://fraterorion.deviantart.com">http://fraterorion.deviantart.com</a>), also drummer of the band, and Davide Frino, shows the decadent essence of a band celebrating one of the best and absolutely the darkest and gloomiest songs off "Deathrising".</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/AC7KwlfzD7s" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

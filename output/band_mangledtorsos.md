@@ -29,6 +29,9 @@ Recorded & mixed by R.Stahl & MANGLED TORSOS in N.M. Studios
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

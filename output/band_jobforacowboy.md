@@ -32,6 +32,51 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 29.05.2009 news Новости от JOB FOR A COWBOY
+
+<P><STRONG><IMG height=395 alt="" hspace=5 src="/images/news_rus/2009.05/14121.jpg" width=400 align=right vspace=5 border=0>JOB FOR A COWBOY</STRONG> закончили работу над своим вторым полноформатным альбомом <STRONG>"Ruination"</STRONG>. Он увидит свет в начале июля на <STRONG>Metal Blade</STRONG>.</P>
+<P>Стало, так же, доступно и оформление диска, которое было разработано <STRONG>Brent Elliott White</STRONG> и берёт своё вдохновение из лирики и концепции, придуманной фронтмэном группы.</P>
+Автор: Headcrusher
+
+### 04.07.2009 news Новый альбом JOB FOR A COWBOY на Myspace!
+
+<P>Группа <STRONG>JOB FOR A COWBOY</STRONG> выложила свой новый альбом <STRONG>"Ruination"</STRONG>&nbsp;для прослушивания на своей Myspace-странице по адресу: <A href="http://www.myspace.com/jobforacowboy">http://www.myspace.com/jobforacowboy</A></P>
+<P><IMG height=270 alt="" hspace=100 src="/images/news_rus/2009.07/14397.jpg" width=400 vspace=5 border=0></P>
+Автор: Headcrusher
+
+### 07.09.2009 reviews Брутальный «кор» жив!
+
+<P>Группа из Аризоны с оригинальным названием JOB FOR A COWBOW не играет alternative или country, как вам могло бы показаться. Ребята нарезают брутальнейший вариант metalcore, который раньше было принято называть death-metal.</P>
+<P>Безусловно, в музыке JFC присутствуют «коровые» элементы, а где они сейчас не присутствуют. Но обозреваемый альбом настолько тяжёл, что язык не повернётся назвать его музыкой для развлечения. Элементы «мелодичных» стилей здесь встречаются. Например, в одном месте нечто похожее на чистый вокал, а в паре мест мелодичное гитарное соло. В остальном JOB FOR A COWBOW представляют тяжеленный deathcore с довольно стойким налётом техничности. На крупных лэйблах в широком доступе последнее время редко выходят подобные альбомы, Metal Blade - радостное исключение из правил. Их продукция может и отдаёт некоторым однообразием, но не оставляет надежды на возрождение death-metal в широкой продаже, ведь наш лицензионный рынок и есть некое отражение этой самой мировой «широкой продажи». Те, безусловно хорошие death-metal альбомы, которые на него не выходят, как правило, и не выходят в широкие дистро-сети зарубежом. </P>
+<P>JOB FOR A COWBOY радуют своей принципиальной любовью к брутальному звучанию. Их альбом не является шедевром, но любители стиля послушают его с удовольствием.</P>
+Автор: Vit Belov
+
+### 01.05.2010 news Клип JOB FOR A COWBOY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео<STRONG> JOB FOR A COWBOY</STRONG> на песню <STRONG>"Ruination" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/q8QgImg2TEs&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/q8QgImg2TEs&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.02.2012 news Новый альбом JOB FOR A COWBOY
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.02/23164.jpg" width=475 align=right border=0>Новая работа американцеы <STRONG>JOB FOR A COWBOY "Demonocracy"</STRONG> выйдет 10 апреля на <STRONG>Metal Blade</STRONG>. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="57">Children of Deceit</B><BR itxtNodeId="56">02. <B itxtHarvested="0" itxtNodeId="55">Nourishment Through Bloodshed</B><BR itxtNodeId="54">03. <B itxtHarvested="0" itxtNodeId="53">Imperium Wolves</B><BR itxtNodeId="52">04. <B itxtHarvested="0" itxtNodeId="51">Tongueless and Bound</B><BR itxtNodeId="50">05. <B itxtHarvested="0" itxtNodeId="49">Black Discharge</B><BR itxtNodeId="48">06. <B itxtHarvested="0" itxtNodeId="47">The Manipulation Stream</B><BR itxtNodeId="46">07. <B itxtHarvested="0" itxtNodeId="45">The Deity Misconception</B><BR itxtNodeId="44">08. <B itxtHarvested="0" itxtNodeId="43">Fearmonger</B><BR itxtNodeId="42">09. <B itxtHarvested="0" itxtNodeId="41">Tarnished Gluttony</B></P>
+<P><center><object height="81" width="60%"><param name="movie" value="https://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F37999934&secret_token=s-Z5SyX&color=5bc6cf"></param><param name="allowscriptaccess" value="always"></param><embed allowscriptaccess="always" height="81" src="https://player.soundcloud.com/player.swf?url=http%3A%2F%2Fapi.soundcloud.com%2Ftracks%2F37999934&secret_token=s-Z5SyX&color=5bc6cf" type="application/x-shockwave-flash" width="100%"></embed></object>
+Автор: Vit Belov
+
+### 09.08.2012 news JOB FOR A COWBOY: клип &quot;Tarnished Gluttony&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Модные аризонские металлисты <STRONG>JOB FOR A COWBOY</STRONG>, опубликовали видеоклип на трек <STRONG>"Tarnished Gluttony"</STRONG>. Песня вошла в последний альбом коллектива <STRONG>"Demonocracy"</STRONG> (апрель 2012).</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/51PKRtzFcCw" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

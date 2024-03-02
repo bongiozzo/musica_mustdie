@@ -38,6 +38,51 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.01.2012 news Дебютный альбом ADRENALINE MOB
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=225 alt="" hspace=0 src="/images/news_rus/2012.01/22518.jpg" width=200 align=right border=0>Новая группа барабанщика <STRONG>DREAM THEATER Mike Portnoy</STRONG> с <STRONG>Russel Allen (SYMPHONY X)</STRONG> на вокале <STRONG>ADRENALINE MOB</STRONG> объявила название дебютной работы - "<STRONG>Omerta</STRONG>". Диск выйдет 13 марта. Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. <STRONG>Undaunted<BR></STRONG>2. <STRONG>Psychosane<BR></STRONG>3. <STRONG>Indifferent<BR></STRONG>4. <STRONG>All On The Line<BR></STRONG>5. <STRONG>Hit The Wall<BR></STRONG>6. <STRONG>Feelin' Me<BR></STRONG>7. <STRONG>Come Undone</STRONG> (DURAN DURAN cover ft. Lzzy Hale of HALESTORM) <BR>8. <STRONG>Believe Me<BR></STRONG>9. <STRONG>Down To The Floor</STRONG><BR>10. <STRONG>Angel Sky<BR></STRONG>11. <STRONG>Freight Train</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 21.01.2012 news Видео ADRENALINE MOB
+
+<P>Новый ролик на песню "<STRONG>Undaunted"</STRONG> от <STRONG>ADRENALINE MOB</STRONG>, новой группы <STRONG>Mike Portnoy</STRONG> и <STRONG>Russell Allen</STRONG>, можно посмотреть ниже. Трек выйдет на дебютном полноформатном альбоме коллектива "<STRONG>Omerta</STRONG>", который в Европе выйдет на <STRONG>Century Media</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/TJkIy1IqBGc?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 08.05.2012 news Новый клип ADRENALINE MOB
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео супергруппы<STRONG> ADRENALINE MOB</STRONG> на песню <STRONG>"Indifferent" </STRONG>можно увидеть ниже. В составе коллектива <STRONG>Mike Portnoy</STRONG> (<B>DREAM THEATER</B>, <B>AVENGED SEVENFOLD</B>) и<STRONG> Russell Allen (SYMPHONY X). </STRONG>Трек взят с дебюта группы <STRONG>"Omerta"</STRONG>, который вышел на <STRONG>Century Media</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/SCpfoWsU33k?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/SCpfoWsU33k?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 01.11.2013 news Новый альбом ADRENALINE MOB в феврале
+
+<p>Новый альбом проекта <strong>Russell Allen</strong> (vocals; <b>SYMPHONY X</b>), <b>Mike Orlando</b> (guitar)&nbsp;и <b>John Moyer</b> (bass; <b>DISTURBED</b>)<strong> ADRENALINE MOB</strong> выйдет в феврале на пока не названном лэйбле.</p><p>Бывший барабанщик <strong>DREAM THEATER Mike Portnoy</strong> покинул группу в июне. Его замена пока не объявлена.</p><p><center><img width="638" height="493" src="/images/news_rus/2013.11/26295.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 24.03.2015 news Скончался AJ Pero (TWISTED SISTER, ADRENALINE MOB)
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2015.03/27793.jpg" width=300 height=412>Печальные новости пришли из-за границы... В прошлую пятницу, 20 марта, в возрасте 55 лет, скончался <STRONG>AJ Pero</STRONG>, барабанщик, прославившийся своим участием в группе <STRONG>TWISTED SISTER</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Произошло это во время тура группы <STRONG>ADRENALINE MOB</STRONG>, участником которой, <STRONG>AJ</STRONG> стал в 2013 году.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>С <STRONG>ADRENALINE MOB</STRONG> он успел записать полноформатник <STRONG>"Men Of Honor"</STRONG> (2014) и&nbsp;EP&nbsp;этого года&nbsp;под названием <STRONG>"Dearly Departed"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В <STRONG>TWISTED SISTER</STRONG> его игру можно услышать на всех альбомах, кроме диска <STRONG>"Love Is For Suckers"</STRONG> (1987).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Причина смерти пока не ясна.</FONT></P>
+Автор: Headcrusher
+
+### 10.08.2016 reviews Редкий случай, когда &quot;супергруппа&quot; - действительно супер
+
+
+Автор: Horeok
+
+### 10.08.2016 reviews Редкий случай, когда &quot;супергруппа&quot; - действительно супер
+
+<p>Adrenaline Mob - супергруппа, образованная вокалистом Symphony X Расселом Алленом и гитаристом Майком Орландо. На первом альбоме коллектива, увидевшем свет в 2012 году так же отметился патриарх progressive metal Майк Портной, вследствие чего этот проект многие на автопилоте поспешили отнести именно к вышеуказанному поджанру.</p><p>На самом деле четвёрка играет абсолютно прямолинейный и, в хорошем смысле, легко доступный для восприятия современный хард`н`хэви, замешанный на alternative и groove metal. Майк Портной покинул коллектив, что на мой взгляд, никак не отразилось на качестве и интересности данного альбома. Радикальное положительное отличие от дебютника - песни тут не делятся на хиты и фоновый материал, диск слушается на одном дыхании "от и до". Группа немного "гуляет" по временам, имитируя то олдскульный хард-роковый угар (как, скажем, в&nbsp; Feel the Adrenaline), то ню-металлическую "мазафаку" (Let It Go). За всем этим прячется еще одна прелесть пластинки, это своего рода стилистическая пародия, но не злая, а скорее добрая, ироничная. Еще одним несомненным плюсом альбома я бы назвал очень разнообразный вокал Аллена - поёт он гораздо вариативнее и искреннее чем в своей основной группе (или просто сам материал здесь разнообразнее и интереснее?). Всё это, конечно, субъективно. Приятно удивили баллады, они звучат не банально, без автопилотного сахара и соплей, напротив, очень естественно, чему во многом способствует своеобразный тембр вокалиста.</p><p>В итоге мы имеем простой, но очень крепкий, вкусный и разнообразный (в рамках жанра, конечно же) вариант современного хард`н`хэви. Альбом настоятельно рекомендуется всем, кроме принципиально игнорирующих всё, что современнее Motorhead и Judas Priest.</p>
+Автор: Horeok
+
+
 ## Обсуждения
 
 

@@ -292,6 +292,152 @@ Tim McGraw - vocals on "Nine Lives"
 * C группой "Whitesnake" Vivian Campbell (guitar)
 * C группой "Girl" Phil Collen (guitar)
 
+## Публикации
+
+### 05.03.1999 news 
+
+<p>Новый альбом Def Leppard выйдет в ближайшие два месяца. После этого события группа отправится в турне.</p>
+
+Автор: Vit Belov
+
+### 06.03.2000 news 
+
+<p>Def Leppard начали свой тур в поддержку последнего альбома в феврале. Новый же студийный альбом появится не раньше 2001 года.</p>
+
+Автор: Vit Belov
+
+### 20.03.2001 reviews Заря NWOBHM
+
+<p>Да-а... То было время. В 1980 году, когда мир был еще молод, свой первый альбом выпустили и Деф Леппард. Он, пожалуй, прошел не замеченным по меркам вечности, особенно по сравнению с их позднейшими достижениями, да и с Iron Maiden. А зря. Ведь этот альбом - лучшее, что Леппард создали. Это - уникальный пример того, как должен звучать высококачественный хард-рок, не претендующий на то, чтобы быть хэви-металлом, но не коммерческий. На On Through The Night есть жизнерадостные песни. Но их бесшабашная, агрессивная искренность не идет ни в какое сравнение с позднейшими бездумными опусами Leppard вроде Action! Not Words или Make Love Like A Man. На большей же части альбома драйв сочетается с той рок-н-ролльной недепрессивной серьезностью, которую изобрели Deep Purple, написав Smoke On The сами знаете чём. Текстов таких с тех пор Def Leppard тоже никогда не писали. Конечно, The Walls Came Tumblin Down и Overture выдают любовь Леопардов к Свинцовым Дирижаблям, но это не более чем работа в той же традиции. Overture - вообще эпик, одно наличие которого уже делает этот альбом хорошей покупкой. В общем, если это не хард-рок шедевр, тогда ничего, кроме In Rock на это звание претендовать не может...</p>
+
+Автор: Alexey Hurin
+
+### 06.02.2002 news Больно мне, больно.... Не унять мне глухую боль...
+
+<p>"Nothing Remains The Same" - третий альбом проекта Пети Тагтгрена "PAIN" на этой неделе занял шестое место в шведском чарте альбомов. Первый сингл "Shut Your Mouth" продолжает оставаться в топ двадцатке уже более двух месяцев. Также состоялась ТВ-премьера видео снятого на трек "Just Hate Me" - совместное детище Питера и супер-пупер попс-продюссера Max Martin (BRITNEY SPEARS, BACKSTREET BOYS, CELINE DION), а также Per Aldeheim (DEF LEPPARD, LAMBRETTA)....</p>
+
+Автор: Yermola
+
+### 06.02.2002 news PAIN Enters Swedish Album Chart At #6 ...
+
+<p>Nothing Remains The Same, the third full-length album from Sweden's PAIN, featuring HYPOCRISY mainman Peter Tagtgren, entered the Swedish Album charts at position #6 as the highest new entry the week of its release. The first single, "Shut Your Mouth" still sits tightly in the top 20 on the Singles chart after two months. Meanwhile, Swedish national television show Voxpop just had a world premiere of the group's new video, for the track "Just Hate Me", which was co-written by mega-producer Max Martin (aka Martin Sandberg—i.e. BRITNEY SPEARS, BACKSTREET BOYS, CELINE DION) and Per Aldeheim (i.e. DEF LEPPARD, LAMBRETTA). In the works for four and a half months, the video reportedly “uses the same technology as George Lucas used for the first Star Wars film. In the video, we find Peter and the band, consisting of robots (check out Reidar with 8 arms...) on an old atomic submarine in the desert and a mad professor who invented the first robot with human emotions”. Sounds interesting…and expensive.</p>
+
+Автор: Yermola
+
+### 12.05.2002 news DEF LEPPARD&#39;s news
+
+<p>DEF LEPPARD's brand new studio album, entitled X, is tentatively due in the fall.</p>
+
+Автор: Dimas
+
+### 12.05.2002 news DEF LEPPARD обещают новый альбом
+
+<p>DEF LEPPARD - группа выпускающая свои альбомы с огромным перерывом, наконец-то обещает нас порадовать своим новым альбомом под названием "X". Предположительно, он выйдет в сентябре-октябре 2002 года. Хотелось бы в это верить, но надо учитывать, что дата выхода этого альбома передвигается уже не в первый раз...</p>
+
+Автор: Dimas
+
+### 13.06.2002 news Х от DEF LEPPARD....
+
+<p>"DEF LEPPARD" опубликовали полный трек-лист своего нового альбома "X" который должен появиться в продаже в Америке 30-го июля: <BR><BR> 01. Now<BR> 02. Unbelievable<BR> 03. You're So Beautiful<BR> 04. Everyday<BR> 05. Long, Long Way To Go<BR> 06. Four Letter Word<BR> 07. Torn To Shreds<BR> 08. Love Don't Lie<BR> 09. Gravity<BR> 10. Cry<BR> 11. Girl Like You<BR> 12. Let Me Be The One<BR> 13. Scar<BR> 14. Kiss The Day<BR> 15. Long, Long Way To Go (acoustic)<BR><BR> Несколько MP3 новых песен можно послушать <A HREF="http://www.defleppard.com/">здесь.....</A></p>
+
+Автор: Yermola
+
+### 13.06.2002 news DEF LEPPARD Announce &quot;X&quot; Track Listing ....
+
+<p>DEF LEPPARD have announced the full track listing for their upcoming X effort, which is schedule to receive a North American release on July 30th. It is as follows: <BR><BR> 01. Now<BR> 02. Unbelievable<BR> 03. You're So Beautiful<BR> 04. Everyday<BR> 05. Long, Long Way To Go<BR> 06. Four Letter Word<BR> 07. Torn To Shreds<BR> 08. Love Don't Lie<BR> 09. Gravity<BR> 10. Cry<BR> 11. Girl Like You<BR> 12. Let Me Be The One<BR> 13. Scar<BR> 14. Kiss The Day* <BR> 15. Long, Long Way To Go (acoustic)* <BR><BR> * = (Japanese & UK release only)<BR><BR> Several MP3 clips from the album can be downloaded from the group's official web site at <A HREF="http://www.defleppard.com/">this location. </A></p>
+
+Автор: Yermola
+
+### 19.08.2002 reviews Юбилейный альбом
+
+<p>Именно с этой группы началось мое знакомство с миром тяжелой музыки. Было это в 1987-1988 году. Помнится, я попросил привезти мне что-нибудь новенькое из мира музыки, что штурмует хит-парады. И это оказался альбом британской группы DEF LEPPARD "Hysteria", который и по сей день находится в десятке моих любимых альбомов. И вот на двадцать пятом году своего существования группа радует нас своим новым десятым творением, которое так и называется "X". Простое оформление альбома, простые риффы и простые мелодии доступные совершенно широким массам. Этот альбом понравится как поклонникам тяжелой музыки восьмидесятых (BON JOVI, AEROSMITH), так и любителям альтернативной музыки и даже более. Частенько при прослушивании нового материала вспоминается дух DEF LEPPARD восьмидесятых. Во-многом, благодаря гитарным риффам и неувядающему вокалу Джо Эллиота. Это все та же музыка, но...совершенно другая, как это ни парадоксально звучит. Компьютерная обработка, вылизанность звука, симфонические аранжировки - все это делает узнаваемую музыку несколько другой, намного более современной, насквозь пропитанную коммерцией. Да и, надо признать, музыканты несколько подрастеряли умение писать истинные хиты. На этом альбоме все песни очень хорошие и ровные, с запоминающимися припевами и приятной мелодикой (за исключением, пожалуй "Gravity" и "Girl Like You"). Но нет ни одного суперхита. В основном, материал альбома - среднетемповые романтические песни вселяющие меланхоличные настроения и томность. Одно можно сказать: альбом хороший, музыканты - суперпрофессионалы. Лично я получил массу удовольствия при прослушивании.</p>
+
+Автор: Dimas
+
+### 20.08.2002 news Metal&#x2F;Hard Rock в Германских Чартах...
+
+<p>Вот так выглядит Топ-100 Германских Медиа Контрол Чартов по состоянию на текущую неделю... <BR><BR> 06. LINKIN PARK - Reanimation<BR> 16. DIE TOTEN HOSEN - Ausw&auml;rtsspiel<BR> 19. DEF LEPPARD - X<BR> 26. SYSTEM OF A DOWN - Toxicity<BR> 27. PAPA ROACH - Lovehatetragedy<BR> 32. FILTER - The Amalgamut<BR> 34. NIGHTWISH - Century Child<BR> 36. SILVERCHAIR - Diorama<BR> 39. B&Ouml;HSE ONKELZ - Dopamin<BR> 48. KORN - Untouchables<BR> 55. NICKELBACK - Silver Side Up<BR> 56. MANOWAR - Warriors Of The World<BR> 57. PUDDLE OF MUDD - Come Clean<BR> 60. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 68. SOULFLY - 3<BR> 98. JUDAS PRIEST - Live In London (DVD)</p>
+
+Автор: Yermola
+
+### 20.08.2002 news Metal&#x2F;Hard Rock Genre In The German Media Control Chart ...
+
+<p>Here is how the metal/hard rock genre fared in the German Media Control (Top 100) chart for the week ending August 19th: <BR><BR> 06. LINKIN PARK - Reanimation<BR> 16. DIE TOTEN HOSEN - Auswдrtsspiel<BR> 19. DEF LEPPARD - X<BR> 26. SYSTEM OF A DOWN - Toxicity<BR> 27. PAPA ROACH - Lovehatetragedy<BR> 32. FILTER - The Amalgamut<BR> 34. NIGHTWISH - Century Child<BR> 36. SILVERCHAIR - Diorama<BR> 39. BЦHSE ONKELZ - Dopamin<BR> 48. KORN - Untouchables<BR> 55. NICKELBACK - Silver Side Up<BR> 56. MANOWAR - Warriors Of The World<BR> 57. PUDDLE OF MUDD - Come Clean<BR> 60. P.O.D. - Satellite<BR> 67. OZZY OSBOURNE - Live At Budokan<BR> 68. SOULFLY - 3<BR> 98. JUDAS PRIEST - Live In London (DVD)</p>
+
+Автор: Yermola
+
+### 20.09.2002 news Sweden&#39;s Top-Selling Metal&#x2F;Hard Rock Albums For Week Ending 9&#x2F;20 - Sep. 19, 2002
+
+<p>The following is a list of the top-selling hard rock/heavy metal albums in Sweden for the week ending September 20th, 2002 (as reported by the Swedish daily newspaper Aftonbladet): <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS Nґ ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (NEW) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (NEW) STONE SOUR - Stone Sour <BR> 18. (RE-ENTRY) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done <BR></p>
+
+Автор: Yermola
+
+### 20.09.2002 news Что слушают в Швеции?
+
+<p>Вот так на текущей неделе выглядит 20-ка самых продаваемых в Швеции альбомов по информации газеты Aftonbladet: <BR><BR> 01. (01) IN FLAMES - Reroute To Remain <BR> 02. (02) P.O.D. - Satellite <BR> 03. (03) KISS - The Very Best Of <BR> 04. (04) QUEENS OF THE STONE AGE - Songs For The Deaf <BR> 05. (05) LINKIN PARK - Reanimation <BR> 06. (07) MESHUGGAH - Nothing <BR> 07. (06) AVANTASIA - The Metal Opera Pt. II <BR> 08. (09) SYSTEM OF A DOWN - Toxicity <BR> 09. (08) DEF LEPPARD - X <BR> 10. (11) GUNS NЃL ROSES - Appetite For Destruction <BR> 11. (10) KORN - Untouchables <BR> 12. (новинка) NILE - In Their Darkened Shrines <BR> 13. (12) SYSTEM OF A DOWN - System Of A Down <BR> 14. (20) DORO - Fight <BR> 15. (17) NIGHTWISH - Century Child <BR> 16. (19) MANOWAR - Warriors Of The World<BR> 17. (новинка) STONE SOUR - Stone Sour <BR> 18. (повторно) RAMMSTEIN - Mutter <BR> 19. (16) LINKIN PARK - Hybrid Theory <BR> 20. (15) DARK TRANQUILITY - Damage Done</p>
+
+Автор: Yermola
+
+### 23.03.2004 news Def Leppard шутят
+
+<B>DEF LEPPARD </B>распространили фальшивый трек-лист альбома каверов, над которым группа якобы работает. Трек-лист, добытый "из компетентных источников", составлен таким хитрым образом, что первые буквы первого слова в каждой песне образуют фразу "this is bullshit." Обман раскрыл вокалист "леопардов" Joe Elliot, сказав, что "жизнь без шуток была бы скучной".
+Автор: Omon Ra
+
+### 01.02.2005 news DEF LEPPARD выпустят альбом каверов
+
+<P>Новый альбом <STRONG>DEF LEPPARD</STRONG> будет состоять из одни каверов. Группа переиграет песни из 70-х, которые их вдохновляли в молодости. Трэк-лист:</P>
+<P>01. <STRONG>Waterloo Sunset</STRONG> (<STRONG>Kinks</STRONG>)<BR>02. <STRONG>21st Century Boy</STRONG> (<STRONG>T-Rex</STRONG>)<BR>03. <STRONG>Little Bit Of Love</STRONG> (<STRONG>Free</STRONG>)<BR>04. <STRONG>Drive In Saturday</STRONG> (<STRONG>David Bowie</STRONG>)<BR>05. <STRONG>Street Life</STRONG> (<STRONG>Roxy Music</STRONG>)<BR>06. <STRONG>Hanging On The Telephone</STRONG> (<STRONG>Blondie</STRONG>)<BR>07. <STRONG>The Golden Age Of Rock N Roll</STRONG> (<STRONG>Mott The Hoople</STRONG>)<BR>08. <STRONG>Don't Believe A Word</STRONG> (<STRONG>Thin Lizzy</STRONG>)<BR>09. <STRONG>Rock On</STRONG> (<STRONG>David Essex</STRONG>)<BR>10. <STRONG>He's Gonna Step On You Again</STRONG> (aka Step On)(<STRONG>John Kongos</STRONG>, also covered by <STRONG>Happy Mondays & The Party Boys</STRONG>)<BR>11. <STRONG>10538 Overture</STRONG> (<STRONG>ELO</STRONG>)<BR>12. <STRONG>Hellraiser </STRONG>(<STRONG>Sweet</STRONG>)<BR>13. <STRONG>No Matter What</STRONG> (<STRONG>Badfinger</STRONG>)<BR>14. <STRONG>Stay With Me</STRONG> (<STRONG>Faces</STRONG>)</P>
+Автор: Vit Belov
+
+### 24.04.2008 news DEF LEPPARD выпускают новый альбом
+
+<P>5 мая на лейбле <STRONG>Universal </STRONG>выходит новый (десятый студийный и четырнадцатый номерной) альбом знаменитых британцев <STRONG>DEF LEPPARD</STRONG>. Он будет называться <STRONG>"Songs From The Sparkle Lounge".</STRONG> В него войдут одиннадцать новых песен, в том числе суперхит <STRONG>"Nine Lives"</STRONG>,&nbsp;записанный совместно со звездой кантри музыки&nbsp;<STRONG>Tim McGraw</STRONG> и уже кочующий по верхним местам многих хит-парадов. Трек-лист альбома:</P>
+<P><STRONG><IMG height=400 alt="" hspace=10 src="/images/news_rus/2008.04/12472.jpg" width=400 align=right border=0>1. Nine Lives&nbsp;&nbsp; <BR>2. C'mon C'mon&nbsp;&nbsp; <BR>3. Go&nbsp;&nbsp; <BR>4. Love&nbsp;&nbsp; <BR>5. Cruise Control&nbsp;&nbsp; <BR>6. Bad Actress&nbsp;&nbsp; <BR>7. Hallucinate&nbsp;&nbsp; <BR>8. Tomorrow&nbsp;&nbsp; <BR>9. Come Undone&nbsp;&nbsp; <BR>10. Only the Good Die Young&nbsp;&nbsp; <BR>11. Give It Away</STRONG> </P>
+Автор: Dimas
+
+### 18.10.2010 news Первая татуировка гитариста DEF LEPPARD
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.10/17411.jpg" width=290 height=377>Гитарист легендарной группы<STRONG> DEF LEPPARD</STRONG> Фил Коллин (<B itxtvisited="1">Phil Collen</B>) и его жена,&nbsp;костюмер&nbsp;Хелен Л. Сайммонс (<B itxtvisited="1">Helen L. Simmons</B>), сделали себе свои первые татуировки. Произошло это 13 октября, во время съёмки программы <B itxtvisited="1">"L.A. Ink"</B>, в которой участвует известный тату-мастер <B itxtvisited="1">Kat Von D</B> (урождённая <B itxtvisited="1">Katherine Von Drachenberg</B>).</P>
+<P>52-летний Фил Коллин и его 42-летняя жена вытатуировали на своём теле имена друг друга, написанные в "старо-английском" стиле.</P>
+Автор: Headcrusher
+
+### 05.11.2015 news Новый клип DEF LEPPARD
+
+<P>Новое видео<STRONG> DEF LEPPARD</STRONG> на песню "<STRONG>Let's Go</STRONG>" можно посмотреть ниже. Трек вошёл на новый альбом с простым названием "<STRONG>Def Leppard</STRONG>", который вышел в прошедшую пятницу на <STRONG>Edel</STRONG>. </P>
+<P>В России&nbsp;вышло лицензионное издание на Союзе. Приобрести его можно здесь: <A href="http://escapemind.ru/goods/DEF-LEPPARD-quot-Def-Leppard-quot">http://escapemind.ru/goods/DEF-LEPPARD-quot-Def-Leppard-quot</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/EB7BeKwoYAs" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 05.12.2015 news Хиты продаж за ноябрь
+
+<P><IMG border=0 hspace=0 alt="" src="/images/news_rus/2015.12/28560.jpg" width=250 align=right height=250>Хиты продаж за ноябрь</P>
+<P>Список лидеров продаж на сайте <A href="http://escapemind.ru/">http://Escapemind.ru</A> и на Горбушке за ноябрь 2015 года:</P>
+<P><STRONG>1. MAGNUS KARLSSON’S FREE FALL - Kingdom Of Rock<BR>2. DEF LEPPARD "Def Leppard"<BR>3. LACRIMOSA 'Hoffnung'</STRONG><BR>4. DARK MOOR “Project X” 2015<BR>5. JOEL HOEKSTRA’S 13 'Dying To Live'<BR>6. EKTOMORF “Aggressor” 2015<BR>7. W.A.S.P. "Golgotha" - 2015 [digi]<BR>8. ELDRITCH “Underlying Issues” 2015<BR>9. GRAVE "Out Of Respect For The Dead" - 2015<BR>10. MALEVOLENT CREATION "Dead Man’s Path" - 2015</P>
+Автор: Vit Belov
+
+### 23.06.2016 news Новое видео DEF LEPPARD
+
+<p>Новый клип <strong>DEF LEPPARD</strong> на песню "<strong>Man Enough</strong>" можно посмотреть ниже. Трек взят с прошлогоднего альбома ветеранов hard rock "<strong>Def Leppard</strong>".</p><p><center><iframe width="640" height="360" src="https://www.youtube.com/embed/0i7Xh6Grs3U?feature=player_embedded" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 23.06.2016 news New video by DEF LEPPARD
+
+New video of<strong> DEF LEPPARD</strong> for song "<strong>Man Enough</strong>" can be viewed below. The track is taken from last year's "<strong>Def Leppard</strong>" album of the hard rock veterans.<p><center><iframe width="640" height="360" src="https://www.youtube.com/embed/0i7Xh6Grs3U?feature=player_embedded" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 25.06.2016 news Ещё одно видео DEF LEPPARD
+
+<p>Ещё один новый клип<strong> DEF LEPPARD</strong> на песню "<strong>Dangerous</strong>" можно посмотреть ниже. </p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/MSkHanT0dzU" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 25.06.2016 news One more video by DEF LEPPARD
+
+One more new video by<strong> DEF LEPPARD</strong> for the song "<strong>Dangerous</strong>" can be viewed below.<p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/MSkHanT0dzU" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Лучший Hard Rock - Def Leppard!

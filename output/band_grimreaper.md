@@ -58,6 +58,36 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.07.2011 news STEVE GRIMMETT&#39;S GRIM REAPER выпускают концертник
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Концертный коллектив, существующий на останках легендарной группы <STRONG>GRIM REAPER</STRONG> готовит к выпуску новый живой альбом, записанный в течение тура по Европе 2010/2011 годов. На диск, который выйдет в конце года, войдёт классика группы с таких альбомов, как <STRONG>"See You In Hell"</STRONG>&nbsp;и <B>"Fear No Evil". </B></FONT></P>
+<P><STRONG>STEVE GRIMMETT'S GRIM REAPER </STRONG>также готовятся к туру по США, первому за 25 лет. Вышеозначенная группа является стерилизованным клоном<STRONG> GRIM REAPER</STRONG>, которая умеет играть концерты, но не умеет сочинять новый материал.</P>
+<P><center><IMG height=387 src="/images/news_rus/2011.07/20171.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 09.08.2016 news GRIM REAPER возвращаются
+
+<p>Новый альбом heavy metal группы <strong>GRIM REAPER</strong> выйдет 23 сентября на<strong> Dissonance Records</strong>. Это первый альбом легендарной группы с 1987 года. </p><p>Трек лист:</p><p>“Wings Of Angels”<br>“Walking In The Shadows”<br>“Reach Out”<br>“I’m Coming For You”<br>“From Hell”<br>“Call Me In The Morning”<br>“Rock Will Never Die”<br>“Temptation”<br>“Thunder”<br>“Now You See Me”<br>“Blue Murder”<br>“Come Hell Or High Water”</p><p><center><img width="575" height="575" src="/images/news_rus/2016.08/29781.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 09.08.2016 news GRIM REAPER will return
+
+<p>New album of heavy metal band <strong>GRIM REAPER</strong> will be released on September 23 on <strong>Dissonance Records</strong>. This is the first album of the legendary band since 1987.</p><p>Track list:</p><p>“Wings Of Angels”<br>“Walking In The Shadows”<br>“Reach Out”<br>“I’m Coming For You”<br>“From Hell”<br>“Call Me In The Morning”<br>“Rock Will Never Die”<br>“Temptation”<br>“Thunder”<br>“Now You See Me”<br>“Blue Murder”<br>“Come Hell Or High Water”</p><p><center><img width="575" height="575" src="/images/news_rus/2016.08/29781.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+### 31.08.2016 news Новый сингл Steve Grimmet&#39;s GRIM REAPER
+
+<p>Новый альбом <strong>GRIM REAPER "Walking in The Shadows"</strong> выйдет 23 сентября на<strong> Dissonance Records</strong>. Ниже можно услышать одноимённый сингл.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/UEhwEcwatWA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 31.08.2016 news Title track from new GRIM REAPER
+
+<p>New album by<strong> GRIM REAPER "Walking in The Shadows" </strong>will be released September 23 on <strong>Dissonance Records</strong>. Below you can hear the title track from this album.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/UEhwEcwatWA" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

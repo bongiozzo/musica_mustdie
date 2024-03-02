@@ -10,6 +10,25 @@
 * C группой "Skyclad" Martin Walkyier
 * C группой "Immortal" Iscariah
 
+## Публикации
+
+### 29.08.2004 news Новый проект...
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>THE CLAN DESTINED</STRONG> так называется новая группа, в которой объединили свои усилия вокалист <STRONG>Martin Walkyier</STRONG> (ex-<B>SKYCLAD</B>, <B>SABBATH</B>)&nbsp;и басист&nbsp;<B>Iscariah</B> (ex-<B>IMMORTAL</B>). Кроме них в группе <STRONG>Lee Cassidy</STRONG> (гитара), <B>Kara Sutra</B> (вокал), <B>Emily Dolan Davies</B> (барабаны) и&nbsp;<B>Tony Wildwood</B> (гитара).&nbsp;</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM><STRONG>THE CLAN DESTINED</STRONG>&nbsp;будут играть что-то свежее и уникальное</EM>", - сообщает группа.&nbsp;</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 29.04.2005 news THE CLAN DESTINED закончили, не успев начать
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Мы сообщали, о новой группе <STRONG>THE CLAN DESTINED</STRONG>, в которой объединили свои услия <STRONG>Martin Walkyier</STRONG> (ex-<STRONG>SKYCLAD</STRONG>) и <STRONG>Iscariah</STRONG> (ex-<STRONG>IMMORTAL</STRONG>). Группа сочинила несколько песен и развалилась. Теперь эти песни собираются использовать в своих сольниках и <STRONG>Iscariah</STRONG>, и <STRONG>Martin</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 04.01.2009 news Martin Walkyier всё-таки рассказал о творческих планах
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>После пространных заявлений о судьбах человечества певец <STRONG>Martin Walk</STRONG>yier всё-таки обнародовал свои творческие планы. Музыкант подготовил новый альбом ещё одной группы <STRONG>HELL</STRONG> <STRONG>"Human Remains". </STRONG>В группе, которую многие считают прародительницей folk-metal, кроме <STRONG>Martin</STRONG> участвуют <STRONG>Kev Bower</STRONG>, <B>Tony Speakman</B>, <B>Tim Bowler</B> и <B>Andy Sneap</B>. Также музыкант готовит новый материал для <STRONG>THE CLAN DESTINED</STRONG>&nbsp;и даст несколько концертов на фестивалях с <STRONG>SABBAT</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### ELVENKING и Martin Walkyier (ex-SKYCLAD) в Москве (9 февраля 2013)

@@ -85,6 +85,45 @@ Kurt Bachman  Vocals, Guitars
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.06.2005 news Возрождение BELIEVER
+
+<P>Гитарист-вокалист успешной в конце восьмидесятых - начале девяностых<STRONG> </STRONG>technical-thrash формации <STRONG>BELIEVER Kurt Bachman</STRONG>, вместе с ударником группы&nbsp;<B>Joey Daub</B> объявили о начале работы над новым альбомом группы. Все подробности о новом составе и начале записи обещаются позже.</P>
+Автор: Dimas
+
+### 14.02.2009 news Новая музыка BELIEVER
+
+<P>Реактивированные techno-thrash'еры<STRONG> BELIEVER</STRONG> выложили новую песню <STRONG>"Focused Lethality" </STRONG>на своей <STRONG>MySpace</STRONG> страничке. Композиция войдёт на новый альбом группы <STRONG>"Gabriel"</STRONG>, выходящий 17 марта на <STRONG>Metal Blade</STRONG>.</P>
+<P>Ссылка: <A href="http://www.myspace.com/believerband">http://www.myspace.com/believerband</A></P>
+Автор: Vit Belov
+
+### 28.02.2009 news Вокалист KILLSWITCH ENGAGE спел для BELIEVER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гостевое участие в новом альбоме возрождённых <STRONG>BELIEVER </STRONG>принял фронтмэн<STRONG> KILLSWITCH ENGAGE</STRONG> <STRONG>Howard Jones. </STRONG>Видео из студии можно посмотреть ниже:</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/nEXN-_X29Cw&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/nEXN-_X29Cw&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 13.03.2009 news BELIEVER смешали death-metal рифф с причудливым пианино
+
+<P>Реформированные <STRONG>BELIEVER</STRONG> выложили на <STRONG>MySpace</STRONG> ещё одну новую песню "<STRONG>Stoned</STRONG>". Комментируя её,&nbsp;барабанщик <STRONG>Joey Daub </STRONG>обратил наше внимание на сочетание стандартного old school death-metal риффа со звуком фортепиано, которое ввергло прослушавших эту песню&nbsp;в настоящий шок. Присоединяйтесь к шокированным: <A href="http://www.myspace.com/believerband">http://www.myspace.com/believerband</A></P>
+<P>Новый альбом "<STRONG>Gabriel</STRONG>" от легендарной группы выйдет в апреле.&nbsp;</P>
+Автор: Vit Belov
+
+### 23.03.2011 news BELIEVER: подробности нового альбома &quot;Transhuman&quot;
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18939.jpg" width=400 height=400>12 апреля&nbsp;- дата выхода нового альбома группы <STRONG>BELIEVER</STRONG>, "<STRONG>Transhuman</STRONG>", на лейбле <STRONG>Metal Blade Records</STRONG>. </P>
+<P>Диск&nbsp;был спродюсирован&nbsp;<STRONG>Trauma Team Productions</STRONG>, а за сведение ответственен&nbsp;<STRONG>Kevin Gutierrez</STRONG> (<STRONG>RAVEN</STRONG>, <STRONG>PROJECT: FAILING FLESH</STRONG>, <STRONG>DECEASED</STRONG>, <STRONG>DYSRYTHMIA</STRONG>, <STRONG>GARDEN OF SHADOWS</STRONG>). </P>
+<P>Оформление и обложку диска, как и на прошлом альбоме,&nbsp;выполнили <B itxtHarvested="1" itxtNodeId="425">Michael Rosner</B> и <B itxtHarvested="1" itxtNodeId="424">Eye Level Studio</B>.</P>
+<P><STRONG>Трек-лист</STRONG>:</P>
+<P>01. <B itxtHarvested="1" itxtNodeId="451">Lie Awake</B> (5:03)<BR itxtNodeId="450">02. <B itxtHarvested="1" itxtNodeId="449">G.U.T.</B> (3:39)<BR itxtNodeId="448">03. <B itxtHarvested="1" itxtNodeId="447">Multiverse</B> (4:44)<BR itxtNodeId="446">04. <B itxtHarvested="1" itxtNodeId="445">End Of Infinity</B> (4:12)<BR itxtNodeId="444">05. <B itxtHarvested="1" itxtNodeId="443">Transfection</B> (3:55)<BR itxtNodeId="442">06. <B itxtHarvested="1" itxtNodeId="441">Clean Room</B> (4:50)<BR itxtNodeId="440">07. <B itxtHarvested="1" itxtNodeId="439">Currents</B> (2:50)<BR itxtNodeId="438">08. <B itxtHarvested="1" itxtNodeId="437">Traveler</B> (4:23)<BR itxtNodeId="436">09. <B itxtHarvested="1" itxtNodeId="435">Ego Machine</B> (4:29)<BR itxtNodeId="434">10. <B itxtHarvested="1" itxtNodeId="433">Being No One</B> (4:47)<BR itxtNodeId="432">11. <B itxtHarvested="1" itxtNodeId="431">Entanglement</B> (4:15)<BR itxtNodeId="430">12. <B itxtHarvested="1" itxtNodeId="429">Mindsteps</B> (6:52)</P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

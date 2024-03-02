@@ -70,6 +70,32 @@ D.D. Verni : Mixing, Producer
 
 * C группой "Overkill" 
 
+## Публикации
+
+### 02.11.2001 reviews Вампирический doom metal
+
+<p>Вампирический doom metal. Второй релиз американской команды созданной в 1998 году басистом группы Overkill D.D. Verni. В состав группы входят музыканты из Overkill, Savatage, Shotgun Symphony. Несмотря на то, что группа имеет один из сильнейших и профессиональнейших составов на нью-йоркской сцене, ей уже второй раз подряд не удается записать примечательный материал. Монотонно и серовато. Музыка на альбоме - чистейшей воды doom metal. Материал пропитан духом старого Black Sabbath, суховатыми риффами и психоделичностью в стиле Trouble и атмосферностью от Type O'Negative. Также наблюдаются зачатки вампирическо-готических клише. На альбоме превалируют тяжелые вязкие гитары, акустические переливы и басовые соло, драматическая атмосфера и мрачные мелодии, органные клавишные, импрессионизм и меланхолия. Чистое и объемное звучание, плотный саунд, однако такая музыка исключительно на любителя подобной невеселой музыки. Но думаю, что поклонникам классической тяжелой музыки семидесятых - начала восьмидесятых, альбом должен понравится.</p>
+
+Автор: Dimas
+
+### 11.01.2002 reviews Vampiric doom metal
+
+<p>Vampiric doom metal. Second release of the American band created in 1998 by bassist of Overkill D.D. Verni. Band includes the musicians from Overkill, Savatage, Shotgun Symphony. In spite of the fact that the band has one of strongest and profecionalest structures on the New York stage, it already fails to write down a remarkable material in second time in succession. Monotonously and usually. Music on an album - purest doom metal. The material is impregnated with spirit of old Black Sabbath, psichodelic in style Trouble and atmosphere from Type O'Negative. Rudiments of vampiric-Gothic cliches also are observed. On an album the heavy viscous guitars, acoustic and bass solos, drama atmosphere and gloomy melodies, organ keyboard, impressionism and melancholy prevail. The clean and volumetric sounding, dense sound, however such music is exclusively on the fan of similar gloomy music. But I think, that to the admirers of classical heavy music seventieth - beginning eightieth, the album have to be pleasant.</p>
+
+Автор: Dimas
+
+### 31.05.2007 reviews Имена-то громкие, а вот результат...
+
+<P>Надо ли быть басистом трэшевой группы, чтобы играть готик-дум-метал? Вопрос сей, безусловно, может показаться странным, но дело всё в том, что лидер команды под названием The Bronx Casket Company никто иной, как D.D. Verni из Overkill. А за ударной установкой, между прочим, находится его коллега (в то время еще) по группе Tim Mallare. Плюс к этому всему в этом квинтете участвуют вокалист SpY (ex-Misfits), гитарист Jack Frost (Seven Witches) и клавишник Charlie Calv. Ну а всеми оркестровками заведовал Michael Romeo, гитарист&nbsp;Symphony X. Вот такая интересная собралась компания. Но как это часто бывает, громкие имена совершенно не означают, что и материал получится на уровне. Вообще "Hellectric" это уже третья работа под вывеской The Bronx Casket Company, и, по всей видимости, Верни сотоварищи весьма довольны результатами совместной деятельности, раз они продолжают работать в рамках данного коллектива. На деле же пластинка получилась довольно занудной. Всё же блуждания&nbsp;по территории дел готических и думово-готических подразумевают собой в том числе и сочинение более-менее пристойных хитов, а их тут и нет. А если учесть, что 12 совершенно невыдающихся песен на альбоме длятся в общей сложности более часа (а местами это напоминает даже прогметал, например,&nbsp; в заключительной 'Live For Death', что в данном случае тоже мало радует), то закономерно возникает вопрос о целесообразности приобретения сего творения в свою коллекцию. Совершенно не исключаю, что кое-кто может клюнуть на имена, кому-то такая музыка может быть действительно вполне в кайф, особенно тем, кто вспомнит при прослушивании "Hellectric" Type O Negative, хотя до Питера Стила (ну и его харизматичности, разумеется) и Со им ой как далеко. Естественно, моя оценка вещь совершенно субъективная, и вы сами решите, покупать вам данный альбом или нет. Но лично я уже к восьмой по счету песне (кавер Lynyrd Skynyrd "Free Bird', тоже ооочень на любителя) совершенно устал от прослушивания данной работы, которая, повторюсь, еще раз доказала мое твёрдое убеждение в том, что если взять несколько вкусных самих по себе продуктов и смешать их, то совсем необязательно получится вкусное же блюдо (а скорее наоборот). The Bronx Casket Company - яркое тому подтверждение.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 16.01.2011 news THE BRONX CASKET CO. выпускает новый альбом &quot;Antihero&quot;
+
+<P><STRONG>THE BRONX CASKET CO.</STRONG> - побочный проект басиста <B itxtvisited="1">D.D. Verni</B> (<STRONG>OVERKILL</STRONG>) и гитариста Джека Фроста&nbsp;(<STRONG>Jack Frost,</STRONG>&nbsp;<B itxtvisited="1">SEVEN WITCHES</B>) выпускает свой новый альбом, <B itxtvisited="1">"Antihero"</B>, 25 января на лейбле <B itxtvisited="1">eOne Music</B>.<BR itxtvisited="1"><BR itxtvisited="1"><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18199.jpg" width=400 height=400>Трек-лист альбома:<BR itxtvisited="1"><BR itxtvisited="1">01. <B itxtvisited="1">Antihero</B><BR itxtvisited="1">02. <B itxtvisited="1">Bonesaw</B><BR itxtvisited="1">03. <B itxtvisited="1">You Look Like Hell</B><BR itxtvisited="1">04. <B itxtvisited="1">Sally</B><BR itxtvisited="1">05. <B itxtvisited="1">I Never Loved You Anyway</B><BR itxtvisited="1">06. <B itxtvisited="1">Holy Mother</B><BR itxtvisited="1">07. <B itxtvisited="1">I Am No One</B><BR itxtvisited="1">08. <B itxtvisited="1">Memphis Scarecrow</B><BR itxtvisited="1">09. <B itxtvisited="1">Selling My Soul</B><BR itxtvisited="1">10. <B itxtvisited="1">Death On Two Legs</B><BR itxtvisited="1">11. <B itxtvisited="1">Let Me Be Your Nightmare</B><BR itxtvisited="1">12. <B itxtvisited="1">NYC (Devil's Playground)</B><BR itxtvisited="1">13. <B itxtvisited="1">Alive!</B><BR itxtvisited="1">14. <B itxtvisited="1">My Way</B></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

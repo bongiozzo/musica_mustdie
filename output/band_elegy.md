@@ -130,6 +130,104 @@
 * C группой "Rondat, Patrick" Guitar player
 * C группой "Ian Perry" 
 
+## Публикации
+
+### 24.08.1999 news 
+
+<p>Noise Records объявила о новых альбомах, которые выйдут на лэйбле в ближайшее время. Стоит обратить внимание на альбом Stratovarius "The Chosen Ones" - сборник лучших песен, выбранных фэнами (последняя попытка срубить денег на группе, уходящей на Nuclear Blast), а также новые, пока не названные, альбомы Kamelot и Elegy в 2000 году.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>Elegy в скором времени начнут запись нового альбома.</p>
+
+Автор: Vit Belov
+
+### 11.04.2000 news 
+
+<p>На новом альбоме Elegy примет участие известный французский гитарис Патрик Рондал.</p>
+
+Автор: Vit Belov
+
+### 04.07.2000 news Elegy вошли в студию.
+
+<p>Elegy вошли в студию для записи новой пластинки. Она будет называться "The Forbidden Fruit" и будет содержать следующие песни: Behind The Tears (Rondat/Parry), 'Til Eternity (Rondat/Parry), I Believe (Rondat/Parry), Icehouse (Helmantel/Bruinenberg/Parry), Masquerade (Parry), Eloquence (Parry/Helmantel), Forbidden Fruit (Parry), Elegant Solution (van de Laars/Parry), The Great Charade (van de Laars/Parry), Force Majeure (van de Laars/Parry), I.L.M.O. (In Loving Memory Of) (van de Laars), Killing Time (van de Laars/Parry).</p>
+
+Автор: Vit Belov
+
+### 25.08.2000 news Новый альбом Elegy
+
+<p> Elegy закончили работу над своим седьмым альбомом, который получил навание "Forbidden Fruit".</p>
+
+Автор: Nybras
+
+### 18.04.2001 news Тяжела жизнь участников Elegy
+
+<p> Участники прог-пауэрной бригады ELEGY весьма заняты сторонними проектами. Вокалер Ian Parry заканчивает работу на вторым релизом проекта Consortium "Continuum In Extremis" (рабочее название альбома). Ориентировочный трек лист: "Asylum Seekers", "The Catalyst", "Intrusions Of Madness", "A Momentary Lapse Of Reason", "Mirror Image", "Sentiment In Sanctuary", "What You Sow You Reap", "Asphyxia", "Poetic Justice". В качестве гостей на альбоме засветились следующие личности: Guenter Werno (Vanden Plas), Thomas Youngblood (Kamelot), Stephan Lill (Vanden Plas) и Jack Frost (Savatage, Seven Witches), а также участники Elegy Patrick Rondat , Jan Bijlsma и Dirk Bruinenberg . Релиз альбома запланирован на май. Далее в планах господина Перри стоит продюсирование испанских металлеров Is Pain (ребята неплохо устроились, ведь их первый альбом продюсировал Тимо Толкки). Гитарист Elegy Patrick Rondat будет участвовать этим летом в греческом туре францеского клавишного гения Jean Michel Jarre. А собственно все участники Elegy соберутся вместе в августе-сентябре для подготовки материала для очередного альбома группы.</p>
+
+Автор: Helloween
+
+### 23.10.2001 news Elegy определились с выбором лейбла
+
+<p>После окончания контракта с Noise Records Elegy вели переговоры с несколькими лейблами, пока наконец не связали свою дальнейшую судьбу с Locomotive Music. Группа начнёт записывать новый альбом в декабре 2001 года в Rocko Studios в Германии. Альбом с рабочим названием "Principles of Pain"', как ожидается, будет в продаже следующей весной. Девятый альбом Elegy снова продемонстрирует работу Патрика Рондата, присоединившегося к команде в прошлом году во время записи последнего альбома.</p>
+
+Автор: Morsus
+
+### 23.10.2001 news Elegy has signed with Locomotive Music
+
+<p>After finishing their contract with Noise Records and after several contacts with international record companies, Elegy has finally signed with Locomotive Music. They will start recording their new album in December 2001, in Germany's Rocko Studios. The album, with the working title "Principles of Pain", is expected to be on sale next spring. This ninth Elegy album will again feature the collaboration of Patrick Rondat who joined band last year when they started recording their last album.</p>
+
+Автор: Morsus
+
+### 11.04.2002 news Новый альбом ELEGY
+
+<p>29 апреля 2002 года на Locomotive Music выходит новый альбом голландской progressive-metal формации ELEGY под названием "Principles Of Pain".</p>
+
+Автор: Dimas
+
+### 25.04.2002 news Новый сольник Андре Андерсона
+
+<p>Клавишник и главный сочинитель песен из Royal Hunt Андре Андерсон назначил дату выхода своего нового сольника "Black On Black". Он выйдет в Европе 17 июня на Frontiers Records (СД-Максимум). Вокалистом на альбоме будет Ян Пэрри (Elegy).</p>
+
+Автор: Vit Belov
+
+### 25.04.2002 news ROYAL HUNT Mainman Sets Solo CD Release Date
+
+<p>The second solo album from ROYAL HUNT main composer and keyboardist Andre Anderson, entitled Black On Black, will be released on in Europe on June 17th through Frontiers Records. Handling all lead vocals on the CD is ELEGY singer Ian Parry, while other musician featured include Rene Realand (ex-WITCH CROSS) on guitar and Kaj Laege on drums.</p>
+
+Автор: Vit Belov
+
+### 27.08.2003 news CONSORTIUM PROJECT III
+
+<p>Century Media выпустит третий альбом проекта Ian Parry (ELEGY) CONSORTIUM PROJECT III. Альбом будет называться "Terra Incognita (The Undiscovered World)" и на нём в группе сыграют:</p>
+<p>: Ian Parry - Lead, harmony, Choir & backing vocals. <br> Jan Bijlsma (VENGEANCE) - Bass guitar <br> Joshua Dutrieux (ELEGY) - Piano, Organ, Keyboards <br> Robert Finan - Bass guitar<br> Casey Grillo (KAMELOT) - Drums<br> Stephan Lill (VANDEN PLAS) - Guitars <br> Специальными гостями станут Mike Chlasciak (ex-HALFORD/PAIN MUSEUM) и Sascha Paeth (HEAVEN'S GATE, producer of RHAPSODY, итд)</p>
+<p> Трэк-лист:<br> 01. The Council Of Elders (4:11)<br> 02. Spirit Of Kindness (3:30)<br> 03. The Ark [Of The Covenant] (5:06)<br> 04. Lost Empire (5:12)<br> 05. Reductio Ad Absurdum (6:09)<br> 06. White Sands [California Lighthouse] (3:31)<br> 07. Great Exploration (4:08)<br> 08. Across The Seven Seas (5:48)<br> 09. Nemesis (5:15)<br> 10. Beyond The Gateway Of Legends (7:50)<br> 11. Terra Incognita [The Undiscovered World] (6:54)</p>
+<p>Пластинка выйдет 26 октября.</p>
+
+Автор: Vit Belov
+
+### 29.12.2008 news Ian Perry будет работать с Joe Stump
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>Joe Stump</STRONG> начал работать над новым альбомом <STRONG>REIGN OF TERROR</STRONG>. В качестве вокалиста будет задествован певец <STRONG>ELEGY Ian Perry</STRONG>. Господин <STRONG>Perry</STRONG> уже работал с этим гитаристом в его сольном турне.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Тем временем, <STRONG>Metal Mind</STRONG> сообщили о переиздании альбомов<STRONG> ELEGY</STRONG> в семидисковом боксе. На издание попадут 18 бонус-трэков, "съёмки за сценой" и акустические выступления группы во время тура по Японии.</FONT></P>
+Автор: Vit Belov
+
+### 30.12.2008 news Christmas Metal Symphony в Тилбурге
+
+<P>В Тилбурге, Голландия 28 декабря прошёл уникальный концерт&nbsp;<STRONG>Christmas Metal Symphony</STRONG>.&nbsp;В компании с симфоническим оркестром на сцене появились&nbsp;<STRONG>Doro Pesch</STRONG>, <B itxtvisited="1">Chuck Billy</B> (<B itxtvisited="1">TESTAMENT</B>), <B itxtvisited="1">Russell Allen</B> (<B itxtvisited="1">SYMPHONY X</B>), <B itxtvisited="1">Mats Leven</B> (<B itxtvisited="1">THERION</B>, <B itxtvisited="1">YNGWIE MALMSTEEN</B>), <B itxtvisited="1">Johan Edlund</B> (<B itxtvisited="1">TIAMAT</B>), <B itxtvisited="1">Ian Parry</B> (<B itxtvisited="1">CONSORTIUM PROJECT</B>, <B itxtvisited="1">ELEGY</B>), <B itxtvisited="1">Marcela Bovio</B> (<B itxtvisited="1">STREAM OF PASSION</B>, <B itxtvisited="1">AYREON</B>), <B itxtvisited="1">Floor Jansen</B> (<B itxtvisited="1">AFTER FOREVER</B>) and <B itxtvisited="1">George Oosthoek</B> (<B itxtvisited="1">ORPHANAGE</B>). В качестве сопровождающей группы выступили:</P>
+<P><STRONG>Koen Herfst</STRONG> (EPICA) - Drums<BR itxtvisited="1"><B itxtvisited="1">Marcel Coenen</B> (SUN CAGED) - Guitar<BR itxtvisited="1"><B itxtvisited="1">Johan Van Stratum</B> (STREAM OF PASSION) - Bass<BR itxtvisited="1"><B itxtvisited="1">Frank Schiphorst</B> (CONTROL HUMAN DELETE) - Guitar<BR itxtvisited="1"><B itxtvisited="1">Jeffrey Revet</B> (STREAM OF PASSION) - Keyboards<BR itxtvisited="1"><B itxtvisited="1">Joost van den Broek</B> (AFTER FOREVER) ЁC Keyboards</P>
+<P>Музыканты исполнили heavy-metal классику прошлых лет:</P>
+<P>01. <B itxtvisited="1">Blood Of Kingu</B> (THERION) (feat. Mats Leven, Marcela Bovio)<BR itxtvisited="1">02. <B itxtvisited="1">Victim Of Changes</B> (JUDAS PRIEST) (feat. Mats Leven)<BR itxtvisited="1">03. <B itxtvisited="1">Son Of The Staves Of Time</B> (THERION) (feat. Mats Leven, Marcela Bovio)<BR itxtvisited="1">04. <B itxtvisited="1">Passion</B> (STREAM OF PASSION) (feat. Marcela Bovio)<BR itxtvisited="1">05. <B itxtvisited="1">Out In The Real World</B> (STREAM OF PASSION) (feat. Marcela Bovio)<BR itxtvisited="1">06. <B itxtvisited="1">Enter Sandman</B> (METALLICA) (feat. Ian Parry)<BR itxtvisited="1">07. <B itxtvisited="1">Paranoid</B> (BLACK SABBATH) (feat. Ian Parry)<BR itxtvisited="1">08. <B itxtvisited="1">Breaking The Law</B> (JUDAS PRIEST) (feat. Doro Pesch)<BR itxtvisited="1">09. <B itxtvisited="1">All We Are</B> (DORO) (feat. Doro Pesch, Floor Jansen)<BR itxtvisited="1">10. <B itxtvisited="1">I Rule The Ruins</B> (DORO) (feat. Doro)<BR itxtvisited="1">11. <B itxtvisited="1">Souls Of Black</B> (TESTAMENT) (feat. Chuck Billy)<BR itxtvisited="1">12. <B itxtvisited="1">Return To Serenity</B> (TESTAMENT) (feat. Chuck Billy, Mats LevЁ¦n)<BR itxtvisited="1">13. <B itxtvisited="1">More Than Meets The Eye</B> (TESTAMENT) (feat. Chuck Billy, George Oosthoek)<BR itxtvisited="1">14. <B itxtvisited="1">Arise</B> (SEPULTURA) (feat. George Oosthoek)<BR itxtvisited="1">15. <B itxtvisited="1">Mountains Of Madness</B> (ORPHANAGE) (feat. George Oosthoek, Floor Jansen)<BR itxtvisited="1">16. <B itxtvisited="1">A New Level</B> (PANTERA) (feat. George Oosthoek)<BR itxtvisited="1">17. <B itxtvisited="1">Cain</B> (TIAMAT) (feat. Johan Edlund)<BR itxtvisited="1">18. <B itxtvisited="1">Brighter Than The Sun</B> (TIAMAT) (feat. Johan Edlund, Marcela Bovio)<BR itxtvisited="1">19. <B itxtvisited="1">When The Smoke Is Going Down</B> (SCORPIONS) (feat. Johan Edlund)<BR itxtvisited="1">20. <B itxtvisited="1">My Pledge Of Allegiance No. 1</B> (AFTER FOREVER) (feat. George Oosthoek, Floor Jansen)<BR itxtvisited="1">21. <B itxtvisited="1">Equally Destructive</B> (AFTER FOREVER) (feat. Floor Jansen)<BR itxtvisited="1">22. <B itxtvisited="1">The Evil That Man Do</B> (IRON MAIDEN) (feat. Floor Jansen)<BR itxtvisited="1">23. <B itxtvisited="1">Intro Based on "The Odyssey"</B> (SYMPHONY X) (orchestra only)<BR itxtvisited="1">24. <B itxtvisited="1">Evolution</B> (The Grand Design) (SYMPHONY X) (feat. Russell Allen)<BR itxtvisited="1">25. <B itxtvisited="1">Paradise Lost</B> (SYMPHONY X) (feat. Russell Allen)<BR itxtvisited="1">26. <B itxtvisited="1">Dawn Of A Million Souls</B> (AYREON) (feat. Russell Allen)<BR itxtvisited="1">27. <B itxtvisited="1">Phantom Of The Opera</B> (NIGHTWISH version) (feat. Russell Allen, Floor Jansen)</P>
+<P>Видео&nbsp;<STRONG>"Souls Of Black"</STRONG> (TESTAMENT) (feat. Chuck Billy) (video by Mark van Nierop):</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/CidIfl7gQ-Q&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/CidIfl7gQ-Q&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -12,6 +12,9 @@ doom-metal (CENTINEX and CARNAL FORGE members)
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

@@ -21,6 +21,54 @@ Brutal death/grind band from Kyiv
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 07.06.2003 news Новости More Hate Productions
+
+<p>- 28 мая 2003 года на More Hate Productions/ Sound Age вышел новый лицензионный диск белорусской группы DIVINA ENEMA "Under Phoenix Phenomenon". Таким образом, More Hate Productions начали выпуск своей лицензионной серии. Диск вышел фактически на месяц раньше даты официальной его реализации за рубежом и доступен только жителям СНГ и стран Балтии. Напоминаем, что диск выпущен с оригинальным оформлением, сделанным специально для этой реализации, и в таком виде издаваться на Западе не будет. На этом диске прилагается полный вариант текстовой части альбома, без сокращений и купюр!!! С этим альбомом DIVINA ENEMA безусловно, выходит на новый уровень своего развития, так как такого рода концептуальную и эклектичную смесь музыкальных стилей от death, black, gothic, heavy and progressive metal больше никто не исполняет. Многие слышали их предыдущее творение "At the Conclave", но альбом "Under Phoenix Phenomenon" удивит даже самых искушенных знатоков. Уникальный альбом уникальной группы!</p>
+<p> - Получено разрешение на лицензионное издание нового диска Украинской death grind группы FLESHGORE на More Hate Productions. Данный альбом будет выпущен в России осенью этого года. Официальная реализация состоится на немецкой Metal Blast Records в июне 2003 года. Точная дата выхода лицензионной версии на More Hate Productions будет сообщена дополнительно!</p>
+<p> - Новости из стана ASHEN LIGHT - месяц назад группа отправила в отставку своего вокалиста Отца Сергия по причинам личного свойства, замена ему уже найдена в лице Vallgrim, известного по работе в Московской black metal капелле ЧЕРНОБОГ. Сейчас группа в обновленном составе готовится к выступлению на ежегодном интернациональном фестивале Morbid Fest, проводимом в Германии в сентябре этого года.</p>
+<p> - В начале июня будет выпущен давно обещанный альбом THERM. EYE. FLAME "Spherical", группы исполняющей modernized black metal with true atmosphere of firstborn black metal. Еще до реализации альбом получил массу положительных рецензий в журналах, фэнзинах и Интернет ресурсах. Альбом выйдет с бонусом в качестве видео трэка к одной из композиций. В сентябре - октябре будет выпущен и второй альбом группы THERM. EYE. FLAME "Solar Nebula".</p>
+<p> - В июле на MORE HATE выходит компакт диск немецкой группы SMIRNOFF "The Deadly Return". Альбом состоит из 16 кусков забойного и угарного death grind в духе Macabre.</p>
+<p> - Буквально на прошлой неделе группа DER GERWELT состоящая из Alex Duke (ex-Rossomahaar, ex-Tales of Darknord, Stonehenge) и Lazar from Rossomahaar/ Nargathrond подписала двух альбомный контракт с английской фирмой RAGE OF ACHILLES Records. В августе этого года на RAGE OF ACHILLES Records выйдет альбом "Human breed", записанный в конце прошлого года в стенах известной студии CDM RECORDS/ Москва. Альбом выдержан в стиле жесткого death/black metal, носящего абсолютную атмосферу разрушения. Также достигнуто соглашение MORE HATE с RAGE OF ACHILLES Records на лицензионное издание этого диска в СНГ посредством More Hate Productions, который будет выпущен в августе одновременно с датой официальной реализации. Группа начнет работу над новым альбомом в середине осени этого года.</p>
+<p> - Группа TALES OF DARKNORD заканчивает работу над записью нового полнометражного альбома. В данный момент закончена запись всех инструментов и вокала, в ближайшее время начнется окончательное микширование альбома и мастеринг. Стиль группы значительно изменился в сторону progressive death metal с элементами различных совершенно не металлических стилей. Тем не менее, пре-продукционная запись ряда песен с этого альбома свидетельствует что группа по-прежнему брутальна и пропагандирует death metal! Мы в свою очередь надеемся реализовать этот альбом до конца этого года по мере его окончательного завершения. Название альбома пока не известно. - MORE HATE подписали контракт с death-grind группой из Костромы - BARBARITY. Группа исполняет массивный и очень брутальный death metal в духе IMMOLATION, DERANGED, SOILS OF FATE. Группа известна и тем, что в ее состав входит бывший барабанщик группы MORTIFER Анатолий Чеботарь. В апреле этого года в стенах Black Magic Studio BARBARITY записали полнометражный дебютный альбом "The Wish to Bleed" , состоящий из10 брутально-молотильных тем. Сейчас идет работа над оформлением этого диска и осенью он будет выпущен. Абсолютно незаменимый band для любителей мясца и трупятины! Рекомендуем, не пропустите.</p>
+
+Автор: Dimas
+
+### 16.10.2003 news FLESHGORE GIGS
+
+Killing Absorption Tour 2003 (part 2):<BR><BR><BR>01.11.03 SWEDEN, Gothenburg - MUSIKENS HUS <BR>GOTHENBURG DEATHFEST 2003<BR><BR><BR>+ DISAVOWED (NL), ROTTEN SOUND (FIN), RESURRECTED (D),<BR>IMMERSED IN BLOOD (SW), DESPONDENCY (D), FLESHGORE (Ukraine),<BR>KATAPLEXIA (FIN), NECROTERIO (BR), EMBEDDED (D),<BR>STRANGULATION (SW), NECROCIDE (SW), KARNARIUM (SW).<BR><BR><BR>09.11.03 HOLLAND, Rotterdam, Baroeg Club <BR><BR>+ Houwitser (NL), Visceral Bleeding (SWE), Gorezone (D)<BR><BR>14-15.11.03 GERMANY, Emden, Ear Terror Festival <BR><BR>+ Tears of Decay (D), Sinners Bleed (D), Exposed Guts (D), Carnal Lust (FR), <BR>Death Reality (D), Ingurgitating Oblivion (D), Necroterio (BR), <BR>Prostitute Disfigurement (NL) ...<BR><BR>15.11.03 GERMANY, Grossenhain (bei Dresden), Conny-Wessmann-Haus <BR><BR>+ GOREZONE (D), L.Gore(D)<BR>
+Автор: Vit Belov
+
+### 29.02.2004 news Fleshgore in Poland
+
+POLISH TOUR with PYORRHOEA(PL)<BR>26.03.04 - PL, Chelm, "No Mercy" Club + PYORRHOEA (PL)<BR>27.03.04 - PL, Kielce + PYORRHOEA (PL)<BR>28.03.04 - PL, Torun, "Bunkier" Club + PYORRHOEA (PL)<BR>
+Автор: Vit Belov
+
+### 13.03.2004 news GRIND&#39;M ALL TOUR 2004
+
+<IMG height=304 alt="" hspace=0 src="/images/shows_rus/2004.04/6085.jpg" width=248 align="left" border=0>GRIND'M ALL TOUR 2004<BR>with MEATKNIFE (D), GOREZONE (D), LAY DOWN ROTTEN (D)<BR>01.04.04 - Denmark, Kopenhagen, Ungdomshuset *<BR>02.04.04 - Germany, Nordhastedt, Live Club <BR>03.04.04 - Germany, Wohnsterschuppen (bei Sittensen)<BR>04.04.04 - Germany, Salzgitter, Forellenhof<BR>05.04.04 - Day off<BR>06.04.04 - TBA<BR>07.04.04 - TBA<BR>08.04.04 - Germany, Haiger, Musik Cafe<BR>09.04.04 - Germany, Berlin, Club K17<BR>10.04.04 - Germany, Leipzig, Hellraiser Club <BR>11.04.04 - Germany, Neukirch, Jugendclub<BR>12.04.04 - Travel day<BR>* - Fleshgore and Gorezone only<BR>
+Автор: Vit Belov
+
+### 17.03.2004 news FLESHGORE ON EUROPEAN TOUR 2004
+
+26.03.2004 - Poland, Chelm, "No Mercy" Club<BR>27.03.2004 - Poland, TBA<BR>28.03.2004 - Poland, Torun, "Bunkier" Club<BR>31.03.2004 - Travel day<BR>01.04.2004 - Denmark, Kopenhagen, "Ungdomshuset"<BR>20.04.2004 - Germany Nordhastedt, "Live Club"<BR>03.04.2004 - Germany, Wohnsterschuppen (bei Sittensen)<BR>04.04.2004 - Germany, Salzgitter, "Forellenhof"<BR>05.04.2004 - Day off<BR>06.04.2004 - TBA<BR>07.04.2004 - TBA<BR>08.04.2004 - Germany, Haiger, "Musik Cafe"<BR>09.04.2004 - Germany, Berlin, "Club K17"<BR>10.04.2004 - Germany, Leipzig, "Hellraiser Club"<BR>11.04.2004 - Germany, Neukirch, "Jugendclub"<BR>12.04.2004 - Travel day<BR>16.04.2004 - Ukraine, Kyiv, "Spurtnik"<BR>
+Автор: Vit Belov
+
+### 19.04.2006 news FLESHGORE на День Победы
+
+<P>Новый альбом украинских дэтстеров <STRONG>FLESHGORE "May God Strike Me Dead"</STRONG>&nbsp;выходит 9 мая&nbsp;на американских лэйблах&nbsp;<STRONG>This Dark Reign Records</STRONG> и <STRONG>Devil Doll Records</STRONG>. </P>
+<P>Этим летом группа выступит на знаменитом фестивале <STRONG>Wacken</STRONG> и на <STRONG>Monsters of Rock</STRONG> в Болгарии.</P>
+Автор: Vit Belov
+
+### 20.11.2006 news Новости FLESHGORE
+
+<P>В ближайшее время музыканты<STRONG> FLESHGORE</STRONG> намерены внести завершающие коррективы в звучание своей новой студийной работы «<STRONG>Wake Up For Freedom</STRONG>». Свежая порция экстрима обещает шире, чем когда-либо раскрыть творческую мысль группы и отобразить наиболее актуальные тенденции ее развития.</P>
+<P>Еще не запланирован формат и дата будущего релиза. Информация появится по результатам предстоящих переговоров со звукозаписывающими компаниями.&nbsp; Пока полная версия записанного материала в скором времени получит адресное распространение исключительно в рамках промо компании.</P>
+<P><A href="http://www.fleshgore.com/mp3/FLESHGORE-Wake_Up_(promo_2006).mp3">http://www.fleshgore.com/mp3/FLESHGORE-Wake_Up_(promo_2006).mp3</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

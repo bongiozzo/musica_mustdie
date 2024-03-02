@@ -45,6 +45,35 @@ Produced By Rob Beaton & EXHORDER.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.07.2003 news Roadrunner Records восстанавливает корни - 2
+
+<p>9 сентября Roadrunner Records подготовила вторую серию по изданию архивного материала. Напомню, первая серия состояла из выпуска семи сборников "The Best Of". Вторая серия представляет собой выпуск двух классических альбомов одной группы на одном диске. Среди них:</p>
+<p> ANNIHILATOR – "Alice In Hell" + "Neverland" <BR> CARNIVORE - "Carnivore" + "Retaliation" <BR> EXHORDER - "Slaughter In The Vatican" + "The Law" <BR> FRONT LINE ASSEMBLY - "Caustic Grip" + "Gashed Senses & Crossfire" <BR> GANG GREEN - "You Got It" + "Older" <BR> KING DIAMOND - "Abigail" + "Fatal Portrait" <BR> MERCYFUL FATE - "Melissa" + "In The Beginning" <BR> OBITUARY - "Slowly We Rot" + "Cause Of Death" <BR> PESTILENCE - "Consuming Impulse" + "Testimony Of The Ancients" <BR> SUFFOCATION - "Effigy Of The Forgotten" + "Pierced From Within"</p>
+
+Автор: Dimas
+
+### 23.03.2011 news EXHORDER: басист Frankie Sparcello ушёл из жизни
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.03/18937.jpg" width=200 height=214>Басист <STRONG>Frankie Sparcello</STRONG> (на фото),&nbsp;реактивированых новоорлеанцев <B>EXHORDER</B>, ушёл из жизни утром 22 марта. Причины смерти выясняются.</P>
+<P><STRONG>Sparcello</STRONG> присоеденился к <B>EXHORDER</B> перед записью второго альбома, <B>"The Law"</B>, который вышел в 1992 году и снова стал участником <STRONG>EXHORDER</STRONG> в 2009, через год&nbsp;после их воссоединения.</P>
+Автор: Headcrusher
+
+### 04.07.2011 news EXHORDER сочиняют новый материал
+
+<P>Thrash-metal ветераны <STRONG>EXHORDER</STRONG> сочиняют материал для своего третьего альбома. Подробности пока не сообщаются.</P>
+<P>Группа вернулась к жизни в 2008 году. В настоящее время коллектив играет шоу с новым басистом <STRONG>Jorge Caicedo</STRONG> (<B>THE VOID</B>, <B>BUILT TO DESTROY</B>), который пришёл на замену умершему 22 марта <STRONG>Frankie Sparcello.</STRONG></P>
+<P><center><IMG height=192 src="/images/news_rus/2011.07/19869.jpg" width=440 border=0></P>
+Автор: Vit Belov
+
+### 22.10.2011 news Kyle Thomas (вокал) и Jay Ceravolo (гитара) покинули возрождённый EXHORDER
+
+<P><B><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.10/21641.jpg" width=285 height=416>Kyle Thomas </B><EM>(на фото)</EM>,&nbsp;вокалист легендарных новоорлеанских металлистов <B>EXHORDER</B>, сделал следующее заявление сайту <B>BLABBERMOUTH.NET</B>:<BR><BR><EM>"От имени&nbsp;<B>Jay Ceravolo</B> [гитара] и своего, с большим сожалением и разочарованием сообщаю, что&nbsp;мы оба покидаем <B>EXHORDER</B>.&nbsp;В связи&nbsp;с деловыми и личными разногласиями участников, слишком много непонятного окружает <STRONG>EXHORDER</STRONG>&nbsp;в данный момент. Мы приносим свои&nbsp;глубочашие извинения тем, кому причинит беспокойство и кого разочарует подобный наш&nbsp;шаг. В след за смертью [в марте] <B>Frankie Sparcello</B> [басист <B>EXHORDER</B>]&nbsp;и постоянного состояния хаоса, которое преследовало группу с момента её&nbsp;возрождения, негативная сторона, всё же,&nbsp;перевесила позитивную. Мы оба чувствуем, что наш уход,&nbsp;это то,&nbsp;что мы должны сделать,&nbsp;мы хотели бы, чтобы всё получилось наилучшим образом,&nbsp;потому-что <STRONG>EXHORDER</STRONG>&nbsp;никогда не достигали того потенциала, который по праву должны были бы иметь. Я желаю всем своим братьям, вовлечённым в группу, добра и удачи в будущем, независимо от того, будет ли продалжать существовать&nbsp;<STRONG>EXHORDER</STRONG>&nbsp;или нет."</EM></P>
+<P>Официальный сайт <STRONG>EXHORDER</STRONG>: <A href="http://www.exhorder.com/">www.exhorder.com</A></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

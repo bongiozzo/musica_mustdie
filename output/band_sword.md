@@ -34,6 +34,21 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.07.2011 news SWORD возвращаются
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Канадцы<STRONG> SWORD</STRONG> вернулись из небытия. Heavy-metal'исты дали первый концерт за более чем 20 лет 8 июля в Квебеке. Съёмки концертного исполнения <STRONG>"Evil Spell" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SWORD</STRONG> выпустили два альбома в 1986 и 1988 годах.</FONT></P>
+<P>&nbsp;</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/v2TcC16cfBM?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/v2TcC16cfBM?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

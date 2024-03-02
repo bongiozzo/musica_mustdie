@@ -72,6 +72,30 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 31.08.2011 news MORTAL SIN на NoiseArt
+
+<P>Австралийские thrash-metal ветераны <STRONG>MORTAL SIN</STRONG> заключили контракт с <STRONG>NoiseArt Records. </STRONG>Новейший альбом коллектива <STRONG>"Psychology Of Death" </STRONG>выйдет 18 ноября и будет в лимитированной версии включать в себя дебютную работу <STRONG>MORTAL SIN</STRONG> 1986 года выпуска <STRONG>"Mayhemic Destruction" </STRONG>в качестве бонуса. Продюсером работы выступил <STRONG>Darren "jENK" Jenkins. </STRONG>Трек-лист:</P>
+<P><STRONG>"Psychology Of Death"</STRONG> track listing: <BR>01. <B itxtHarvested="0" itxtNodeId="129">Psychology Of Death</B><BR>02. <B itxtHarvested="0" itxtNodeId="130">Blood Of My Enemies</B><BR>03. <B itxtHarvested="0" itxtNodeId="131">Paralysed</B><BR>04. <B itxtHarvested="0" itxtNodeId="132">Burned Into Your Soul</B><BR>05. <B itxtHarvested="0" itxtNodeId="133">Deny</B><BR>06. <B itxtHarvested="0" itxtNodeId="134">Doomed To Annihilation</B><BR>07. <B itxtHarvested="0" itxtNodeId="135">Kingdom Of Pain</B><BR>08. <B itxtHarvested="0" itxtNodeId="136">Down In The Pit</B><BR>09. <B itxtHarvested="0" itxtNodeId="137">Hatred</B><BR>Bonus CD <B itxtHarvested="0" itxtNodeId="138">"Mayhemic Destruction"</B>:<BR>01. <B itxtHarvested="0" itxtNodeId="139">The Curse</B><BR>02. <B itxtHarvested="0" itxtNodeId="140">Woman In Leather</B><BR>03. <B itxtHarvested="0" itxtNodeId="141">Lebanon</B><BR>04. <B itxtHarvested="0" itxtNodeId="142">Liar</B><BR>05. <B itxtHarvested="0" itxtNodeId="143">Blood, Death, Hatred</B><BR>06. <B itxtHarvested="0" itxtNodeId="144">Mortal Slaughter</B><BR>07. <B itxtHarvested="0" itxtNodeId="145">Into The Fire</B><BR>08. <B itxtHarvested="0" itxtNodeId="146">Mayhemic Destruction</B></P>
+<P>Тизер нового альбома можно посмотреть и послушать ниже:</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/cg7i4LomJX8" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 08.12.2011 news MORTAL SIN: видеоклип на песню &quot;Blood Of My Enemies&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый видеоклип на песню <STRONG>"Blood Of My Enemies"</STRONG> австралийских трэшеров <STRONG>MORTAL SIN</STRONG>, можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>&nbsp;</P><center><iframe width="560" height="315" src="http://www.youtube.com/embed/dbeMpMRZa30" frameborder="0" allowfullscreen></iframe>
+Автор: Headcrusher
+
+### 04.05.2012 news MORTAL SIN развалились
+
+<P>Австралийские thrash-metal ветераны <STRONG>MORTAL SIN</STRONG> прекратили существование. Это случилось из-за того, что барабанщик <STRONG>Luke Cook</STRONG> и гитарист<STRONG> Nathan Shea</STRONG> одновременно решили сменить приоритеты в собственной жизни. Оставшиеся музыканты решили не продолжать с новыми участниками.</P>
+<P>Последняя работа <STRONG>MORTAL SIN "Psychology Of Death"</STRONG> вышла в прошедшем ноябре на <STRONG>NoiseArt.</STRONG></P>
+<P><center><IMG height=280 src="/images/news_rus/2012.05/23777.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

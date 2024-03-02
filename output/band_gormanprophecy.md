@@ -8,6 +8,9 @@ alternative metal band from Baltimore, Maryland
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

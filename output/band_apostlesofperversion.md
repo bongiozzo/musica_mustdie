@@ -19,6 +19,16 @@ spanish old school death-metal
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.09.2011 news APOSTLES OF PERVERSION выпустили дебютный миньон
+
+<P><IMG height=320 alt="" hspace=0 src="/images/news_rus/2011.09/21330.jpg" width=320 align=right border=0>Испанские последователи <STRONG>SUFFOCATION </STRONG>и NAPALM DEATH APOSTLES OF PERVERSION выпустили свой дебютный мини-альбом "<STRONG>Meeting Of Atrocities</STRONG>" на лэйбле <STRONG>Pathologicaly Explicit Records</STRONG>. Коллектив существует с 2002 году и уже сыскал популярность в своей родной стране. Трек-лист:</P>
+<P>1. <STRONG>Myxedematous Coma</STRONG><BR>2. <STRONG>Conditions from a Tormented Past</STRONG> <BR>3. <STRONG>Meeting of Atrocities</STRONG> <BR>4. <STRONG>Disturbing Eating Disorder</STRONG> <BR>5. <STRONG>Postmortal Sexual Taste<BR></STRONG>6. <STRONG>Myxedematous Coma</STRONG> (bonus) <BR>7. <STRONG>Intracraneal Hypertension</STRONG> (bonus)<BR>8. <STRONG>Believe </STRONG>(bonus)</P>
+<P><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/apostlesofperversion">http://www.myspace.com/apostlesofperversion</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

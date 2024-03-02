@@ -68,6 +68,20 @@ Peter Gee – Bass Guitar
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.08.2005 news Новый альбом PENDRAGON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>PENDRAGON "Believe"</STRONG> выходит в августе на <STRONG>InsideOut</STRONG>. Трэк-лист:</FONT></P>
+<P><IMG height=300 alt="" hspace=0 src="/images/news_rus/2005.08/9159.jpg" width=300 align=right border=5>01. <STRONG>Believe<BR></STRONG>02. <STRONG>No Place For The Innocent</STRONG><BR>03. <STRONG>The Wisdom Of Solomon</STRONG><BR>04. <STRONG>The Wishing Well<BR></STRONG>05. <STRONG>Learning Curve<BR></STRONG>06. <STRONG>The Edge Of The World</STRONG></P>
+Автор: Vit Belov
+
+### 21.08.2005 news PENDRAGON&#39;s new album
+
+<P>New album of<STRONG> PENDRAGON "Believe"</STRONG> will be released in August.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

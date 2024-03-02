@@ -15,6 +15,29 @@
 * C группой "Acheron" Vincent Crowley
 * C группой "Incantation" Kyle Severn
 
+## Публикации
+
+### 07.12.2001 news Волчье Сообщество...
+
+<p>Нашумевший в свое время проект участников DARK FUNERAL, ACHERON, INCANTATION и THE ELECTRIC HELLFIRE CLUB - "WOLFEN SOCIETY" переиздает свой дебютный MCD "Conquer Divine". В Европе альбом выйдет в январе на "No Fashion Records", а в штатах тогда же через House Of Death Records. Из других новостей, команду по непонятным причинам оставили Thomas Thorn (клавиши) и Ricktor Ravenbruck (гитара). Новым клавишником стал Aaron Werner из ACHERON, гитарист пока не найден...</p>
+
+Автор: Yermola
+
+### 07.12.2001 news WOLFEN SOCIETY, the much-talked-about project...
+
+<p>WOLFEN SOCIETY, the much-talked-about project that in its early incarnation featured DARK FUNERAL’s Lord Ahriman, ACHERON’s Vincent Crowley, INCANTANTION’s Kyle Severn and THE ELECTRIC HELLFIRE CLUB’s Thomas Thorn & Ricktor Ravensbruck, will finally issue its debut MCD, entitled Conquer Divine, through No Fashion Records in Europe in January and House Of Death Records in the USA. In other news, Thomas Thorn (keyboards) and Ricktor Ravenbruck (guitars) have officially left the band for unspecified reasons, with Thorn having been replaced by ACHERON’s Aaron Werner and the group currently on the lookout for a new lead guitarist. <BR> <BR> In related news, after two long years of silence, ACHERON has returned with a brand new 7-inch release, entitled Xomaly, which is available through Italy’s Warlord Records (www.warlordrecords.com). The band also has a South American show scheduled for December 8th, 2001 in Caracas, Venezuela at Teatro Sala Cadafe with special guests STRATUZ and LEAVES.</p>
+
+Автор: Yermola
+
+### 16.12.2002 reviews If this is just a beginning... what a masterpiece awaits us in future??
+
+<p>I've been waiting for this MCD for a long-long time. Almost eternity. Oh, if god existed, perhaps he'd be the only one who could know what a long time it was… Nevertheless, "Conquer Divine" finally reached my mailbox. And what? Well, this is a worthy effort. In fact, I doubt if a combo comprised of Lord Ahriman (DARK FUNERAL), Kyle Severn (INCANTATION), Vincent Crowley (ACHERON), Thomas Thorn and Ricktor Ravensbruck (both of THE ELECTRIC HELLFIRE CLUB) could have come up with anything UNworthy. All the four songs differ; one being almost hymn-like; another one being relentless death / black metal assault. WOLFEN SOCIETY simultaneously doesn't have anything in common with the bands it's members take part in, and sounds a bit similar to each of them. Consider it a paradox or not; I don't care. The fourth track off "Conquer Divine" is taken from a demo session, and appears as incredibly grim interpretation of CARNIVORE"s classic, "Race War". If this is just a beginning, what a masterpiece awaits us in future??</p>
+<P> Website: <A HREF="http://www.houseofdeathrecords.com">http://www.houseofdeathrecords.com</A></>
+<P>Email: <A HREF="mailto:Houseofdeath@home.com">Houseofdeath@home.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+
 ## Обсуждения
 
 

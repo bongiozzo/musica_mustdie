@@ -12,6 +12,58 @@ ex-singer of JUDAS PRIEST
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.03.2009 news Tim Owens: Авторы на сцену
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=397 alt="" hspace=0 src="/images/news_rus/2009.03/13766.jpg" width=400 align=right border=5>Мы уже сообщали, что заменявший <STRONG>Rob Halford</STRONG> в <STRONG>JUDAS PRIEST</STRONG> певец <STRONG>Tim 'Ripper' Owens</STRONG> готовит к выходу свой сольник "<STRONG>Play My Game</STRONG>" на <STRONG>SPV</STRONG>. Музыкант обнародовал список песен, их авторов и музыкантов.</FONT></P>
+<P>* 01. <B>Starting Over</B><BR>Written by: <B>Tim Owens</B>, <B>Bob Kulick</B><BR>Guitar - <B>Bob Kulick</B><BR>Bass - <B>Rudy Sarzo</B><BR>Drums - <B>Simon Wright</B><BR>* 02. <B>Believe</B><BR>Written by: <B>Tim Owens</B><BR>Guitar - <B>John Comprix</B> <BR>Bass - <B>Rudy Sarzo</B> <BR>Drums - <B>Simon Wright</B> <BR>Lead Guitar - <B>Craig Goldy</B> <BR>* 03. <B>The Cover Up</B><BR>Written by: <B>Tim Owens</B><BR>Guitar - <B>John Comprix</B><BR>Bass - <B>James Lomenzo</B><BR>Drums - <B>Brett Chassen</B><BR>Lead Guitar - <B>Jeff Loomis</B><BR>* 04. <B>Pick Yourself Up</B><BR>Written by: <B>Tim Owens</B>, <B>Mike Callahan</B> <BR>Guitar - <B>Mike Callahan</B>/<B>Bob Kulick</B><BR>Bass - <B>Dennis Hayes</B><BR>Drums - <B>Ray Luzier</B><BR>Lead Guitar - <B>Steve Stevens</B> <BR>* 05. <B>It Is Me</B><BR>Written by: <B>Tim Owens</B><BR>Guitar - <B>John Comprix</B> <BR>Bass - <B>Rudy Sarzo</B> <BR>Drums - <B>Simon Wright</B> <BR>Lead Guitar - <B>Carlos Cavazo</B> <BR>* 06. <B>No Good Goodbyes</B> <BR>Written by: <B>Tim Owens</B>, <B>Bob Kulick</B>, <B>Brett Chassen</B> <BR>Guitar - <B>Bob Kulick</B><BR>Bass - <B>Billy Sheehan</B><BR>Drums - <B>Brett Chassen</B> <BR>Lead Guitar - <B>Bruce Kulick</B> <BR>* 07. <B>The World Is Blind</B> <BR>Written by: <B>Tim Owens</B> <BR>Guitar - <B>John Comprix</B> <BR>Bass - <B>Billy Sheehan</B><BR>Drums - <B>Simon Wright</B> <BR>Lead Guitar - <B>Doug Aldrich</B> <BR>* 08. <B>To Live Again</B> <BR>Written by: <B>Tim Owens</B> <BR>Guitar - <B>Michael Wilton</B>/<B>Bob Kulick</B><BR>Bass - <B>David Ellefson</B><BR>Drums - <B>Simon Wright</B><BR>Lead Guitar - <B>Michael Wilton</B><BR>* 09. <B>The Light</B> <BR>Written by: <B>Tim Owens</B>, <B>Bob Kulick</B> <BR>Guitar - <B>Bob Kulick</B><BR>Bass - <B>Tony Franklin</B> <BR>Drums - <B>Bobby Jarzombek</B> <BR>* 10. <B>Play My Game</B> <BR>Written by: <B>Tim Owens</B>, <B>John Comprix</B><BR>Guitar - <B>John Comprix</B> <BR>Bass - <B>Rudy Sarzo</B> <BR>Drums - <B>Simon Wright</B><BR>Lead Guitar - <B>Neil Zaza</B><BR>* 11. <B>Death Race</B> <BR>Written by: <B>Tim Owens</B>, <B>John Comprix</B><BR>Guitar - <B>John Comprix</B><BR>Bass - <B>James Lomenzo</B><BR>Drums - <B>Brett Chassen</B><BR>* 12. <B>The Shadows Are Alive</B> <BR>Written by: <B>Tim Owens</B>, <B>Chris Caffery</B> <BR>Guitar - <B>Chris Caffery</B> <BR>Bass - <B>Marco Mendoza</B><BR>Drums - <B>Simon Wright</B> <BR>* 13. <B>A Challenge</B> (bonus track; <B>iTunes</B> exclusive) <BR>Written by: <B>Tim Owens</B>, <B>Bob Kulick</B><BR>Guitar - <B>Bob Kulick</B> <BR>Bass - <B>Rudy Sarzo</B> <BR>Drums - <B>Vinny Appice</B></P>
+Автор: Vit Belov
+
+### 31.03.2009 news Tim Owens назвал банду
+
+<P>Бывший певец <STRONG>JUDAS PRIEST</STRONG> назвал состав группы, с которой он будет концертировать в поддержку дебютного сольника "<STRONG>Play My Game</STRONG>":</P>
+<P><STRONG>Tim "Ripper" Owens</STRONG> - Vocals<BR><B>Chris Caffery</B> (SAVATAGE, TRANS-SIBERIAN ORHCESTRA) - Guitar<BR><B>John Comprix</B> (BEYOND FEAR, RINGWORM) - Guitar<BR><B>David Ellefson</B> (MEGADETH, F5) - Bass<BR><B>Simon Wright</B> (AC/DC, DIO) - Drums</P>
+Автор: Vit Belov
+
+### 27.04.2009 news Трэк Tim Owens
+
+<P>Сольная песня <STRONG>Tim Owens</STRONG> <STRONG>"Starting Over" </STRONG>с будущего дебюта певца доступна на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/timtheripperowens">http://www.myspace.com/timtheripperowens</A></P>
+Автор: Vit Belov
+
+### 28.05.2009 news Бывший вокалист JUDAS PRIEST не дотянул до тысячи
+
+<P>Сольный альбом певца <STRONG>Tim 'Ripper' Owens "Play My Game"</STRONG> продался в первую неделю в США в количестве 800 штук.</P>
+Автор: Vit Belov
+
+### 25.06.2009 reviews Продукция Bruce Kulick
+
+<P>У вокалиста Tim ‘Ripper’ Owens завидная карьера. В 90-х, будучи никому неизвестным, он занял место за микрофонной стойкой JUDAS PRIEST. После он работал с Yngwie Malmsteen и ICED EARTH. Пускай, практически нигде он не снискал любви масс, но участие в таких проектах ввело его в картель американских металл-музыкантов, в котором он теперь играет заметную роль.</P>
+<P>Эта сплочённая тусовка занята тем, что продюсирует и выпускает различные сольники, трибьюты, юбилейные сборники. Вы можете взять диск, и если вы увидите где-то на заднике Bruce Kulick, знайте это оно… Всегда на этом диске будет великолепное множество известных лиц, великолепное множество составов на каждой песне… В общем, это будет по всем параметрам очень жирное и модное издание. Последним, что я слышал, вышедшее из этой кузницы, был сборник рождественских песен. Достаточно качественная, но малоинтересная продукция. В этот раз нам предстоит послушать сольник Tim ‘Ripper’ Owens. Надо отдать должное певцу, ко всем песням, которые мы нашли на “Play My Game”, он приложил руку. Перечислять всех музыкантов, которые помогали Tim я не стану, отмечу только Chris Caffery (он в концертном составе), David Ellefson (тоже в составе и коллега Tim по новой кавер-группе HAIL!) и помощник певца по BEYOND FEAR John Comprix. Вообще, атмосфера очень семейная, по связям с общественностью здесь миссис Owens, менеджер «некто» Wendy Dio. И что же сыграла нам эта тёплая компания? Скажу сразу, Tim ‘Ripper’ Owens здесь не визжит! Поэтому те, кто любят его за это, могут разочароваться, а те, кто за это же его не любят, могут попробовать послушать. Очень много на “Play My Game” среднетемповых и медленных композиций, свойственных американскому тяжёлому металлу. Вообще, видно, что Tim имеет вкус к «правильной» качовой музыке. Пластинку приятно слушать. К сожалению, как часто случается у господина Kulick, много композиторов не могут выдать целого альбома запоминающихся вещей. Видимо, на все сольники и гостевые участия не хватает идей. В целом это хороший американский heavy-metal, но популярность стиля и исполнителя в нашей стране настолько низка, что вряд ли этот альбом ждёт счастливая жизнь.</P>
+<P>Ещё один диск с участием Tim Owens. Как бы этот «заменитель» Halford не стал одним из значимых певцов на современной тяжёлой сцене. Это я, конечно же, шучу. Скорее он превратится в одного из тех уважаемых музыкантов, которых все уважают, но альбомы которых никто не покупает.</P>
+Автор: Vit Belov
+
+### 25.11.2010 news Tim &#39;Ripper&#39; Owens ничего не знает о новом альбоме Yngwie Malmsteen
+
+<P><IMG height=376 alt="" hspace=0 src="/images/news_rus/2010.11/17677.jpg" width=250 align=right border=1>22 ноября на собственном лэйбле <STRONG>Rising Force</STRONG> гитарист <STRONG>YNGWIE MALMSTEEN</STRONG> издал свой очередной альбом <STRONG>"Relentless". </STRONG>Эта пластинка стала второй для вокалиста <STRONG>Tim 'Ripper' Owens</STRONG> (ex-<STRONG>JUDAS</STRONG> <STRONG>PRIEST</STRONG>). Однако сам певец ничего не слышал о этом альбоме. В интервью <STRONG>Sweden Rock Magazine</STRONG> музыкант рассказал, что не знает, поёт ли он на новом CD<STRONG> YNGWIE MALMSTEEN</STRONG>: "<EM>Мы записали много песен во время сессии к предыдущему альбому "Perpetual Flame", поэтому, возможно, именно эти песни попали на новую работу. Я должен проверить контракт, имеет ли он право так поступать</EM>".</P>
+<P>Также <STRONG>Tim</STRONG> сказал, что не очень расстроится, если<STRONG> Malmsteen</STRONG> возьмёт другого вокалиста, так как из-за занятости в своих проектах, они с гитаристом последний раз встречались несколько месяцев назад.</P>
+<P>Убедиться, что на альбоме поёт <STRONG>Tim Owens</STRONG> можно послушав сэмплы на сайте <A href="http://www.amazon.com/Relentless/dp/B004B4TXN6/ref=sr_1_4?ie=UTF8&s=dmusic&qid=1289285348&sr=8-4">Amazon</A>.</P>
+Автор: Vit Belov
+
+### 19.03.2011 news Tim Owens заменит Dio
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Бывшие коллеги покойного певца <STRONG>Ronnie James Dio</STRONG> по его сольной группе объявили, что собираются в тур по Европе с проектом <STRONG>DIO DISCIPLES. </STRONG>Умершего лидера заменит бывший музыкант <STRONG>JUDAS PRIEST</STRONG> <STRONG>Tim "Ripper" Owens (</STRONG><B>YNGWIE MALMSTEEN, </B><B>BEYOND FEAR, </B><B>JUDAS PRIEST, </B><B>ICED EARTH). </B></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Эти шоу пройдут с благословения вдовы<STRONG> R. J. Dio Wendy</STRONG>, которая считает, что<STRONG> DIO</STRONG> не заменить, но его музыка должна жить.</FONT></P>
+<P><center><IMG height=267 src="/images/news_rus/2011.03/18909.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 29.05.2011 news Tim Owens и Fabio Lione помогут INFINITA SYMPHONIA
+
+<P>Итальянцы <STRONG>INFINITA SYMPHONIA </STRONG>заключили сделку с <STRONG>Scarlet Records</STRONG>. Их дебютный альбом <STRONG>"A Mind's Chronicle" </STRONG>выйдет в июне. Гостевое участие в записи приняли вокалисты <STRONG>Tim "Ripper" Owens</STRONG> (<B>JUDAS PRIEST</B>, <B>ICED EARTH</B>, <B>YNGWIE MALMSTEEN</B>)&nbsp;и <B>Fabio Lione</B> (<B>RHAPSODY OF FIRE</B>, <B>VISION DIVINE</B>). Пластинка была записана и сведена в <STRONG>Outer Sound Studios</STRONG> при помощи <STRONG>Giuseppe Orlando</STRONG> (<B>NOVEMBRE</B>), а мастерингом занимался <STRONG>Mika Jussila</STRONG> (<B>NIGHTWISH</B>, <B>SONATA ARCTICA</B>, <B>STRATOVARIUS</B>, <B>EDGUY</B>) в знаменитой <STRONG>Finnvox Studios.</STRONG></P>
+<P><center><STRONG><IMG height=376 src="/images/news_rus/2011.05/19539.jpg" width=450 border=0></STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### YNGWIE MALMSTEEN в Москве (18 февраля 2012)

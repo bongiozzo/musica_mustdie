@@ -41,6 +41,9 @@ Recorded In Unisound Studio (Sweden), June-July 1993
 * C группой "Ribspreader" Dan Swano
 * C группой "Marduk" Devo Andersson
 
+## Публикации
+
+
 ## Обсуждения
 
 

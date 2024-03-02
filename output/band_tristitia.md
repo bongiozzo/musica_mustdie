@@ -126,6 +126,27 @@ Darknia : The Last Grief
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.08.2000 reviews Эволюция группы привела к этому альбому
+
+<p>Эволюция группы привела к этому альбому. Скажу сразу, раньше эта группа выступала в очень интересном стиле. Хрипящий и торжественный чистый вокал на фоне мелодичного black-doom с инструментальными аккустическими вставками. Второй альбом наметил сдвиг в сторону медленного doom-death. И вот он финиш. От старой Tristitia остался только хор и инструментальные проигрышы. Теперь эта музыка напоминает смесь Anathema и Candlemass с исключительно чистым вокалом, но нисколько не торжественным. Жаль, ещё одна самобытная группа скончалась. Но это не значит, что материал нового альбома очень плох. Он выше среднего уровня и понравится любителям вышеуказанных групп. Но, скорее всего не понравится любителям Tristitia. Обычная пластинка в стиле death-doom.</p>
+
+Автор: Vit Belov
+
+### 16.08.2000 reviews Новомодные музыкальные течения мало кого обходят стороной
+
+<p>Новомодные музыкальные течения мало кого обходят стороной. Не обошли они и эту шведскую команду.В основном, это касается вокала. Если раньше Thomas Carlsson пел то хрипящим black-вокалом, то несравненным заклинательным баритоном повергающим в ужас и создающим атмосферу страха, теперь он поет самым простым чистым голосом, особо не надрываясь. Ну а музыка почти не изменилась. Только заметно больше стало акустических пассажей, не стало фортепианных партий. Риффы всё такие же тягучие и напряженные. Красивые меланхоличные соло довершают картину. Образцовый атмосферный doom-death metal. И всё-таки фирменный, легко узнаваемый, мрачный саунд группы остался. Его ни с чем не перепутаешь. Музыка довольно жесткая. Если не обращать внимание на вокал, то можно сказать, что группа по-прежнему продолжает развивать свой стиль. Вот только что ослабла horror-атмосфера. Ранее создаваемая музыкой и оригинальным вокалом, теперь она достигается только за счет музыки. Слушайте на здоровье!</p>
+
+Автор: Dimas
+
+### 16.08.2000 reviews New musical flows a little whom bypasses by the party
+
+<p>New musical flows a little whom bypasses by the party. They have not bypassed and this Swedish command. Basically, it concerns вокала. If earlier Thomas Carlsson sing by rattling black-voice, noncomparable by a baritone plunging in horror and creating atmosphere of pavor, now he sings by the most simple clean voice, it is apart not overstraining. Well and music has not changed almost. Became acoustic more passages, did not become piano of crews. Rhythes same tough and tight. Beautiful melancholic соло complete a picture. Standard atmospheric doom-death metal. And firm, it is easy knowing, the sad sound of group has remained. Music rather rigid. If not to pay attention on vocal, it is possible to say, that the group still prolongs to develop the style. Just sitting horror-atmosphere. Earlier created by music and original voice, now she is reached only at the expense of music. Listen on health!</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

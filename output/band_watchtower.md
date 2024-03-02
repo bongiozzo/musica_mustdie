@@ -28,6 +28,37 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.05.2002 news Хаотические ДЕМОНстрации...
+
+<p>Диск WATCHTOWER "Demonstrations in Chaos" состоящий из всяких редкостей периода Control & Resistance и демок 1983-84 годов выйдет до конца мая на Monster Records. Также в ближайшее время будет готов очередной студийник Mathematics...</p>
+
+Автор: Yermola
+
+### 14.08.2002 news WATCHTOWER - “Demonstrations in Chaos” ....
+
+<p><IMG SRC="/images/news/2002.08/3029.jpg" ALT="pho" width=250 height=244 hspace="15" vspace="5" border="1" align="left"> The Texas techno-metal pioneers have returned! In prelude to their upcoming brand-new album we unveil this offering of rare and never-before-released 80s recordings featuring original vocalist Jason McMaster. Showcased here are the original Boss Studio recordings of their “Energetic Disassembly” album, as well as various other original recordings, demos and live versions. It’s a great look into the beginnings of this innovative and influential progressive metal outfit and an important document of the 80s Texas metal scene. Considered by many to be some of the heaviest recordings they've ever done! Don't miss this! Complete with liner notes, lyrics, photos and more! Over 75 minutes of powerful progressive heavy metal!</p>
+
+Автор: Yermola
+
+### 14.08.2002 news Хаотические демонстрации Сторожевой Башни...
+
+<p><IMG SRC="/images/news/2002.08/3029.jpg" ALT="pho" width=250 height=244 hspace="15" vspace="5" border="1" align="left"> Техасские металл-пионеры "WATCHTOWER" возвращаются! В качестве прелюдии перед выходом нового полноценного альбома вашему вниманию предлагается сборник редких и никогда не выходивших записей 80-х, записанных с оригинальным вокалистом Jason McMaster. Более 75 минут звучания, тексты, фотографии и другое...</p>
+
+Автор: Yermola
+
+### 12.09.2016 news Тейлер нового мини-альбома WATCHTOWER
+
+<p>Легендарные prog metal'исты<strong> WATCHTOWER</strong> выпускают на <strong>Prosthetic Records</strong> мини-альбом "<strong>Concepts of Math: Book One</strong>". Ниже можно услышать трейлер этой работы.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/DO-UuL2jlnI" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 12.09.2016 news Trailer of new WATCHTOWER
+
+<p>Legendary prog metal band<strong> WATCHTOWER</strong> will release on <strong>Prosthetic Records</strong> mini-album "<strong>Concepts of Math: Book One</strong>". Below you can hear a trailer for this work.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/DO-UuL2jlnI" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Новый альбом Watchtower

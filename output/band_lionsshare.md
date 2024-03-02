@@ -81,6 +81,114 @@ Richard Evensand - ударные
 
 * C группой "Christian Rivel's Audiovision" Lars Chriss (guitar)
 
+## Публикации
+
+### 17.01.2001 news Записан новый альбом Lion&#39;s Share.
+
+<p>Новый альбом Lion's Share наконец закончен и должен быть выпущен в марте на Massacre Records. Названия песен: 1. "Entrance" 2. "Shotgun Messiah" 3. "Waiting" 4. "Through The Clouds" 5. "Lost" 6. "Mystery" 7. "Believe" 8. "War Machine" 9. "On And On" 10. "Losing My Head" 11. "Free Your Mind". Lion's Share также официально объявляют о присоединении к группе нового вокалиста Тони Нивы, голос которого лучше всего можно описать как нечто среднее между Джефом Тэйтом и Робом Халфордом. Кай и Энди покинули группу ещё до записи альбома, поскольку никто из них не хотел участвовать в турах и отвлекаться от своих семейных дел и основной работы. Клавишные партии на альбоме выполнил Матс Олауссон, известный своим участием в группе Ингви Мальмстина.</p>
+
+Автор: Morsus
+
+### 17.01.2001 news The new album of Lion&#39;s Share is completed.
+
+<p>The new album of Lion's Share is finally completed and scheduled for a March release through Massacre Records. The titles are: 1. "Entrance" 2. "Shotgun Messiah" 3. "Waiting" 4. "Through The Clouds" 5. "Lost" 6. "Mystery" 7. "Believe" 8. "War Machine" 9. "On And On" 10. "Losing My Head" 11. "Free Your Mind". Lion's Share are also officially announce the arrival of new singer Tony Niva (best described as a cross between Geoff Tate and Rob Halford). Both Kay and Andy left the band prior to the recordings, since neither of them wanted to tour and spend time away from their families and day jobs anymore. The keyboards on the album were performed by Mats Olausson of Yngwie Malmsteen fame.</p>
+
+Автор: Morsus
+
+### 05.10.2001 reviews Добротный melodic heavy metal из Швеции
+
+<p>Добротный melodic heavy metal из Швеции. Это уже четвертый альбом группы существующей уже с 1994 года (и даже ранее под другим именем). Выдержан он в том же духе, что и предыдущие. Качественный и прилежный hard'n'heavy metal вдохновленный музыкой восьмидесятых. Материал разнообразный, выше среднего уровня, без явных всплесков, но и без провалов. Но по сравнению с предыдущими альбомами, здесь наблюдается небольшое утяжеление и более прогрессивные мелодии и структуры. Но, в основном, музыка группа осталась в рамках установленных ими на предыдущих альбомах. Отполированный саунд и приятный слуху вокал, умеренные клавишные и мелодичные гитары. Хорошая правильная музыка.</p>
+
+Автор: Dimas
+
+### 13.10.2002 news Lion&#39;s Share остались без басиста и барабанщика
+
+<p>Из-за личных разногласий шведскую мелодик-метал команду Lion's Share покинули басист Понтус Эгберг и барабанщик Йохан Колеберг. Гитарист Ларс Хрисс и вокалист Тони Нива продолжают готовить материал для пятого студийного альбома группы, который должен выйти где-то либо в конце 2003, либо в начале 2004 года.</p>
+
+Автор: Morsus
+
+### 13.10.2002 news Lion&#39;s Share have parted ways with Pontus Egberg and Johan Koleberg
+
+<p>Swedish melodic metal act Lion's Share have parted ways with Pontus Egberg (bass) and Johan Koleberg (drums) due to personal differences. Lars Chriss (guitar) and Tony Niva (vocals) will continue writing and demoing material for the group's fifth studio album, to be released sometime in late 2003 or early 2004.</p>
+
+Автор: Morsus
+
+### 19.12.2002 news Partition Europe Reunion
+
+<p>Three-fifths of the most celebrated EUROPE lineup - guitarist John Norum, bassist John Levйn, and drummer Ian Haugland - reunited on stage at the Hard Rock Cafй in Stockholm, Sweden - Dec 13th. to perform the EUROPE classic "Rock The Night" and a version of LED ZEPPELIN's "Rock And Roll".</p>
+<P> The gig, which took place as part of the Christmas show of local radio station Rockklassiker 106.7, also featured an appearance by LION'S SHARE guitarist Lars Chriss, who also played with Haugland during the regular set before Norum and Levйn joined the duo for the explosive finale. Haugland himself handled the lead vocal duties for the EUROPE track.</>
+
+Автор: Vit Belov
+
+### 21.04.2003 news LION&#39;S SHARE will be holding auditions for the vacant drummer and bassist
+
+<p>Swedish masters of melodic metal LION'S SHARE will be holding auditions for the vacant drummer and bassist positions in the band and are inviting all interested parties to submit demos, bios and photos to: JK Productions, ATTN: Lion's Share, Vinterv. 8K, 135 40 Tyreso, Sweden. All live auditions will be held in Stockholm sometime in the fall. <BR><BR> LION'S SHARE guitarist Lars Chriss is currently composing material for the group's fifth studio album with an as-yet-undisclosed vocalist for a tentative fall 2004 release. LION'S SHARE's last CD, "Entrance", was issued in 2001 through Germany's Massacre Records.<BR><BR> For more information, visit the official LION'S SHARE homepage at <A HREF="http://www.lionsshare.org">www.lionsshare.org</A></p>
+
+Автор: Yermola
+
+### 05.04.2008 reviews Разные уши
+
+<P>Я где-то слышал, что уши людей разной расы воспринимают звук по-разному. Из-за этого, якобы, японские и западные диски одних и тех же групп звучат не одинаково, а уж тот, кто рискнёт купить родную японскую аппаратуру совсем не получит никакого удовольствия от акустики. Не знаю, насколько это правда, но факт, что азиаты не потеют, а наши мужчины…, может и со звуком то же. К японцам мы ещё как-нибудь вернёмся, а сейчас поговорим о более странном феномене. Американцы и европейцы. Вроде бы все мы европеоиды, так, кажется, это называется, а музыка по разные стороны океана разнится очень сильно. Оставим все эти «негритянские» ритмы, которые так популярны в современном творчестве американских металлистов, ведь даже и звучание, и музыкальное построение классических вроде бы heavy-metal композиций нам видятся по-разному.</P>
+<P>Вот и получается, что является хитом там, может совершенно не подойти нам. И наоборот. Творчество шведов LION’S SHARE, конечно же, пока не претендует на звание 100-процентного хита, где бы то не было, но американцы просто-таки полюбили “Emotional Coma”. Европейской группе трудно снискать за океаном что-то, кроме насмешек, а вот LION’S SHARE удалось добиться положительных и восторженных оценок даже от критиков. Их heavy-metal ориентирован на тот рынок. Мощный, качовый, риффоориентированный с пронзительным Dioподобным вокалом Nils Patrik Johansson (ANDROMEDA, SPACE ODYSSEY). Звучание тоже не европейски дружественное. Низкое, сухое… Может даже голова заболеть, а там… Что там? Все веселятся, наверное. В начале “Emotional Coma” мне ещё удалось расслушать что-то интересное, дальше же мелодий почти не остаётся, они приносятся в жертву «трушности» звучания.</P>
+<P>Быть может, я, вообще, здесь «нагнал». Просто мне этот альбом показался достаточно проходным, но, почитав выдержки из рецензий на сайте CD-Maximum, я задумался, и вот чего придумал. Судить, опять-таки, вам.</P>
+Автор: Vit Belov
+
+### 16.09.2008 reviews В борьбе с оригинальностью последняя часто проигрывает
+
+<P>Не так уж и неправы те, кто утверждает, что в музыке (тяжелой, по крайней мере) уже давно всё сделано и сочинено, а практически все выходящие новые альбомы представляют собой в той или иной степени повторение старых идей. На такую, в общем-то довольно пессимистическую мысль меня натолкнул альбом шведов Lion's Share "Emotional Coma". Ну есть у нас уже Black Sabbath, есть Dio, есть&nbsp;Rainbow, и мы с б<U>о</U>льшим удовольствием послушаем покрытые пылью пластинки этих исполнителей, чем новые переигрывания и трансформации их идей. Здесь можно разве что сыграть на какой-то оригинальности, но таковой я что-то на "Emotional Coma" не узрел. И альбом-то вроде неплохой, но вот никакой цепляющей изюминки тут нет, хотя фанаты группы, разумеется, со мной вряд ли согласятся. Но этого ли они ждали аж целых шесть лет? Думается, что нет. Кстати, в группе новый вокалист, Patrik Johansson (Astral Doors, Wuthering Heights) - при ближайшем рассмотрении =&nbsp;Дио+Ковердейл+Тони Мартин. Очень и очень неплохой голос, но опять-таки - это мы уже всё слышали. В качестве гостей засветились, среди прочих, Mats Leven (Therion, At Vance, Yngwie Malmsteen, Astrakt Algebra), Richard Evensand (Therion, Soilwork), Bruce Kulick (ex-Kiss), Glen Drover (Megadeth, тогда еще не "экс"). На закуску Lion's Share исполняют кавер вещи 'Sorcerers' Angel Witch. На российском лицензионном издании есть также бонус-трек 'Ring Of Stupidity' и бонус-видео 'The Edge Of The Razor'.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 21.11.2008 news Новый альбом LION&#39;S SHARE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В марте 2009 года выходит новый альбом <STRONG>LION'S SHARE</STRONG> <STRONG>"Dark Hours".</STRONG> Трэк-лист:</FONT></P>
+<P>01. <B itxtvisited="1">Judas Must Die</B><BR itxtvisited="1">02. <B itxtvisited="1">Phantom Rider</B><BR itxtvisited="1">03. <B itxtvisited="1">Demon In Your Mind</B><BR itxtvisited="1">04. <B itxtvisited="1">Heavy Cross To Bear</B><BR itxtvisited="1">05. <B itxtvisited="1">The Bottomless Pit</B><BR itxtvisited="1">06. <B itxtvisited="1">Full Metal Jacket</B><BR itxtvisited="1">07. <B itxtvisited="1">The Presidio 27</B><BR itxtvisited="1">08. <B itxtvisited="1">Barker Ranch</B><BR itxtvisited="1">09. <B itxtvisited="1">Napalm Nights</B><BR itxtvisited="1">10. <B itxtvisited="1">Space Scam</B><BR itxtvisited="1">11. <B itxtvisited="1">Behind The Curtain</B><BR itxtvisited="1">12. <B itxtvisited="1">King Of All The Kings</B> (bonus track – limited-edition digipak and Japanese version)</P>
+Автор: Vit Belov
+
+### 26.01.2009 news Обложка нового LION&#39;S SHARE
+
+<P>25 марта выходит новый альбом <STRONG>LION'S SHARE</STRONG> <STRONG>"Dark Hours". </STRONG>Опубликована обложка этой пластинки.</P>
+<P>
+<CENTER><IMG height=399 src="/images/news_rus/2009.01/13450.jpg" width=400 border=0> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 13.02.2009 news Новая песня LION&#39;S SHARE
+
+<P>Новую песню <STRONG>LION'S SHARE</STRONG> можно скачать на сайте лэйбла <STRONG>Blistering Records</STRONG>. "<STRONG>Judas Must Die</STRONG>" попадёт на новый альбом группы "<STRONG>Dark Hours</STRONG>".</P>
+<P>Ссылка: <A href="http://www.blisteringrecords.se/_global/downloads/artists/lions-share/LS-Judas-Must-Die.mp3">http://www.blisteringrecords.se/_global/downloads/artists/lions-share/LS-Judas-Must-Die.mp3</A></P>
+Автор: Vit Belov
+
+### 31.03.2009 news Judas Must Die
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новое видео от<STRONG> LION'S SHARE</STRONG> на песню "<STRONG>Judas Must Die</STRONG>" можно посмотреть ниже:</FONT></P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/Pst9Kha4Kxo&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/Pst9Kha4Kxo&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 07.01.2010 reviews Забытая мелодия для Dio
+
+<P>Старейшая шведская группа LION’S SHARE под предводительством гитариста Lars Christmansson продолжает своё существование. “Dark Hours” стал вторым альбомом после шестилетнего перерыва в творчестве группы, и, как это ни странно звучит, LION’S SHARE звучат свежо и интересно.</P>
+<P>Несомненной удачей этого проекта стал вокалист Nils Patrik Johansson (ASTRAL DOORS, WUTHERING HEIGHTS, SPACE ODYSSEY), который, обладая широким диапазоном похожести на различных вокалистов-звёзд прошедшей эпохи, позволяет главному композитору творить вещи, ставящие LION’S SHARE в один ряд с классиками тяжёлой музыки. Не на один уровень, конечно, но в один ряд. В этот раз меня особенно порадовало сходство с сольными работами Dio. Мощные глубокие риффы и протяжный сильный голос оказывают непревзойдённое действие на слушателя. Безусловно, сольное творчество Ronny James относится к категории «на любителя». Зато эти любители настолько преданны одному из лучших вокалистов современности, что готовы приобретать любых его клонов, тем более таких качественных. LION’S SHARE всегда тяготели к заокеанскому направлению heavy-metal. Средний темп, протяжные мелодии и голос, бьющий прямо в цель.</P>
+<P>Приятная работа. Здесь нет ураганных power-metal хитов, да они здесь и не нужны никому. Мощно покачать своей головой, изображая гитариста, вот для чего нужен этот альбом.</P>
+Автор: Vit Belov
+
+### 10.10.2010 news Шведский трибьют Dio
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>7-8 октября состоялся <STRONG>Sweden Rock Cruise. </STRONG>Набирает популярность практика подобных круизов на паромах или других плавсредствах, сопровождаемая металическим концертом. В этот раз группа "волосатиков" плыла из Стокгольма в Або. Основным блюдом концертного шоу стал массивный "трибьют" ушедшему от нас в этом году <STRONG>Ronnie James Dio</STRONG> с участием героев шведской сцены. Вместе с музыкантами <STRONG>LION'S SHARE</STRONG> выступали:</FONT></P>
+<P>* <B>Bjorn Gelotte</B>&nbsp;и <B>Peter Iwers</B> (IN FLAMES)<BR>* <B>Joacim Cans</B> (HAMMERFALL)<BR>* <B>Ian Haugland</B> (EUROPE)<BR>* <B>Mikael Akerfeldt</B> (OPETH)<BR>* <B>Jens Johansson</B> (STRATOVARIUS, ex-DIO)<BR>* <B>Messiah Marcolin</B> (ex-CANDLEMASS)<BR>* <B>Johan Edlund</B> (TIAMAT)<BR>* <B>Joakim Berg</B>&nbsp;и <B>Magnus "Adde" Andreasson</B> (HARDCORE SUPERSTAR)<BR>* <B>Johan Hegg</B> (AMON AMARTH)<BR>* <B>Mike Wead</B> (BIBLEBLACK, KING DIAMOND, MERCYFUL FATE)</P>
+<P>Видео выступления бывшего вокалиста <STRONG>CANDLEMASS Messiah Marcolin</STRONG>, исполняющего песню <STRONG>BLACK SABBATH "Sign of the Southern Cross"</STRONG> можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=390 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/MZ1wMKsq43s&hl=en_US&feature=player_embedded&version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/MZ1wMKsq43s&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

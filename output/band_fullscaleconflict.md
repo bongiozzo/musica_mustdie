@@ -21,6 +21,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.11.2011 news FULL SCALE CONFLICT подписали контракт
+
+<P>Финские "металкорщики" <STRONG>FULL SCALE CONFLICT</STRONG> подписали контракт с <STRONG>Ultimhate Records</STRONG>. Второй альбом коллектива "<STRONG>The Warborn Chronicles</STRONG>" выйдет в начале весны будущего года. Новую песню коллектива "<STRONG>Warborn</STRONG>" можно послушать в клипе ниже.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/0giuSrBymn4?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/0giuSrBymn4?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

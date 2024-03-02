@@ -137,6 +137,111 @@ Stefan Svantesson - Drums
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.06.2000 reviews Шведский коллектив играющий любопытную музычку
+
+<p>Шведский коллектив играющий любопытную музычку. Представьте себе DARK TRANQUILLITY. Представили? А теперь замените хрипящий вокал на простой и чистый. Получилось? Ну вот теперь вы ясно представляете себе то, что играет эта группа. Получился отличный спид-пауэр материал. Очень мелодичный, незатейливый и техничный. Ну что еще сказать? Понравится как фанатам шведского дэт-метал. так и фэнам пауэр-спида. В принципе, не совсем оригинальная музыка, тем не менее до этого я с подобным материалом не сталкивался в таком виде, как он подается на этом альбоме.</p>
+
+Автор: Dimas
+
+### 08.06.2000 reviews The Swedish collective playing curious music.
+
+<p>The Swedish collective playing curious music. Imagine DARK TRANQUILLITY. Have presented? And now replace rattling vocal on simple and pure. Was received? Well now you clearly imagine that this group plays. Was received excellent speed-power a material. Very melodious, simple and technical. Well what still to tell? It is pleasant as the fans Swedish death-metal. And fans power-speed. Basically, not absolutely original music, nevertheless before I with a similar material did not collide in such kind, as it moves on this album</p>
+
+Автор: Dimas
+
+### 27.05.2001 reviews Второй альбом сынов Одина
+
+<p>Второй альбом сынов Одина. Более мощный, более разноообразный и более интересный, чем дебют. Первый альбом группы мне понравился оригинальным сплавом тевтонских риффов и некоторых моментов позаимствованных из мягкого шведского melodic death. На сей раз, эти шведы скрестили heavy, speed, power, элементы viking metal, все это снабдили совершенными эпическими мелодиями и мощнейшими риффами. Особенно чувствительны на альбоме влияния раннего Helloween и Iron Maiden. Надо отметить, что группа хорошо поработала с новым материалом, правда, как и на дебюте, им так и не удалось создать приличный гитарный звук, да и вокалист не совсем подходящий (но без него, как без рук, он ведь еще и лидер-гитарист и основной сочинитель в группе, в общем - ее лидер). Но все что положено здесь есть! Замечательные хоровые распевки в припевах, позитивное звучание и бесконечные мелодии. Быстрые мелодичные песни перемежаемые тремя песнями в балладном темпе. Несмотря на не особую оригинальность и часовую продолжительность, этот альбом имеет много очень удачных фрагментов, компенсирующих все минусы и позволяющие назвать "In Silence They March" хорошим хэви-металлическим альбомом, разнообразным и приятным на слух.</p>
+
+Автор: Dimas
+
+### 05.06.2001 news Проблемы у CRYSTAL EYES ...
+
+<p>Барабанщик Kujtim Gashi вынужден был оставить "CRYSTAL EYES" в связи с болезнью дочери. Теперь команда вынуждена срочно искать замену. Если вы чувствуете себя достаточно хорошим барабанщиком пишите: mikael@crystaleyes.net (Mikael Dahl) или звоните: +46 (0)33 411847.</p>
+
+Автор: Yermola
+
+### 05.06.2001 news CRYSTAL EYES have parted ways with drummer ....
+
+<p>Sweden's CRYSTAL EYES have parted ways with drummer Kujtim Gashi, who has decided to leave the band to spend more time with his very ill daughter. She's had bad asthma and allergies since birth, and her condition has lately been getting worse and worse. Under these circumstances Kujtim felt that he can not dedicate as much time as needed to CRYSTAL EYES, and he recently informed the band about his final decision. CRYSTAL EYES are presently looking for a new drummer. Interested parties can contact Mikael Dahl via mikael@crystaleyes.net or +46 (0)33 411847. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 11.07.2001 news Новый ударник  - новый альбом?
+
+<p> В шведской группе Crystal Eyes оформилась смена драмера: место за ударной установкой занял 22-летний Stefan Svantesson (ex-Freternia). Помимо этого, группа объявила, что все песни для третьего альбома уже готовы к записи, которую ребята планируют начать в конце лета.</p>
+
+Автор: Helloween
+
+### 21.11.2002 news CRYSTAL EYES Sign With DMP SWEDEN
+
+<p>Sweden's CRYSTAL EYES have signed a multi-album deal with DMP Sweden Records. <BR><BR> The group's first release for the label will be their third full-length album, "Vengeance Descending", which is scheduled to be mixed and mastered during December.<BR><BR> The complete track listing for the CD is as follows (in alphabetical order):<BR><BR> 01. Child Of Rock<BR> 02. Dream Chaser<BR> 03. Heart Of The Mountain<BR> 04. Highland Revenge<BR> 05. Metal Crusade<BR> 06. Midnight Waves<BR> 07. Mr. Failure<BR> 08. Oblivion In The Visionary World<BR> 09. The Beast In Velve<BR> 10. The Wizard's Apprentice<BR> 11. Vengeance Descending<BR><BR> "Vengeance Descending" will feature guest appearances by ex-CHROMING ROSE frontman Gerd Salewski and LOST HORIZON singer Daniel Heiman. A spring release is expected.</p>
+
+Автор: Yermola
+
+### 21.11.2002 news CRYSTAL EYES подписали сделку...
+
+<p>"CRYSTAL EYES" подписали мультиальбомную сделку с DMP Records. Первый релиз для нового лэйбла "Vengeance Descending" будет микшироваться в декабре и уже практически готов. <BR><BR> Трек-лист:<BR><BR> 01. Child Of Rock<BR> 02. Dream Chaser<BR> 03. Heart Of The Mountain<BR> 04. Highland Revenge<BR> 05. Metal Crusade<BR> 06. Midnight Waves<BR> 07. Mr. Failure<BR> 08. Oblivion In The Visionary World<BR> 09. The Beast In Velve<BR> 10. The Wizard's Apprentice<BR> 11. Vengeance Descending<BR><BR> В качестве гостей на альбоме отметились фронтмен CHROMING ROSE - Gerd Salewski и вокалист LOST HORIZON - Daniel Heiman.</p>
+
+Автор: Yermola
+
+### 30.04.2003 news Новый альбом CRYSTAL EYES
+
+<p>Шведская power metal формация CRYSTAL EYES выпускает 12 мая скандинавский релиз своего нового альбома "Vengeance Descending". Европейский релиз третьего альбома группы ожидается к концу лета 2003 года. Окончательный трэк-лист альбома:</p>
+<p> 1. Vengeance Descending <BR> 2. Highland Revenge <BR> 3. Child Of Rock <BR> 4. Mr. Failure <BR> 5. Dream Chaser <BR> 6. The Wizard's Apprentice <BR> 7. Metal Crusade<BR> 8. The Beast In Velvet <BR> 9. Heart Of The Mountain <BR> 10. Oblivion In The Visionary World</p>
+<p> Некоторые вокальные партии на альбоме записали Gerd Salewski (ex-CHROMING ROSE) и Daniel Heiman (LOST HORIZON).</p>
+
+Автор: Dimas
+
+### 22.08.2004 reviews Наркотик для true-фэнов первого альбома HELLOWEEN
+
+<P><EM><STRONG>CRYSTAL EYES</STRONG> - группа своего лидера <STRONG>Mikael Dahl</STRONG>, который, как положено, ответственен за все положительные и отрицательные стороны.</EM></P>
+<P>Уже в рецензиях на предыдущие работы этого шведского коллектива многие критики обращали внимание на главные недостатки <STRONG>CRYSTAL EYES</STRONG> - слабую реализацию (прежде всего, это касается гитарного звука) и вокал. Сильная сторона этой группы - крепкие героические power-metal мелодии, которые хоть и страдают некоторой второсортностью, но наполняют гордостью и пафосом грудь каждого любителя тевтонского power-heavy-metal. Всем тем, что я написал и занимается <STRONG>Mikael Dahl</STRONG>. Он поёт, играет на гитаре, сочиняет всю музыку и тексты, а также весь материал сводит и записывает. И жнец, и..., ну, Вы поняли.</P>
+<P>Поёт он плохо, но компенсирует неумение чувством, как, например, ранний <STRONG>Kai Hansen</STRONG>. Работать в студии он тоже не умеет, гитары звучат хуже, чем у <STRONG>HELLOWEEN </STRONG>в 1985 году. Зато соло на этой гиатре и понятные запоминающиеся мелодии вытягивают эту пластинку из неудовлетворительного спектра в удовлетворительный. А в хороший <STRONG>CRYSTAL EYES</STRONG> может вывести только смещение с многих постов <STRONG>Dahl</STRONG>, но только надо это кому-нибудь?</P>
+<P>Если бы этот альбом вышел в середине 80-х, все бы закайфовали, а так работа <STRONG>CRYSTAL EYES</STRONG> вызывает только улыбку на морщинистых лицах опытных любителей power-metal. Несмотря на это, поностальгировать всем любителям раннего <STRONG>HELLOWEEN</STRONG> под этот альбом рекомендуется.</P>
+Автор: Vit Belov
+
+### 15.09.2004 news Новый альбом CRYSTAL EYES
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом power-metal группы <STRONG>CRYSTAL EYES</STRONG> <STRONG>"Confessions of the Maker" </STRONG>выйдет в начале 2005 года. Трэк-лист:</FONT></P>
+<P>01. <B>Confessions of the Maker</B><BR>02. <B>Northern Rage</B><BR>03. <B>Panic</B><BR>04. <B>Revolution In the Shadowland</B><BR>05. <B>Silent Angel</B><BR>06. <B>Terminal Voyage</B><BR>07. <B>The Burning Vision</B><BR>08. <B>The Charioteer</B><BR>09. <B>The Fools' Ballet</B><BR>10. <B>The Terror</B><BR>11. <B>White Wolves</B></P>
+Автор: Vit Belov
+
+### 24.01.2005 news Новая песня CRYSTAL EYES
+
+<P><IMG height=192 alt="" hspace=20 src="/images/news_rus/2005.01/7758.jpg" width=286 align=left border=0>Шведы&nbsp;<B>CRYSTAL EYES</B>&nbsp;завершили работу над своим четвертым полнометражным альбомом&nbsp;<B>"Confessions of the Maker"</B>. Это будет первый альбом коллектива с новым вокалистом <STRONG>Daniel Heiman</STRONG> (ex-<B>LOST HORIZON</B>). Мастеринг альбома провел <B>Dragan Tanaskovic</B>, работавший над последним альбомом&nbsp;<B>EVERGREY</B>. Заглавную песню с альбома&nbsp;<B>"Confessions of the Maker"</B> можно найти по <A href="/samples/c/crystal_eyes/2005_1347.mp3">этому</A> адресу.<BR></P>
+Автор: Dimas
+
+### 01.04.2005 news CRYSTAL EYES на CD-MAXIMUM
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как уже сообщалось, в ближайшем будущем выходит новый альбом <STRONG>CRYSTAL EYES</STRONG> <FONT color=#ddd9d0><STRONG>"Confessions of the Maker"</STRONG>. Группа опубликовала на своём сайте новость, что пластинка выйдет в России на <STRONG>CD-Maximum</STRONG>.</FONT></FONT></P>
+Автор: Vit Belov
+
+### 08.09.2006 news Новый альбом CRYSTAL EYES
+
+<P>Шведские музыканты&nbsp;<B>CRYSTAL EYES</B>&nbsp;закончили работу над своим пятым альбомом&nbsp;<B>"Dead City Dreaming"</B>, выход которого намечен на 3 ноября.&nbsp;Он был записан в студии&nbsp;<B>Crystal Sounds</B> с продюсером <B>Fredrik Nordstrom</B>. Окончательный трек-листа льбома:<BR><BR><IMG height=300 alt="" hspace=10 src="/images/news_rus/2006.09/10692.jpg" width=300 align=left border=0>1. <B>Dead City Dreaming</B><BR>2. <B>Into The Light</B><BR>3. <B>The Narrow Mind</B><BR>4. <B>Wall Of Stars</B><BR>5. <B>Battlefield</B><BR>6. <B>The Quest Remains</B><BR>7. <B>Dawn Dancer</B><BR>8. <B>Roads Of Loneliness</B><BR>9. <B>Temple Of Immortal Shame</B><BR>10. <B>The Halls of Valhalla</B><BR></P>
+Автор: Dimas
+
+### 19.05.2007 news CRYSTAL EYES работают над новыми песнями
+
+<P><STRONG>CRYSTAL EYES</STRONG> вернулись к жизни и работают над новым материалом. Написание песен и репетиции продлятся в течение всего лета, а осенью группа засядет в студию.</P>
+Автор: Vit Belov
+
+### 01.02.2009 news CRYSTAL EYES поменяли вокалиста
+
+<P><B itxtvisited="1">Soren Nico Adamsen</B> (<STRONG>ARTILLERY) </STRONG>сообщил, что больше не может исполнять обязанности певца в <STRONG>CRYSTAL EYES</STRONG>. Петь у группы будет теперь гитарист <STRONG>Mikael Dahl</STRONG>. <STRONG>Mikael </STRONG>сообщает, что писал все вокальные мелодии погд свой голос, и ему не представляет особой сложности снова начать исполнять функции вокалиста.</P>
+Автор: Vit Belov
+
+### 27.02.2009 reviews Типичная качественная продукция в известном стиле
+
+<P>Шведы CRYSTAL EYES – одна из тех групп, которые вызывают уважение и умудряются держаться на хорошем плаву, не выдумывая в музыке ничего нового. Правда, к этой философии музыканты пришли на поздних альбомах. Раньше коллектив под руководством гитариста-вокалиста Mikael Dahl пытался подойти к heavy-power-metal с нестандартной стороны, но подобная тактика никаких плюсов не принесла.</P>
+<P>Новый альбом группы “Chained” типичная heavy-power-metal продукция. Отличная гитарная работа, сильный вокал (нынешний певец ARTILLERY Nico Adamsen), стандартные, но запоминающиеся мелодические ходы. Альбом слушается на одном дыхании и не надоедает. Песни практически сразу влезают в голову и не хотят оттуда уходить. При прокручивании современного CRYSTAL EYES на ум сразу приходят все классики немецкого металла от BLIND GUARDIAN до HELLOWEEN. Понятно, что кого-то такой подход не удовлетворяет. Получить что-то оригинальное на “Chained” не удастся, но посоветовать пластинку всем желающим приобрести качественную музыку в известном стиле просто необходимо.</P>
+<P>Зачётная работа. Из последних новостей. О своём уходе заявил вокалист, и теперь вновь будет петь Mikael Dahl, помнится, его голос не был украшением CRYSTAL EYES, но посмотрим, чем всё это обернётся.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

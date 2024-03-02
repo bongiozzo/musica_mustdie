@@ -29,6 +29,16 @@ Line-Up:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 18.10.2005 news У СТАЯ вышел альбом на Фоно
+
+<P>Дебютный альбом белорусской группы <STRONG>СТАЯ "Страна Льдов"</STRONG> вышел на <STRONG>Фоно</STRONG>. Мастеринг альбома провел <STRONG>Mika Jussila</STRONG> в легендарной <STRONG>Finnvox Studio</STRONG>. Трэк-лист:</P>
+<P><IMG height=317 alt="" hspace=0 src="/images/news_rus/2005.10/9570.jpg" width=309 align=right border=5>1. <STRONG>Война<BR></STRONG>2. <STRONG>Как я скажу</STRONG><BR>3. <STRONG>Седая вода</STRONG><BR>4. <STRONG>Стая</STRONG><BR>5. <STRONG>Ангел<BR></STRONG>6. <STRONG>Млечный мост</STRONG><BR>7. <STRONG>Прыгнуть в пустоту</STRONG><BR>8. <STRONG>Крестоносец<BR></STRONG>9. <STRONG>Не забудь мою печаль</STRONG><BR>10. <STRONG>Фараон<BR></STRONG>11. <STRONG>Страна льдов</STRONG></P>
+<P>Официальный сайт группы: <A href="http://www.staya.com/">http://www.staya.com/</A></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

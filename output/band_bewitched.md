@@ -86,6 +86,64 @@ Reaper - Drums Of Doom
 * C группой "Ancient Wisdom" M. Norman
 * C группой "Havayoth" M. Norman
 
+## Публикации
+
+### 04.10.1999 news 
+
+<p>Bewitched перенесли запись нового альбома на сентябрь, из-за задержек при репетициях и написании нового материала. Название его будет "Somewhere Beyond The Mist".</p>
+
+Автор: Vit Belov
+
+### 12.09.2000 news Новый альбом Bewitched
+
+<p> Новый альбом Bewitched будет называться "Rise Of The Antichrist". В музыкальном плане он будет выдержан в стиле "Pentagram Prayer". Названия песен таковы: "Touched By Evil", "Hell's Triumph", "The Devil's Children", "The Beast Within", "Victims Of The Cult" и "Prayer Of Desecration".</p>
+
+Автор: Nybras
+
+### 13.09.2000 news New album of Bewitched
+
+<p> The title of the new Bewitched's album will be "Rise Of The Antichrist" and musically it should be in the "Pentagram Prayer"-vein again. Song-titles will be: "Touched By Evil", "Hell's Triumph", "The Devil's Children", "The Beast Within", "Victims Of The Cult" and "Prayer Of Desecration".</p>
+
+Автор: Nybras
+
+### 27.11.2001 news Rise Of The Antichrist...
+
+<p>Sweden’s BEWITCHED will issue their latest studio effort, entitled Rise Of The Antichrist, on January 24th. The full track listing for the album is as follows: <BR><BR> 01. Worship the Fire <BR> 02. Under Satan's Spell <BR> 03. Victim of the Cult <BR> 04. Rise of the Antichrist <BR> 05. Sacrificed in Flames <BR> 06. Hell's Triumph <BR> 07. The Rippers Return <BR> 08. Bewitched by Evil <BR> 09. Prayer of Desecration</p>
+
+Автор: Yermola
+
+### 27.11.2001 news Возвышение Антихриста...
+
+<p>Шведы "BEWITCHED" 24-го января обрадуют любителей блэка новым релизом "Rise Of The Antichrist". Окончательный трек-лист выглядит следующим образом: <BR><BR> 01. Worship the Fire <BR> 02. Under Satan's Spell <BR> 03. Victim of the Cult <BR> 04. Rise of the Antichrist <BR> 05. Sacrificed in Flames <BR> 06. Hell's Triumph <BR> 07. The Rippers Return <BR> 08. Bewitched by Evil <BR> 09. Prayer of Desecration</p>
+
+Автор: Yermola
+
+### 11.11.2002 reviews Blame it on alcohol
+
+<p>Aren’t these guys tired of themselves? Nah. I wish they would be, though. Some dark winter day… The music of BEWITCHED doesn’t have anything to do with darkness or anything pertinent to it. If you asked me to find a word most perfectly characterizing what these Swedes do, I’d say it’s ‘alcohol’. Like ‘sex, drugs and rock’n’roll’, y’know. Although ‘drugs’ should be replaced with ‘alcohol’ or, let’s say ‘pentagram’ (what’s better? You choose ;-)) and ‘rock’n’roll’ – with ‘heavy…’. Oops. It seems like I’m sort of wrong. Even if it’s the same BEWITCHED, the definition won’t be the same anymore. It’s no longer blackish heavy metal. “Rise Of The Antichrist” opens a new era for BEWITCHED, an era of thrashing black metal. Do I like it? Well, see the rating. Will you like it? Well, if ALASTOR stands for ‘gloom’, BEWITCHED stands for ‘spree’. A matter of respect and knowledge of what is black metal and what is not.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 19.05.2005 reviews То, что мы называем настоящим блэком.
+
+<P>Название альбома, оформление, да и сам внешний вид музыкантов сомнений не оставлял. Тру – блэк подумал я и приготовился к худшему. Но все оказалось не так уж и плохо. Да, группа действительно играет блэк металл, но не совсем то, что принято сейчас вкладывать в это понятие. Музыка Bewitched уходит корнями к самому истоку стиля и больше напоминает сырой трэш в духе ранних Venom или Сeltic Frost. Никаких клавиш, только гитарное мясо!</P>
+<P>Отличная возможность поклонникам со стажем послушать музыку, которой они наслаждались в молодости, а юному поколению ознакомиться с предысторией и узнать откуда «растут ноги» у большинства их новоиспеченных кумиров. Хотя, во многих случаях, предпочтительнее слушать оригинал, в лице тех же Venom, например.</P>
+<P>Диск предоставлен СД - Максимум</P>
+Автор: Fucker
+
+### 01.09.2006 news Новости от BEWITCHED
+
+<P>Шведские блэкстеры&nbsp;<B>BEWITCHED</B>&nbsp;наконец-то завершили работу над своим новым полнометражником под названием&nbsp;<B>"Spiritual Warfare"</B>, работа над которым продолжалась более двух лет. Дата релиза - 30 октября на&nbsp;<B>Regain Records</B>. В альбом войдут следующие вещи:<BR><BR>1. <B>Fucked by Fire</B><BR>2. <B>Gracefallen</B><BR>3. <B>Let Darkness Come</B><BR>4. <B>Heisinme</B><BR>5. <B>Black Burning Hatred</B><BR>6. <B>Glorious are the Ways of Death</B><BR>7. <B>Malevolent Force of Destruction</B><BR>8. <B>This is Goodbye...</B><BR>9. <B>My Skin Loves the Steel</B><BR>10. <B>Spiritual Warfare</B><BR></P>
+Автор: Dimas
+
+### 14.07.2008 reviews Красивая стилизация, но нужно что-то ещё
+
+<P>Так получилось, что последний альбом шведов BEWITCHED «попал в план» рядом с новоиспечённой работой британцев VENOM “Hell”. На своей пятой работе “Spiritual Warfare” BEWITCHED продолжили своё поклонение Сатане и VENOM.</P>
+<P>VENOM принято называть предтечами black-metal, но связь между классикой этой группы в лице альбомов “Welcome To Hell” и “Black Metal” и альбомами BELPHEGOR, например, вряд ли кто отыщет. VENOM также похож на современных black-metal’истов, как и MOTORHEAD. «Заслугой» той группы стало то, что чуть ли не впервые в лирике рок-альбома были использованы антихристианские мотивы. Вот в этом родственность этих стилей налицо. BEWITCHED избрали своим ориентиром именно такой материал thrash-black эры начала 80-х. Действительно при прослушивании обозреваемого материала не раз и не два поглощает ностальгия по тем работам, но, к сожалению, качество оригинальной музыки этих шведов не столь высоко, да и специальная гаражная реализация выглядит не как необходимая стилизация для этой музыки, а как намеренное поклонение перед четырёхдорожечными магнитофонами, призванное замаскировать некоторую композиторскую неполноценность самой группы.</P>
+<P>BEWITCHED – молодцы! Мало кто способен на столь отчаянное поклонение своей любимой и старомодной музыке. К сожалению, звучного материала шведам не хватило, и их альбом вгоняет в скуку уже к третьему-четвёртому трэку.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

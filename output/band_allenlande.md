@@ -59,6 +59,70 @@ Magnus Karlsson: Guitar, Bass, Keyboards
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 08.11.2005 reviews О том, как Magnus Karlsson подарил сольник-дуэтник Allen и Lande
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Альбомы, схожие по концепции с <STRONG>ALLEN/LANDE</STRONG> вызывают обычно потоки критики с моей стороны. Вопиющий случай - гитарис<STRONG> Magnus Karlsson</STRONG> из<STRONG> LAST TRIBE</STRONG> сочинил песни, позвал их исполнить отличных вокалистов <STRONG>Jorn Lande</STRONG> (<STRONG>MASTERPLAN</STRONG>) и <STRONG>Russel Allen</STRONG> (<STRONG>SYMPHONY X</STRONG>), назвал группу <STRONG>Allen/Lande</STRONG> и метит в категорию "лучший hard-rock альбом столетия". Называть группу <STRONG>ALLEN/LANDE</STRONG> не стоило, конечно же. Уж больно "пахнет" трезвым расчётом от этой идеи. Я вот, например, был уверен, что <STRONG>Lande</STRONG> с <STRONG>Allen</STRONG> чего-то там вместе на придумывали. Даже подумывал, как это им, при их занятости, удалось. Всё, как всегда, просто оказалось.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лирическое отступление:<STRONG> Frontiers</STRONG>, кстати, начал создавать такие супер-проекты в своих недрах, раньше этим <STRONG>Mascot</STRONG> занимался. Апофеозом станет группа <STRONG>PLACE VENDOME</STRONG>, заманивать вас будут <STRONG>Michael Kiske</STRONG> и <STRONG>Dennis Ward</STRONG>, а патроном проета окажется владелец <STRONG>Frontiers Serafino Perugino</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Но продолжим... Всё это здорово, но альбом оказался очень хорошим. Отличные hard-rock песни, интеллегентные hard-rock песни - это вам не <STRONG>BON JOVI</STRONG> или <STRONG>GOTTHARD</STRONG>. Естественно, эти вещи не могли испортить ни<STRONG> Lande</STRONG>, ни <STRONG>Allen</STRONG>, которые поют то дуэтом, то соло. Отличное концептуальное оформление пластинки тоже стоит отнести к плюсам, диск в руках держать очень приятно.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Прикольно,&nbsp;считать себя умным и развенчать ловкие происки лэйблов-буржуев. В этом случае, мне остаётся только аплодировать. Великолепно продуманный промоушен для очень хорошей пластинки.</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 31.08.2006 news JORN LANDE и RUSSELL ALLEN снова споют вместе
+
+<P>Стартовал процесс записи&nbsp;второй работы&nbsp;совместного проекта вокалистов <STRONG>Jorn Lande</STRONG> (<B>MASTERPLAN</B>, <B>YNGWIE MALMSTEEN</B>)&nbsp;и <B>Russell Allen</B> (<B>SYMPHONY X</B>). Подборку песен для них снова подготовил <B>Magnus Karlsson</B> (<B>LAST TRIBE</B>, <B>STARBREAKER</B>). Альбом будет называться <B>"The Revenge",&nbsp;</B>среди уже известных названий песен&nbsp;<B>"Victory"</B>, <B>"The Revenge"</B>, <B>"Who Can You Trust"</B>, <B>"Wake Up Call"</B>, <B>"Gone Too Far"</B>&nbsp;и <B>"Under The Waves"</B>. Офрмлением альбома занимается <B>Rodney Matthews</B> (<B>DIAMOND HEAD</B>, <B>MAGNUM</B>, <B>PRAYING MANTIS</B> etc.). Выход диска ожидается в начале 2007 года на <B>Frontiers Records</B>.<BR></P>
+Автор: Dimas
+
+### 23.03.2007 news ALLEN&#x2F;LANDE в мае
+
+<P>Новый альбом <STRONG>ALLEN/LANDE "The Revenge"</STRONG> выходит 11 мая на<STRONG> Frontiers</STRONG>. Музыку сочинил, как и на предыдущем опусе "<STRONG>The Battle</STRONG>" <STRONG>Magnus Karlsson</STRONG> (<STRONG>LAST TRIBE</STRONG>). Трэк-лист:</P>
+<P><IMG height=202 alt="" hspace=0 src="/images/news_rus/2007.03/11501.jpg" width=400 align=right border=5>1. <STRONG>The Revenge </STRONG>(vocals: Jorn and Russell)<BR>2. <STRONG>Obsessed</STRONG> (Russell)<BR>3. <STRONG>Victory</STRONG> (Jorn and Russell)<BR>4. <STRONG>Master Of Sorrow</STRONG> (Jorn)<BR>5. <STRONG>Will You Follow</STRONG> (Russell)<BR>6. <STRONG>Just A Dream</STRONG> (Jorn and Russell)<BR>7. <STRONG>Her Spell</STRONG> (Jorn)<BR>8. <STRONG>Gone Too Far</STRONG> (Russell)<BR>9. <STRONG>Wake Up Call</STRONG> (Jorn and Russell)<BR>10. <STRONG>Under The Waves</STRONG> (Jorn)<BR>11. <STRONG>Who Can You Trust</STRONG> (Jorn and Russell)<BR>12. <STRONG>When Time Doesn't Heal</STRONG> (Jorn and Russell)</P>
+Автор: Vit Belov
+
+### 18.07.2007 reviews Лучшие мелодичные песни в современном hard’n’heavy
+
+<P>И вновь Magnus Karlsson (LAST TRIBE) поражает своим альбомом в самое сердце. Интересно, что за годы прошедшие с выхода дебютной пластинки этого проекта Magnus успел поучаствовать в нескольких подобных альбомах, но нигде его талант мелодиста не проявлялся так глубоко. ALLEN/LANDE можно смело назвать любимым на сегодня детищем музыканта.</P>
+<P>Меня всегда интересовало, как подобные многостаночники отбирают вещи для различных альбомов. Конечно, если альбомы в разных жанрах тяжёлой музыки, можно предположить, как этот отбор происходит. В случае же с Карлссоном мы имеем целый ряд композиторских проектов в стиле мелодичного hard’n’heavy. Я думаю, что для Йорна и Рассела мультиинструменталист бракует все нехитовые, и все сложные песни. Магнус, имея в распоряжении два таких харизматических и сильных голоса, может смело играть в классиков хард-рока и представлять себя Ричи Блэкмором. Ему легко удаются классические мелодичные боевики и лирические баллады, за которые не стыдно было бы ни WHITE SNAKE, ни RAINBOW, а голоса двух вокалистов лишь подчёркивают общее сходство. Не даром того же Ланде признают Ковердэйлом наших дней, а Аллен в некоторых местах легко «перепевает» Дио, например. </P>
+<P>Эта музыка имеет ещё одну важную особенность, она после первого же прослушивания попадает в мозг и не выходит оттуда. Вы будете подпевать певцам уже при первом прослушивании, настолько все мелодические решения логичны и гармоничны. Отсюда, правда, вылезает единственный недостаток альбома, он ОЧЕНЬ мелодичен, кому-то покажется, что даже слишком.</P>
+<P>В любом случае работа Магнуса Карлссона заслуживает высшего балла. Я думаю, этот композитор пришёл надолго, ведь уже появляются его персональные фанаты, готовые знакомиться со всеми проектами шведа, включая и основной коллектив музыканта LAST TRIBE.</P>
+Автор: Vit Belov
+
+### 01.08.2007 news Magnus Karlsson порвёт всех
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Автор альбомов <STRONG>ALLEN/LANDE</STRONG>, <STRONG>LAST TRIBE</STRONG> и <STRONG>STARBREAKER</STRONG> гитарист <STRONG>Magnus Karlsson</STRONG> пишет свою новую работу. На этот раз исполнять его хиты будет бывший фронтмэн <STRONG>Yngwie Malmsteen Mark Boals</STRONG>.&nbsp;Эта рабта будет более тяжёлой, чем последние пластинки от Магнуса.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Также мультиинструменталист изучает кельтскую&nbsp;музыку, чтобы написать материал для шестого сольника вокалиста <STRONG>MAGNUM Bob Catley</STRONG>.</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 08.05.2010 news ALLEN&#x2F;LANDE в сентябре
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Два знаменитых вокалиста <STRONG>Russel Allen</STRONG> (<STRONG>SYMPHONY X</STRONG>) и<STRONG> Jorn Lande</STRONG> (<STRONG>JORN, MASTERPLAN</STRONG>) закончили работу над третьим совместным альбомом <STRONG>ALLEN/LANDE "The Showdown"</STRONG>, который выйдет в сентябре на <STRONG>Frontiers Records</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 18.09.2010 news ALLEN &#x2F; LANDE выйдет в ноябре
+
+<P><IMG height=213 alt="" hspace=0 src="/images/news_rus/2010.09/17196.jpg" width=240 align=right border=5>Новый альбом проекта <STRONG>ALLEN / LANDE "The Showdown" </STRONG>выйдет 5 ноября на <STRONG>Frontiers</STRONG>. Сведением пластинки занимался <STRONG>Achim Kohler</STRONG> (<B>PRIMAL FEAR</B>, <B>SINNER</B>, <B>SILENT FORCE</B>), а всю музыку вновь сочинил <STRONG>Magnus Karlsson</STRONG> (<B>PRIMAL FEAR</B>, <B>STARBREAKER</B>, <B>LAST TRIBE</B>). </P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Это уже третий альбом проекта, нам вновь обещают гипермелодичный hard rock.</FONT></P>
+Автор: Vit Belov
+
+### 22.09.2010 news Новый клип ALLEN&#x2F;LANDE
+
+<P>Новое видео проекта <STRONG>ALLEN/LANDE</STRONG> на песню <STRONG>"Judgement Day" </STRONG>можно посмотреть ниже. Как уже сообщалось, новый третий альбом этой группы <STRONG>"The Showdown" </STRONG>выйдет 5 ноября на<STRONG> Frontiers</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=385 width=480><PARAM NAME="movie" VALUE="http://www.youtube.com/v/E60LkuqedMc&ap=%2526fmt%3D22"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowscriptaccess" VALUE="always">
+<embed src="http://www.youtube.com/v/E60LkuqedMc&ap=%2526fmt%3D22" type="application/x-shockwave-flash" allowscriptaccess="always" allowfullscreen="true" width="480" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 28.02.2011 reviews Продолжение популярной серии альбомов
+
+<P>Проект ALLEN/LANDE продолжает своё успешное существование. Созданный в 2005 году лэйблом Frontiers Records этот дуэт выпускает уже третий альбом. В основе успеха формации лежит большой талант композитора Magnus Karlsson (ныне PRIMAL FEAR) и харизматические голоса Jorn Lande (MASTERPLAN) и Russel Allen (SYMPHONY X).</P>
+<P>Мы уже неоднократно рассказывали, как итальянский лэйбл Frontiers разводит эти группы в своей конюшне. Берётся талантливый композитор-мультиинструменталист, который бережно сочиняет музыку для известного певца, готовя ему тем самым сольник. Magnus Karlsson, например, кроме Allen/Lande, делал Kiske/Sommerville, Tony O’Hora, последний Bob Catley и CODEX с Mark Boals. Где-то получается лучше, где-то хуже, но объединяет эти альбомы одно – большой коммерческий потенциал. На обложках имена, под обложкой качественная музыка без ненужных экспериментов, дальше только субъективное мнение слушателей решит, каков статус пластинки, все внешние атрибуты заставят обратить на альбом внимание, это главное. Предыдущие два ALLEN/LANDE – это, пожалуй, лучшее, что выходило на Frontiers под этой эгидой, поэтому третий альбом “The Showdown” все ждали с нетерпением. И претензий к нему не может быть никаких. Поклонники предыдущих альбомов дуэта получат всё, что ожидают, а это главное. Мне альбом показался немного более лиричным, а от того более скучным, но это, как говорится, «субъектив». В «объективе» качественно реализованный мелодичный hard-rock с отличными вокалами.</P>
+<P>Пластинка для поклонников предыдущих двух альбомов ALLEN/LANDE. Я же посоветую сначала ознакомиться с первыми двумя, если их читатель ещё не слушал. Тогда и “The Showdown” будет прослушан с большим удовольствием.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

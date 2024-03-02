@@ -37,6 +37,32 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.09.2010 news Новый альбом и клип поляков CRYSTAL VIPER
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.09/17293.jpg" width=350 height=350>"<STRONG>Greed Is Blind</STRONG>", — новое видео польской группы <STRONG>CRYSTAL VIPER</STRONG>, за вокал в которой отвечает девушка по имени <STRONG>Marta Gabriel</STRONG> (кличка "<STRONG>Leather Wych</STRONG>"), можно посмотреть по ссылке ниже.</P>
+<P><BR>Данный трек войдёт на альбом "<STRONG>Legends</STRONG>", который планируется к выпуску 22 октября на <STRONG>AFM Records</STRONG>. Вся лирика на этом альбоме основана на польских сказаниях времён Средних веков. Обложку для альбома нарисовал известный французский художник <STRONG>Chris Moyen </STRONG>(<A href="http://www.chrismoyen.com/">www.chrismoyen.com</A>), который прежде работал со <STRONG>SLAYER</STRONG>, <STRONG>TRIVIUM</STRONG>, <STRONG>BEHERIT</STRONG> and <STRONG>BLASPHEMY</STRONG>.</P>
+<P>Клип: <A href="http://www.youtube.com/watch?v=kKz2nlqMYBM">http://www.youtube.com/watch?v=kKz2nlqMYBM</A></P>
+Автор: Headcrusher
+
+### 07.06.2012 news Видео-клип CRYSTAL VIPER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню <STRONG>"Witch's Mark"</STRONG> <STRONG>CRYSTAL VIPER</STRONG> можно посмотреть ниже. Трек взят с последнего альбома коллектива <STRONG>"Crimen Excepta"</STRONG>, который вышел на <STRONG>AFM</STRONG> в конце апреля.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><iframe width="640" height="360" src="http://www.youtube.com/embed/jDY5Ojt2EKQ?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 31.08.2016 news CRYSTAL VIPER возвращаются
+
+<p>После четырёхлетнего перерыва польская heavy metal банда <strong>CRYSTAL VIPER</strong> возвращается с новым альбомом "<strong>Queen Of The Witches</strong>". Перерыв в деятельности группы был вызван операцией на носе вокалистки <strong>Marta Gabriel</strong>, что ставило под вопрос её дальнейшую творческую деятельность.</p><p>Альбом выйдет на <strong>AFM</strong> 17 февраля. Продюсером работы выступил <strong>Bart Gabriel</strong>, а сведение и мастеринг сделал <strong>Mariusz Pietka</strong> (JACK STARR'S BURNING STARR, LONEWOLF, MORTICIAN). Обложку нарисовал <strong>Andreas Marschall</strong> (RUNNING WILD, BLIND GUARDIAN, KREATOR).</p><p>&nbsp;<center><img width="550" height="550" src="/images/news_rus/2016.08/29892.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 31.08.2016 news CRYSTAL VIPER are back!
+
+<p>The Polish Heavy Metallers <strong>CRYSTAL VIPER</strong> are returning after a 4 year absence, which was caused by the health issues relating to the band's front woman and founder,<strong> Marta Gabriel</strong>, and which placed the future of CRYSTAL VIPER into question (last year Marta underwent surgery of her nasal and facial sinuses). "The witch is back" however, sounding stronger, heavier and louder than ever before...!</p><p>On February 17, 2017,<strong> AFM RECORDS</strong> will release CRYSTAL VIPER's new concept album entitled "<strong>Queen Of The Witches</strong>". The album, which will be available as a limited edition vinyl LP, CD and digital download, has been produced by <strong>Bart Gabriel</strong> - producer known for his collaboration with acts such as CIRITH UNGOL, MYTHRA and SACRED STEEL (and within their private lives, Marta's husband), and engineered and mixed by <strong>Mariusz Pietka</strong> (JACK STARR'S BURNING STARR, LONEWOLF, MORTICIAN). The album's cover artwork has been created by the legendary German artist, <strong>Andreas Marschall</strong> (RUNNING WILD, BLIND GUARDIAN, KREATOR). The first single from the new album will be entitled "The Witch Is Back", and will be available in December. On February 18, 2017, the band will play an exclusive headlining live show in Munich, Germany, at the Heavy Metal Calling Festival, which will be an official release party for the new album.</p><p>&nbsp;<center><img width="550" height="550" src="/images/news_rus/2016.08/29892.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

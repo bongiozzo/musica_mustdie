@@ -75,6 +75,454 @@ Dy - Guitars
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 05.09.2000 reviews Да есть уже (ещё) достойные музыканты и в наших селениях
+
+<p>Да есть уже (ещё) достойные музыканты и в наших селениях. Безумно интересный альбом. Музыка чрезвычайно разнообразная. Временами black-metal, временами doom, иногда death, много готических элементов, есть и отголоски progressive-metal. Много чистого вокала, немного шипящего black-voice и grawling. Потрясающая и глубокая клавишная атмосфера, постоянные трели флейты, сдвоенные временами барабаны, акустическо-клавишные интродукции - составляющие этого диска. Все настолько красиво и слушается с неподдельным интересом и вниманием. Музыка Rakoth очень сильна. Это пожалуй один из пятерки сильнейших российских метал-актов. В этом году никто из наших команд не выпускал более сильного и качественного материала. Оригинальнейшая смесь самых различных тяжелых музыкальных стилей.Очень советую приобрести этот шедевр dark-metal.</p>
+
+Автор: Dimas
+
+### 29.01.2001 news Black Metal from Russia
+
+<p>Российский блэк-металлический акт RAKOTH завершил запись своего второго альбома "Jabberworks", который будет выпущен на Digipack-CD «Code666 Records». В записи альбома также участвовали московский "Russian Grotesque Live Orchestra". В настоящее время первый альбом команды "Planeshift" издан по лицензии в России (Irond Records) и уже успел получить отличную оценку в нашем издании. Официальный трек лист: 1.Dying Realm 2.A Passing in the Ethereal 3.Insurgent One 4.Story of the NAmeless 5.Farewell 6.Brightless 7.Return Of The Nameless 8.Diamond Angel 9.Der Jammerwoch</p>
+
+Автор: Yermola
+
+### 29.01.2001 news Black Metal from Russia
+
+<p>RAKOTH (Russia) just finished the recording of their second album titled "Jabberworks", which will be soon released on Digipack-CD by code666. The "Russian Grotesque Live Orchestra" from Moscow helped them during the recording sessions, adding a Real Orchestral Touch to the Rakoth-Metal of the band! they recorded also a special Bonus track titled "L' Honglath/Facing the Calm" which will be included in the forthcoming Compilation-CD "Better Undead Than Alive" out on code666 in May... in the meantime, the highly acclaimed first album "Planeshift" was released under license in ex-USSR countries by Irond Records, getting immediately a massive positive feedback from the fans, bringing Rakoth among the most known and respected Metal acts of their Country. Official Track-list : 1.Dying Realm 2.A Passing in the Ethereal 3.Insurgent One 4.Story of the NAmeless 5.Farewell 6.Brightless 7.Return Of The Nameless 8.Diamond Angel 9.Der Jammerwoch</p>
+
+Автор: Yermola
+
+### 31.05.2001 bios Rakoth
+
+<p>В сентябре 1996 был сформирован первый состав. В группу входили Леший (drums), Илья (guitars) и Фашист (vox). Первое название - BEDEVIL. Через две недели ним присоединился вокалист и клавишник Рустам, с ним пришел басист Miguel "Слепой". Рустам и предложил сменить название на "Ракот" ( Rakoth ). К концу 1996 состав группы был окончательно укомплектован с приходом Black в качестве вокалиста с "нормальным" голосом и сменой басиста на Den. Вся музыка была написана Рустамом и Ильей, стихи - Рустамом. Теперь у группы был свой звук - чистый голос Black и клавишные Рустама. Первой их песней стала "Return of the Nameless" (первый вариант), которая стала известна в пределах Обнинска даже задолго до первого концерта. В феврале 1997 - первый концерт с техно-дестерами DISSENTER в рамках фестиваля "Rock against chemical dependence". Нет необходимости говорить, что все (в том числе и некоторые члены группы) при этом сильно напились :-) . Тем не менее, концерт прошел очень успешно. Публика как будто даже узнала "Ракот", хотя до этого ни записи не продавались, ни концертов не было. Были исполнены ранние композиции - "Return of the Nameless", "Unholy Temple", "One Step Beyond" (позже переделанную в "Beyond"), "Dying Realm" и композицию группы STORM "Nagellstev". В марте 1997 в группе возникли противоречия. Rustam решил уйти, о таком же желании заявляют Леший и Фашист. Группа стремительно распадается. Фашист, Леший и Илья формируют GORBUG и играют там black metal. В мае 1997 Rustam решает основать новую группу и приглашает Black и Den. Они планируют исполнять doom metal, смешанный с элементами других стилей. Одновременно распадается группа DISSENTER и гитарист/вокалист Dy Dy, желая играть более интересную музыку, чем death metal, оттуда перебирается в новый состав по приглашению Den. У группы пока нет названия, зато есть состав: Rustam - keys & voice, Black - voice, Den - bass, Dy - guitars. Леший предложил свою помощь в качестве ударника. Репетируют в гараже Рустама. Июнь 1997 - группа ищет себе название - варианты MEPHISTO, UNBORN, TEARS, DOWNFALL, IN THIS ROOM никого не удовлетворяют. И тогда Dy снова предлагает старое название RAKOTH. Учитывая, что группа с этим названием больше не существовала, а придумал его Рустам, на этом и остановились. Июль 1997 - Леший стал официальным участником RAKOTH. Первое демо "Tales of the Worlds Unreal" пишут прямо в гараже. Август 1997 - запись дают послушать А.Арзамасцеву, главе Arzamascev's Music Center (позже - Signal Studios). Он дает группе возможность бесплатно записаться в его студии. Демо "Dark Ages Chronicle" записывают живьем, не перемикшируя, за 4 часа. Качество звука, однако, таково, что никто не верит, что все было именно так. Рустам начинает рассылать его, куда только можно. Сентябрь 1997 - сольный концерт. Как и в первый раз, их принимают хорошо. Октябрь 1997 - Леший вдруг оставляет RAKOTH. Теперь с Фашистом (теперь Tuur) и Ильей (теперь Vuulko) они играют в группе TEMNOZOR "true" pagan metal. Февраль 1998 - первая рецензия на "Dark Ages Chronicle" в VAE SOLIS web-zine. Позитивная, как и все последующие! Март 1998 - латвийский лейбл начинает заниматься дистрибуцией "Dark Ages Chronicle". Апрель 1998 - Рустам задумывает сольный проект UMBRAL PRESENCE для создания чего-то более агрессивного, чем RAKOTH. Июнь 1998 - еще один латвийский дистрибьютор, Beverina Productions, начинает заниматься продажами "Dark Ages Chronicle". Август 1998 - группа садится в Signal Studios для записи нового альбома. Записи начались в тот же день, что и год назад записи "Dark Ages Chronicle" - 18 августа. Спустя неделю они могли радоваться - первый полный альбом (57 min) "Superstatic Equilibrium" был готов. Тогда же Рустам записал демо UMBRAL PRESENCE - "et germinet Chaos". Обе записи послали на Elven Witchcraft. Ноябрь 1998 - "Superstatic Equilibrium" и "et germinet Chaos" официально продаются через Elven Witchcraft. Апрель 1999 - "Code666" заинтересовались RAKOTH. Rustam посылает "Superstatic Equilibrium" в Италию. Июнь 1999 - "Code666" предлагают контракт. Август 1999 - контракт на один альбом подписан. Октябрь 1999 - группа в CDM Studio в Moscow начинает запись "Planeshift". Январь 2000 - итальянцы заключают контракт с Imperial Records и лицензируют "Planeshift" для USA! Американская версия выходит в марте 2000. Март 2000 - Planeshift получает 100/100 от Aardschok Magazine (Голландия) & 6/6 в Scream Magazine (Норвегия), и множество других положительных рецензий. Апрель 2000 - новый контракт с Code666 еще на два альбома. Май - Июнь 2000 - работа над материалом для нового альбома. Октябрь 2000 - заключен контракт с российским Irond Ltd., и этот альбом теперь доступен и в России. Конец 2000 года, начало 2001 - завершена запись альбома "Jabberworks", который будет выпущен на "Code666 Records". В записи альбома также участвовал московский оркестр "Гротеск". В альбом вошел переработанный старый материал и часть нового.</p>
+
+Автор: Yermola
+
+### 01.10.2001 reviews Новый альбом Rakoth
+
+<p>Вот и вышел новый альбом наших земляков Rakoth. Выпущен он на том же итальянском лэйбле Code666, как и предыдущая их работа. Песни, представленные на Jabberworks написаны в абсолютно разное время - с 1997 по 2000 год, тем не менее в общем они представляют довольно целостную картину. Нельзя выделить какие-то отдельные песни - нужно слушать все целиком. Rakoth не ограничивают себя какими-либо стилистическими рамками - в их музыке можно услышать элементы блэка, дума, фолковые фрагменты, разнообразный вокал, много струнных, духовых и клавишных инструментов. Музыка довольно сложна по построению, но в целом все слушается легко, интересно. Песни Rakoth завораживают, оставляют сильное впечатление. На мой взгляд этот альбом сильнее прошлого, хотя многие вещи более старые. Хочется отметить также очень красивое оформление буклета и отличное качество записи.</p>
+
+Автор: Vic Thor
+
+### 17.10.2001 news New contract of RAKOTH
+
+<p>Elitist Records, the new division of Earache, are very proud to announce the signing of Russian avant-garde metal maestros Rakoth. The band has signed a four-album deal and begins work on a brand new, as yet untitled, album in the New Year. The band is a firmly established name on the underground after two successful albums on Italian label Code666 - including the immense "Planeshift" album which received an unprecedented 100/100 in Dutch Aardshock magazine in 2000. The band take elements of folk, black metal and experimentalism and fuse them to unique effect. Expect only the very best from this band. They truly are an exceptional talent. More information about what to expect from Rakoth's new album will be available in the next few weeks</p>
+
+Автор: Dimas
+
+### 17.10.2001 news Новый контракт RAKOTH
+
+<p>Elitist Records - новое отделение Earache, подписали российских авангардистских металлических маэстро Rakoth. Группа подписала контракт на четыре альбома и начинает работу над совершенно новым, пока еще без названия альбомом в самом начале 2002 года. Команда уже завоевала себе имя в мировом андерграунде после двух успешных альбомов выпущенных итальянским лэйблом Code666 - включая полнометражный альбом "Planeshift", который получил беспрецедентные 100 из 100 баллов в Aardshock magazine в 2000 году. Команда использует элементы фолк-музыки, black metal и идет на многие эксперименты, чтобы в результате прийти к уникальному результату. От этой команды можно ожидать только лучшего. Они исключительно талантливы.</p>
+
+Автор: Dimas
+
+### 07.01.2002 reviews О, бойся Бармаглота, сын!
+
+<p>Эпиграф: <BR><BR> "О бойся Бармаглота, сын<BR> Он так свирлеп и дик,<BR> А в глуше рымит исполин - <BR> Злопастный Брандашмыг..." <BR> <BR> Очень и очень неординарный альбом! Трудно даже просто подобрать название для этого стиля... Я бы назвал это: "пост-блэк-с-элементами-дума-и-атмосферности". <BR> Необычные инструменты не только для блэка, но и для металла вообще! Флейта, струнные, клавиши - все это конечно можно услышать и у других групп, но не в данном контексте. Достойные представители хэви-культуры СНГ на Западе. Да, и многие "забугорные" исполнители не отказались бы от авторства такой музыки. <BR> О блэковом прошлом напоминают только периодические тремоло гитариста. В отличие от предыдущих работ, почти весь альбом звучит "чистый" голос вокалиста P.Noir, а Рустам вместо хрипа занимается клавишами. <BR> Если описать одним словом этот опус, то это будет: ОРИГИНАЛЬНО! <BR> Портят картинку (на мой взгляд) и снижают оценку - "битые" барабаны...</p>
+
+Автор: Yermola
+
+### 13.03.2002 news Код 666...
+
+<p>Итальянцы CODE 666 подписали сделку с Necropolis Records о дистрибуции релизов лейбла в США и Южной Америке. Таким образом Новый Свет скоро увидит альбомы россиян "Rakoth" и многие другие интересные вещи...</p>
+
+Автор: Yermola
+
+### 28.03.2002 news Rakoth are currently recording their album.....
+
+<P>Russian metallers Rakoth are currently recording their first album for England's Elitist Records. </P></>
+<P> </P></>
+<P>"The only thing I can say is that it's definitely less "fantasy" or "medieval" sounding than the previous albums," revealed Rakoth mainman Rustam. "Personally, I thought that it's absolutely different from what we did before but when I just let some various (independent) people listen to those unfinished pieces they all said, "pure Rakoth!" Maybe it is the same "epic" and pompous vein... I think new material is more like Planeshift than Jabberworks. Though, of course, it differs a lot from both." </P></>
+<P> </P></>
+<P>Elitist currently has Rakoth's as-yet-untitled new album scheduled for a summer 2002 release. We'll have more on Rakoth as it happens. </P></>
+
+Автор: Yermola
+
+### 15.05.2002 news &quot;Planeshift&quot; готовится к переизданию на Elitist Records ....
+
+<p>Альбом "Planeshift" готовится к переизданию на Elitist Records (подразделение Earache). Пластинка будет издана в digi-pac оформлении и ремастированная Tim Turan (Opeth, Emperor). В июне группа войдёт в студию для записи альбома с ориентировочным названием "Tiny Deaths".</p>
+
+Автор: Yermola
+
+### 16.05.2002 news Russian metal stars Rakoth news....
+
+<p>The album "Planeshift" out soon. The re-issue of this masterpiece will be in the shops complete with brand-new digipac artwork and a full re-mastering job courtesy of Tim Turan at Turan Audio (Opeth / Emperor, etc). In other Rakoth news, the band enters the studio in June to record their brand new album, tentatively entitled "Tiny Deaths". The band promises an overall progression in sound and quality, but will remain steadfast to the Rakoth ethic. Expect only the finest from this incredible band.</p>
+
+Автор: Yermola
+
+### 06.08.2002 news Наши за рубежом
+
+<p>На Elitlist records (подразделение Earache) осенью 2002 года выйдут альбомы двух российских команд.</p>
+<p> Это третий альбом группы RAKOTH под названием "Tiny Deaths" и содержащий следующие вещи:</p>
+<P> 1. Into <BR> 2. The Crypt / Planekeep <BR> 3. Dawn <BR> 4. Trust This<BR> 5. Edge <BR> 6. June 3 <BR> 7. Horizon <BR> 8. Just Another Lament <BR> 9. Tiny Deaths</>
+<p> А также, альбом группы FOREST STREAM под названием "Tears Of Mortal Solitude", включающий в себя следующие трэки:</p>
+<p> 1) Autumn Elegy<BR> 2) Legend <BR> 3) Last Season Purity<BR> 4) Snowfall<BR> 5) Mel Kor <BR> 6) Whole <BR> 7) Black Swans<BR> 8) Winter Solstice<BR> 9) Steps Of Mankind</p>
+<p> Обложку этого альбома можно посмотреть <A HREF="http://www.mmz.ru/fs/cover.jpg">здесь</A></p>
+
+Автор: Dimas
+
+### 19.08.2002 news Новости Elitist Records
+
+<p>Elitist Records - подразделение лейбла EARACHE, специализирующееся на современном "state-of-the-art" и "cutting-edge" андеграундном металле.</p>
+<P>ELITIST заключили контракт с WOLVERINE. Шведские прог-металлеры Wolverine заключили с лейблом Elitist сделку на запись 4 альбомов. Работа над дебютом для Elitist начнется в конце 2002 года. Группа уже выпустила два альбома -"Fervent Dream" и "The Window Purpose". Последний получил статус "Альбом месяца" издания Aardschok. Wolverine - исключительно молодая и талантливая группа, одаренная как в плане идей, так и музыкально. Их традиционно звучащий прогрессивный метал изрядно сдобрен влиянием дет-металлических корней коллектива.</>
+<P>Дебютный альбом LUNARIS на выходе. Дебютный альбом "...The Infinte" от Lunaris - новой надежды норвежского прогрессивного блэк-дет метала выходит 16 сентября. Lunaris - полноценный работающий музыкальный коллектив, со своими амбициями и планами, и они готовы стать реальной движущей силой на металлической сцене. С их музыкальной искушенностью, квалификацией, опытом и мастерством - занятие ведущих позиций на андеграундной металлической сцене должно стать простой формальностью.</>
+<P>FOREST STREAM заканчивают работу над альбомом. Российское трио заканчивает работу над своим дебютным альбомом "Tears Of Mortal Solitude". Он будет включать 11 треков .Максимально темный, величественный, эпический black-металл.</>
+<P>RAKOTH завершают работу над пластинкой. "Tiny Deaths" - третий студийный альбом Rakoth - близок к завершению. Сейчас группа записывает большее количество материала, чем может войти в альбом. В настоящий момент трек-лист будущего альбома выглядит так:</>
+<P> 1. Into 2. The Crypt / Planekeep 3. Fevered 4. Dawn 5. Trust This 6. Edge 7. June 3 8. Horizon 9. Just Another Lament 10. Vicious Life 11. Tiny Deaths</>
+<P>Группа предприняла более атмосферный, почти Avant-экспериментальный подход к песням нового альбома. При этом сохранено оригинальное звучание Rakoth. Хотя некоторые из поклонников их традиционного стиля могут быть несколько обескуражены.</>
+<P>EPHEL DUATH завершают работу над своим демо. Итальянцы Ephel Duath завершили работу над своими новыми демо-записями, сработанными в режиме "живьем в студии". Группа писалась в своем новом составе. Эта запись - подготовка к записи будущего альбома "Painter's Palette". В состав группы входят 2 музыканта, которые параллельно работают в группах, исполняющих свободный джаз. Это отражается на музыке Ephel Duath и делает ее более органичной, сумасшедшей, более слоистой и многомерной чем прежде. Ephel Duath берет курс в сторону экстремального и нелогичного Avant-металла. Примерно как "Темной-темной ночью Naked City навещают Emperor и они вместе записывают альбом". Новый шаг в направлении black metal.</>
+<P>WITHOUT FACE планируют европейский тур. Венгерские герои прогрессив-металла Without Face планируют организовать несколько европейских шоу до конца этого года. В адрес своего последнего альбома "Astronomicon" группа получила богатый урожай хвалебных отзывов, рецензий и обзоров. В том числе титул "альбом месяца" британского издания Metal Hammer.</>
+
+Автор: Kai Mathias Stalhammar
+
+### 08.04.2003 news Rakoth follow their own path exclusively...
+
+<p>Tiny Deaths, the third album from these Avant-garde Russian experimentalists will also be released on the 19th May. <BR><BR> It's a daring album, one borne of contempt for convention and nurtured with a genuine sense of originality. Rakoth take you into their own mesmerizing, mind-expanding world with this release. They're a band totally committed to pushing back the boundaries of art.<BR><BR> Guaranteed to divide fans and critics alike, Tiny Deaths proves one thing: Rakoth follow their own path exclusively, regardless of trends.</p>
+
+Автор: Yermola
+
+### 09.04.2003 news Новости от Elitist Records
+
+<p>Окончательно определилась дата выхода нового альбома обнинской группы RAKOTH "Tiny Deaths". Третья работа музыкантов-авангардистов-экспериментаторов выйдет 19 мая 2003 года.</p>
+<P> WOLVERINE закончили запись своего третьего альбома "Cold Light Of Monday". Материал альбома радикально отличается от предыдущего творчества группы. Выход его намечен на июнь 2003 года.</>
+<P> Вскоре выходит дебютный альбом многообещающей финской группы FARMAKON под названием "A Warm Glimpse". Группа играет довольно оригинальный и высокотехничный melodic death metal.</>
+
+Автор: Dimas
+
+### 17.04.2003 news Маленькие смерти...
+
+<p><IMG SRC="/images/news_rus/2003.04/4071.jpg" ALT="pho" width=229 height=229 hspace="15" vspace="5" border="1" align="right"> 19 мая EARACHE (в лице подразделения Elitist Records) и соответственно, SOYUZ MUSIC выпускают новый студийный (второй по счету) альбом Rakoth - "TINY DEATHS"<BR><BR> Треклист:<BR><BR> 1. Into<BR> 2. Planekeep - The Crypt<BR> 3. Fevered<BR> 4. Dawn<BR> 5. Trust This<BR> 6. Edge<BR> 7. Horizon<BR> 8. Vicious Life<BR> 9. June 3<BR> 10. Just Another Lament<BR> 11. Tiny Deaths<BR><BR> Как и ранее эта cтранная, причудливая и эксцентричная folk/orchestral/metal-формация из России нарушает все стилистические рамки и границы. "Tiny Deaths" – без сомнения, наиболее авангардный релиз Elitist на сегодняшний день. Лучшие отправные точки для описания альбома – ранний Mortiis, зрелый Opeth, Dillinger Escape Plan, ранний Ulver и даже Manowar!<BR><BR> Издание "TINY DEATHS" – Вы уже можете заказать в торговом отделе Концерна "Группа СОЮЗ". Премьера треков с нового альбома – в мае месяце, на волнах радио УЛЬТРА, в рамках программы ЗА ГРАНЬЮ.</p>
+
+Автор: Yermola
+
+### 30.09.2003 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2003 года
+
+<TABLE cellSpacing=0 cellPadding=2 width=867 border=0>
+<TBODY>
+<TR>
+<TD width="8%" height=17>1</TD>
+<TD align=left width="26%" height=17><B>DIMMU BORGIR</B></TD>
+<TD align=left width="37%" height=17><B>DEATH CULT ARMAGEDDON +1 bonus track</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>sympho-black metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>2</B></TD>
+<TD align=left width="26%" height=17><B>DARKSEED</B></TD>
+<TD align=left width="37%" height=17><B>ASTRAL ADVENTURES</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>3</B></TD>
+<TD align=left width="26%" height=17><B>RAGE </B></TD>
+<TD align=left width="37%" height=17><B>SOUNDCHASER</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>power-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>4</B></TD>
+<TD align=left width="26%" height=17><B>ROB ROCK</B></TD>
+<TD align=left width="37%" height=17><B>EYES OF ETERNITY</B></TD>
+<TD align=left width="10%" height=17><B>AMG</B></TD>
+<TD align=left width="19%" height=17><B>heavy-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>5</B></TD>
+<TD align=left width="26%" height=17><B>DGM</B></TD>
+<TD align=left width="37%" height=17><B>HIDDEN PLACE</B></TD>
+<TD align=left width="10%" height=17><B>CD-MAX</B></TD>
+<TD align=left width="19%" height=17><B>prog-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>6</B></TD>
+<TD align=left width="26%" height=17><B>SHAMAN</B></TD>
+<TD align=left width="37%" height=17><B>SHAMANIAC</B></TD>
+<TD align=left width="10%" height=17><B>IROND -DD</B></TD>
+<TD align=left width="19%" height=17><B>folk-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>7</B></TD>
+<TD align=left width="26%" height=17><B>ARCTURUS</B></TD>
+<TD align=left width="37%" height=17><B>ASPERA HIEMS SYMFONIA&CONSTELLATION&MY ANGEL</B></TD>
+<TD align=left width="10%" height=17><B>Irond </B></TD>
+<TD align=left width="19%" height=17><B>sympho-black-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>8</B></TD>
+<TD align=left width="26%" height=17><B>QNTAL </B></TD>
+<TD align=left width="37%" height=17><B>III TRISTAN UND ISOLDE</B></TD>
+<TD align=left width="10%" height=17><B>Irond</B></TD>
+<TD align=left width="19%" height=17><B>darkwave</B></TD></TR>
+<TR>
+<TD width="8%" height=17><B>9</B></TD>
+<TD align=left width="26%" height=17><B>SKID ROW</B></TD>
+<TD align=left width="37%" height=17><B>THICKSKIN</B></TD>
+<TD align=left width="10%" height=17><B>Soyuz</B></TD>
+<TD align=left width="19%" height=17><B>hard-rock</B></TD></TR>
+<TR>
+<TD align=left width="8%" height=17><B>10 (22)*</B></TD>
+<TD align=left width="26%" height=17><B>POISONBLACK</B></TD>
+<TD align=left width="37%" height=17><B>EXCAPEEXTASY</B></TD>
+<TD align=left width="10%" height=17><B>Fono</B></TD>
+<TD align=left width="19%" height=17><B>gothic-metal</B></TD></TR>
+<TR>
+<TD width="8%" height=17>11</TD>
+<TD align=left width="26%" height=17>COVERED IN FILTH</TD>
+<TD align=left width="37%" height=17>A TRIBUTE TO CRADLE OF FILTH</TD>
+<TD align=left width="10%" height=17>Irond-DD</TD>
+<TD align=left width="19%" height=17>v/a</TD></TR>
+<TR>
+<TD width="8%" height=17>12</TD>
+<TD align=left width="26%" height=17>DUST OF BASEMENT, THE</TD>
+<TD align=left width="37%" height=17>HOME COMING HEAVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>ebm</TD></TR>
+<TR>
+<TD width="8%" height=17>13</TD>
+<TD align=left width="26%" height=17>HIGHLAND GLORY</TD>
+<TD align=left width="37%" height=17>FROM THE GLORY TO THE BRAVE</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>14 (1)</TD>
+<TD align=left width="26%" height=17>GRAVEWORM</TD>
+<TD align=left width="37%" height=17>ENGRAVED IN BLACK</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-doom metal</TD></TR>
+<TR>
+<TD width="8%" height=17>15</TD>
+<TD align=left width="26%" height=17>MORS PRINCIPIUM EST</TD>
+<TD align=left width="37%" height=17>INHUMANITY</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>16</TD>
+<TD align=left width="26%" height=17>BRAZEN ABBOT</TD>
+<TD align=left width="37%" height=17>GUILTY AS SIN</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>17 (11)</TD>
+<TD align=left width="26%" height=17>CATAMENIA</TD>
+<TD align=left width="37%" height=17>CHAOSBORN</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>18</TD>
+<TD align=left width="26%" height=17>1349</TD>
+<TD align=left width="37%" height=17>LIBERATION</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>19</TD>
+<TD align=left width="26%" height=17>CHARON</TD>
+<TD align=left width="37%" height=17>TEARSTAINED</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>20</TD>
+<TD align=left width="26%" height=17>PARAGON</TD>
+<TD align=left width="37%" height=17>THE DARK LEGACY</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>21</TD>
+<TD align=left width="26%" height=17>SUIDAKRA</TD>
+<TD align=left width="37%" height=17>SINGS FOR A FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>22 (8)</TD>
+<TD align=left width="26%" height=17>FOR MY PAIN…</TD>
+<TD align=left width="37%" height=17>FALLEN</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>23 (18)</TD>
+<TD align=left width="26%" height=17>BATTLELORE</TD>
+<TD align=left width="37%" height=17>SWORD'S SONG +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>epic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>24</TD>
+<TD align=left width="26%" height=17>DEAD SOUL TRIBE</TD>
+<TD align=left width="37%" height=17>A MURDER OF CROWS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR>
+<TR>
+<TD width="8%" height=17>25</TD>
+<TD align=left width="26%" height=17>GARY HUGHES</TD>
+<TD align=left width="37%" height=17>ONCE AND FUTURE THE KING, PART I</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>26 (17)</TD>
+<TD align=left width="26%" height=17>SCREAM SILENCE</TD>
+<TD align=left width="37%" height=17>…SEVEN TEARS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>27</TD>
+<TD align=left width="26%" height=17>MISANTHROPE</TD>
+<TD align=left width="37%" height=17>IMMORTAL</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>sympho-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>28</TD>
+<TD align=left width="26%" height=17>NIGHTFALL</TD>
+<TD align=left width="37%" height=17>I AM JESUS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>29 (9)</TD>
+<TD align=left width="26%" height=17>CHILDREN OF BODOM</TD>
+<TD align=left width="37%" height=17>HATE CREW DEATHROLL</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>30 (3)</TD>
+<TD align=left width="26%" height=17>HELLOWEEN</TD>
+<TD align=left width="37%" height=17>RABBIT DON'T COME EASY +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>31</TD>
+<TD align=left width="26%" height=17>DARZAMAT</TD>
+<TD align=left width="37%" height=17>ONIRIAD</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>32</TD>
+<TD align=left width="26%" height=17>DOMAIN</TD>
+<TD align=left width="37%" height=17>THE SIXTH DIMENSION</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>hard-rock</TD></TR>
+<TR>
+<TD width="8%" height=17>33</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MY ARMS, YOUR HEARSE + 2 bonus tracks</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>34</TD>
+<TD align=left width="26%" height=17>OPETH</TD>
+<TD align=left width="37%" height=17>MORNINGRISE +1 bonus track</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>35</TD>
+<TD align=left width="26%" height=17>RAKOTH</TD>
+<TD align=left width="37%" height=17>TINY DEATHS</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>expiremental-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>36 (7)</TD>
+<TD align=left width="26%" height=17>ROYAL HUNT</TD>
+<TD align=left width="37%" height=17>EYE WITNESS Digi-Pack LTD Edition</TD>
+<TD align=left width="10%" height=17>AMG</TD>
+<TD align=left width="19%" height=17>prog-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>37 (31)</TD>
+<TD align=left width="26%" height=17>TEMNOZOR</TD>
+<TD align=left width="37%" height=17>HORIZONS</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>pagan-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>38</TD>
+<TD align=left width="26%" height=17>TIME REQUIEM</TD>
+<TD align=left width="37%" height=17>TIME REQUIEM</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>39</TD>
+<TD align=left width="26%" height=17>АРГИР</TD>
+<TD align=left width="37%" height=17>СВЕТ СЕРЕБРА</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>heavy-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>40</TD>
+<TD align=left width="26%" height=17>РОГАТЫЕ ТРУПОЕДЫ</TD>
+<TD align=left width="37%" height=17>ДЕВКИ, СЕКС И ТРУПНЫЙ ЯД</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>41</TD>
+<TD align=left width="26%" height=17>AT VANCE</TD>
+<TD align=left width="37%" height=17>THE EVIL IN YOU</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>42</TD>
+<TD align=left width="26%" height=17>ETERNAL TEARS OF SORROW</TD>
+<TD align=left width="37%" height=17>VILDA MANNU</TD>
+<TD align=left width="10%" height=17>Fono</TD>
+<TD align=left width="19%" height=17>death-doom</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>43 (24)</TD>
+<TD align=left width="26%" height=17>FAIRYLAND</TD>
+<TD align=left width="37%" height=17>OF WARS IN OSYRIA</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>44 (37)</TD>
+<TD align=left width="26%" height=17>MASTERPLAN</TD>
+<TD align=left width="37%" height=17>MASTERPLAN</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>45 (2)</TD>
+<TD align=left width="26%" height=17>SHAMAN</TD>
+<TD align=left width="37%" height=17>RITUAL</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>power-metal</TD></TR>
+<TR>
+<TD align=left width="8%" height=17>46 (29)</TD>
+<TD align=left width="26%" height=17>SIRENIA (ex-TRISTANIA)</TD>
+<TD align=left width="37%" height=17>AT SIXES AND SEVENS</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>gothic-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>47</TD>
+<TD align=left width="26%" height=17>SOILWORK</TD>
+<TD align=left width="37%" height=17>FIGURE NUMBER FIVE</TD>
+<TD align=left width="10%" height=17>Irond</TD>
+<TD align=left width="19%" height=17>melodic death-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>48</TD>
+<TD align=left width="26%" height=17>TWILIGHT OPHERA</TD>
+<TD align=left width="37%" height=17>THE END OF HALCYON AGE</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>sympho-black-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>49</TD>
+<TD align=left width="26%" height=17>TESTAMENT</TD>
+<TD align=left width="37%" height=17>THE GATHERING</TD>
+<TD align=left width="10%" height=17>CD-MAX</TD>
+<TD align=left width="19%" height=17>thrash-metal</TD></TR>
+<TR>
+<TD width="8%" height=17>50</TD>
+<TD align=left width="26%" height=17>SHERINIAN, DEREK</TD>
+<TD align=left width="37%" height=17>BLACK UTOPIA</TD>
+<TD align=left width="10%" height=17>Soyuz</TD>
+<TD align=left width="19%" height=17>progressive</TD></TR></TBODY></TABLE>
+<P>*Цифрами в скобках&nbsp;обозначено место в прошлом рейтинге.</P>
+Автор: Vit Belov
+
+### 11.11.2003 reviews Смерть от порочного образа жизни
+
+<DIV id=0></DIV><SPAN id=hbblock>
+<P><LABEL id=HbSession SessionId="3284330486">Третий полноформатник обнинских музыкантов, получивших мировое признание и все свои альбомы выпускающих на иностранных лэйблах. Сами музыканты не боятся экспериментов и называют свой стиль, как avant-garde doomy rock. Надо признать сразу, он меня несколько разочаровал. Совсем не такого развития группы я ожидал. Даже семикратное прослушивание перед написанием рецензии так и не привело меня к окончательному пониманию всего услышанного. Материал получился красивым, атмосферным, очень спокойным, меланхоличным и умиротворяющим, и в то же время, монотонным и утомляющим. На альбоме главенствуют чистый отторженный вокал, акустические гитары, мрачнейшие клавишные и флейта, странные гармонии и бесконечное число эмоций. Электрогитара, к сожалению, звучит крайне редко. В музыкальном плане, напрашивается много сравнений с поздней ANATHEMA, EMPYRIUM, KING CRIMSON&nbsp;и TENHI. Как всегда, замешана каша из множества стилей: здесь встречаются black metal, gothic, folk, dark-ambient, doom metal и даже techno-trance. Но, повторюсь, уж слишком все спокойно и механистично. Хотя, концовка альбома все расставляет по своим местам. Был бы вот весь альбом таким, это все слушалось бы с гораздо большим интересом. А так... Но, музыкантам удалось создать необычайно мрачное и сентиментальное звуковое полотно. Все сделано с большой напыщенностью и фарсом, и звучит как музыкальное переложение литературного произведения или как песнопения бардов.&nbsp; Очень оригинальная и интеллигентная музыка, но&nbsp;не для массового слушателя.</LABEL><LABEL SessionId="1368007870"></LABEL>&nbsp;</P></SPAN>
+Автор: Dimas
+
+### 17.01.2007 articles Старый новый год в &quot;Релаксе&quot;: RAKOTH - великолепны
+
+<P>13 января в клубе «Релакс» Metal Militia Production организовала первый концерт в наступившем году. В программе были заявлены несколько интересных групп, обещались ведущие, и даже стриптиз. Публики собралось достаточное количество, оставалось только надеяться, что группы будут соответствовать подобному вниманию.</P>
+<P>К сожалению, первый коллектив я пропустил, а с ним, видимо, и конкурсы. Также стало известно, что «блэкари» THUNDERSTORM не смогут выступить в этот вечер. На сцене зажигали SCREAM IN DARKNESS. В прошлом году коллектив выпустил «самиздатом» свой дебютный одноимённый альбом, дал несколько концертов в его поддержку и начал набирать обороты и получать некоторую известность в московском undeground’e. Эта некоторая известность отчётливо была заметна во время выступления ребят на сцене. Публика встречала SCREAM IN DARKNESS приветливо. Вокалистом SID был некто Гроб, один из ведущих этого концерта. Его внешность вызвала у меня недоумение. Кучерявый, полноватый парень с самодовольным улыбающимся лицом, который рычит и как-то нелепо рубится на фоне коллег музыкантов с «правильным» имиджем. Улыбка Гроба напомнила мне поп-певца Витаса, а его шутки, «Здесь не водка, а вода, ха-ха», были достаточно тупы, чтобы понравиться подвыпившей публике. Отдельно коснусь музыки SCREAM IN DARKNESS. Их творчество осталось непонятым мною. Что играет эта группа? Какую-то нелепую смесь melodic-death и death-doom с невнятными мелодиями и непонятными музыкальными решениями. Признаться, я слышал и запись группы, она выдержана в том же ключе, и впечатления от концерта с впечатлениями от диска не разнятся. Вероятно, играть коллектив и умеет, умеет он себя подать, пусть в несколько странноватом ключе, но с песнями и собственным материалом у них проблемы. Из-за отказа THUNDERSTORM, группе пришлось пробыть на сцене дольше положенного, что отнюдь не добавило мне положительных эмоций.</P>
+<P>Дальше было тоже очень интересно. На сцене появились ICEWIND BLAST, которых можно смело назвать «гвоздём программы», так как, судя по всему, зрители в этот вечер ожидали именно их. У группы были некоторые проблемы с настройкой. Её они проводили достаточно шумно, а под конец даже отыграли пол песни и бросили. Публика к этому издевательству отнеслась на редкость спокойно, любят, видимо, эту группу. Самое забавное, что после настройки, ICEWIND BLAST покинули сцену, и там появились ведущие Гроб и Кардан, устроившие конкурс на лучший гроулинг. В зале оказались довольно примечательные персонажи, которые честно заработали своё пиво, проорав в микрофон несколько нечленораздельных фраз. Интересно, что обычно конкурсы проводят во время настройки групп, чтобы занять публику и отвлечь её от невнятного шума, раздающегося со сцены. Здесь же конкурсы были поданы, как отдельные блюда. Забегая вперёд, скажу, что конкурсов в этот вечер больше не было. GROM, так же как и ICEWIND BLAST, покинули сцену после настройки, но не дождавшись ведущих, начали своё выступление. Один из них появился уже перед ДЕМОНАМИ, поблагодарил публику, проанонсировал стриптиз-шоу и ушёл. Видимо, ребята не выдержали груза славы, на них свалившейся. И после нескольких удачных выходов на сцену «надёргались» в баре. Вернёмся к ICEWIND BLAST, которые всё-таки вышли на сцену под приветственные крики фэнов. Я уже слышал несколько раз этот коллектив в прошлом. Впечатления, что они прогрессировали всё это время, у меня не сложилось. Такой же рваный материал, не очень качественное исполнение. Несмотря на долгую настройку, хорошего звука мы не услышали. Было несколько мест в песнях, где действительно можно было усмотреть некоторый потенциал, но это только места. Настоящих запоминающихся трэков в обойме ICEWIND BLAST нет. Кроме прочего, создалось впечатление, что группа попросту неслаженно звучит. Особенно это было заметно во время исполнения вечного кавера на песню Bon Jovi. Вокалист куда-то спешил, ритм-секция отставала, мелодия звучала чисто приблизительно. Уже на выступлении ICEWIND BLAST мне начало казаться, что я зря трачу своё время, и ничего интересного в этот вечер меня не ждёт, но, к счастью, я ошибался.</P>
+<P>Первыми, кто порадовал, были GROM. Эта группа не очень популярна среди столичного зрителя, из-за своей брутальности. Многим их музыка кажется несколько туповатой, поэтому зал опустел почти наполовину. По мне так лучше чистый забой, чем мелодизм и разнообразие, в котором невозможно разобраться. А драйв эта четвёрка даёт. Кроме того, были сыграны две новые песни, материал которых приближает коллектив к творчеству techno-death команд. На первой из них вокалист даже поёт неким подобием чистого вокала. Благодаря новым вещам, сэт GROM стал более разнообразным и интересным. Здесь встречаются и black композиции, и ранние почти «трэшовые» вещи. На закуску к микрофону встал гитарист и уже в формате трио GROM исполнили кавер на песню KREATOR “Tormentor”. Без лишней настройки, без лишнего апломба, зато с тяжёлым материалом и ураганным сэтом, вот, что выделяло GROM на фоне предшественников по этому концерту. Группа прогрессирует, и нам следует ждать более ярких выступлений в дальнейшем.</P>
+<P>Гвоздём программы стали RAKOTH. Я не буду скрывать своего восхищения выступлением этой команды. После нескольких альбомов, выпущенных на зарубежных лэйблах, коллектив наконец-то приступил к концертным выступлениям. Великолепная атмосфера была создана уже в самом начале во время настройки. Чистоголосый певец P. Noir общался с публикой, распевался… Честно говоря, меня просто поразил его голос. Он захватил меня и не отпускал до конца выступления. У клавишника Рустама, кажется, были претензии к работе P. Noir, но я бы не был столь строг. Хотя он и был в каком-то «странном» состоянии, но с пением и игрой на духовых (флейте и ещё двух каких-то «дудочках») справлялся великолепно. Музыка RAKOTH не подпадает под описание ни одного из известных стилей. Элементы фолка, пронзительный чистый вокал, гроулинг и скриминг, флейта… Кроме этого, black-metal и элементы других брутальных стилей. Построение композиций очень непростое, но слушается музыка очень интересно, и не появляется ощущения перегруженности песен и их «ненатуральности». Честно говоря, RAKOTH следует пригласить и на какой-нибудь progressive концерт, там их музыка заслужит достойных эпитетов. Но даже на этом сейшене, где преобладали группы «зверских» направлений, публика внимала RAKOTH с интересом.&nbsp; Безусловное концертное открытие этого шоу. Спасибо организаторам. Ну, и группе, конечно же.</P>
+<P>Предпоследней частью этого концерта стало выступление группы DEMONS OF GUILLOTINE. Последней было «сексуальное стриптиз-шоу», которого я не дождался. Надо было «девок» выпустить на сцену пораньше, пусть без шоу, но в рекламных целях. А так до ночи слушать ДЕМОНОВ не захотелось. Тем более ко всей слабости этого коллектива прибавилось изрядное опьянение лидера, который то падал, то матерился, предлагая сделать минет звукорежиссёру, и.т.п. Печальное зрелище, особенно, на фоне RAKOTH. Группе, видимо, приходит конец. Особого энтузиазма ни у публики, ни у выступавших я не заметил. Думается, пора прекращать спонсировать бездарность и переключиться на другие группы.</P>
+<P>В общем и целом концерт был не плох. Отрицательное впечатление от ICEWIND BLAST и SCREAM IN DARKNESS не пересиливают положительные эмоции от выступлений RAKOTH и GROM. Тем более мнение о первых двух группах вполне может измениться в лучшую сторону, а слушать эти коллективы отнюдь не противно. К сожалению, подобного не скажешь о ДЕМОНАХ, но ничего хорошего от этих ребят я никогда не ждал.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Rakoth

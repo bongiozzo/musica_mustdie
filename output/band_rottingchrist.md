@@ -304,6 +304,407 @@ Mixed and mastered at Fascination Street Studios.
 
 * C группой "Nightfall" George Bokos (guitar)
 
+## Публикации
+
+### 16.03.1999 reviews 
+
+<p>Мне трудно объективно оценивать Rotting Christ, потому что я начал следить за их творчеством с их первого серьезного релиза "Thy Mighty Contact", который тогда, в 1993-ем году оказал на меня сильное влияние. Одной из отличительных черт этого Doom-Black проекта являлся его постоянный прогресс. "Triarchy of the Lost Lovers", казалось, был кульминацией творчества греков, но потом вышел "A Dead Poem" спродюсированный Xy (Samael), который показал, что есть еще порох в пороховницах у греческого экстремализма. Правда, был такой тревожный звоночек, потому что некоторые секции того альбома подозрительно отдавали Samael'ем, да и веяния "Embers Fire" были налицо в некоторых вещах. Тогда я не придал этому особого значения, но сейчас, прослушав новый релиз Rotting Christ "Sleep of the Angels", я понял, что тот маленький звоночек определил, по сути дела, направление, в котором продолжали развиваться (?) Sakis и его команда. Сразу хочу оговориться, что музыка, гармонии, чувство меры и мелодика Rotting Christ остались абсолютно безупречными, являя собой лучший обазчик экстремальной музыки в Греции. Но есть некоторые "но". Во-первых, как я и ожидал, Xy, как продюсер, не смог быть до конца объективным и динамика нового альбома слегка напоминает поздний Samael, хотя определившееся звучание Rotting Christ ни изменено почти ни на йоту со времен "Triarchy of the Lost Lovers". Во-вторых, к превеликому моему сожалению, вместе со звучанием осталась недвижимой и музыка. Если кто помнит "Among Two Storms" с "A Dead Poem", то могу сказать, что первая половина нового материала целиком сделана в этом ключе, под легким влиянием Paradise Lost образца 93-го, как мне показалось. "Der Perfekte Traume" вообще чистый Samael. На "The World Made End" греки попытались тряхнуть стариной и оживить свои увядающие Black metal корни, но потом скатились к какой-то полупсиходелической чепухе.</p>
+<P> Что хорошего ? Хорошего немало. Rotting Christ сделали второй, добротный, чуть менее жёсткий, безупречный "A Dead Poem". Я с удовольствием его послушал, но... Хотелось бы, конечно, хоть чего-нибудь нового.</p>
+
+Автор: Dimas
+
+### 16.11.1999 news 
+
+<p>Rotting Christ проехались с турне по Штатам. Правда несколько концертов были отменены, из-за того, что промоутеры и церковь посчитали их название неподходящим. Тоже самое случилусь на фестивале в Милуоки через 20 минут после начала шоу.</p>
+
+Автор: Vit Belov
+
+### 21.03.2000 news 
+
+<p>Rotting Christ в скором времени войдут в студию для записи нового альбома.</p>
+
+Автор: Vit Belov
+
+### 24.08.2000 reviews Седьмое творение безумных греков
+
+<p>Седьмое творение безумных греков. Не став развивать готическо-меланхолические идеи, группа решила вернуться во времена "Non Serviam" и "Triarchy Of Lost Lovers" и выдать на гора чумовейшего музона с легко узнаваемым фирменным звуком. Есть и быстрые вещицы с потрясающим придушенным рыком, есть и более медленные с полушепотом, но облегчаться и коммерциализироваться группа не собирается. За это они и продолжают оставаться одной из самых уважаемых мной групп. Одни из ветеранов мирового black-doom-metal продолжают уверенно идти в первых рядах выпуская крепкий и хороший материал. Простые мелодичные и запоминающиеся риффы (и при этом, к сожалению, здорово напоминающие ранние мелодии). Атмосферно и немного симфонично за счет хоралов. Хотя, что рассказывать... Слушать надо. И не один раз.</p>
+
+Автор: Dimas
+
+### 27.08.2000 reviews The seventh creation of the mad Greeks
+
+<p>The seventh creation of the mad Greeks. Not beginning to develop gothic-melancholic ideas, the group has decided to return to times " Non Serviam " and " Triarchy Of Lost Lovers " and to give on a mountain coolest music with easy knowing by a firm note. Is also fast tracks with startling strangled voice, there are also more sluggish with halfvoice, but to be easied and commersanting group does not collect. For it they also prolong to remain one of the groups, most respected by me. One of the veterans global black-doom-metal prolong confidently to go in the maiden numbers letting out strong and good stuff. Simple melodious and stored rhyphs (and thus, unfortunately, is able-bodied recalling early tunes). Atmospheric and there is some symphonic for the score chorals. Though what to tell... It is necessary to listen. And not once.</p>
+
+Автор: Dimas
+
+### 27.08.2000 bios Греческие монстры.
+
+<p> Греция. Место зарождения демократии. Колыбель цивилизации. Немало великих историков, литераторов, архитекторов и философов дала миру сия благословенная земля. Современные греческие мастера, братья Сакис и Темис Толис, вознамерились творить темное искусство в их собственном понимании.</p>
+<p> Проникшись влиянием предшественников black metal, таких как Venom, Bathory и Celtic Frost, начала набирать вес Rotting Christ - группа со страстью к тяжелой музыке столь же горячей, как средиземноморское лето. С самого основания стиль и концепция песен развивались в более мелодичную и печальную сторону, пока Rotting Christ не вписали себя в легко узнаваемый стиль металла, который очаровывает до глубины души и затрагивает широкую гамму чувств. Шестой альбом коллектива "Sleep Of The Angels" продолжил настроения своего предшественника 1997 года "A Dead Poem" и высветил мрачные образы и эмоции, давшие толчок к созданию этого шедевра. Самый современный на данный момент альбом "Khronos" 2000 года вернулся к тяжелому звучанию ранних альбомов, но не пренебрегая при этом музыкальным развитием.</p>
+<p> В то время как готические элементы продолжают проникать в современную metal и rock сцену, легко услышать, почему Rotting Christ - первопроходцы в этой области и почему "Sleep Of The Angels" - один из самых незабываемых альбомов 1999 года. В 1987 году в почтенной столице Афины произожло рождение группы. Ко времени их дебюта, EP "Passage To Arcturo", выпущенного в 1991 году, Rotting Christ состоялись как одни из предшественников второго поколения black metal. Подписав контракт с французским лейблом Osmose Records и добавив в состав клавишника, группа выпустила в 1993 году дьявольски убойный релиз "Thy Mighty Contract". Затем последовал их первый европейский тур с Immortal и Blasphemy, который усилил известность Rotting Christ как классной концертной группы. После выпуска второго полнометражного альбома "Non Servam" в начале 1995 года и проблем с лейблом, Rotting Christ решили, что пришло время двигать группу на более высокий уровень. Понимая, что их музыке необходимо расти и она не должна ограничиваться рамками black metal, Сакис глубоко порылся в потемках своей мрачной души и выдал на гора более атмосферный шедевр "Triarchy Of The Lost Lovers". Обеспечив контракт с Century Media, "Triarchy Of The Lost Lovers" появился на свет в 1996 году и во всеоружии предстал перед музыкальными критиками и публикой. Соединение возвышенных эпических риффов с меланхоличными мелодиями позволило группе уйти от тесных рамок black metal без каких-либо потерь, а термин "dark metal" стал обозначать тот звук, который удался Rotting Christ" (и который с этого момента бесчисленное количество раз пытались повторить). Выпуск альбома сопровождался двумя европейскими турами, доказавшими, что Rotting Christ имеет намного больший созидательный потенциал, чем можно было бы предположить из их зверского названия. Закрепляя успех, группа отправилась в знаменитую Woodhouse Studios в Германии и, призвав на помощь в качестве продюсера ударника/клавишника и основного сочинителя текстов Samael Кси, сотворила сногсшибательный релиз "A Dead Poem". Помимо помощи с исполнением клавишных партий, рекомендации Кси помогли главному творцу лирики Rotting Christ Сакису полностью почувствовать свое понимание великолепия музыки. "A Dead Poem" - настоящий бриллиант, выдвинувший на первый план печальные, меланхоличные гитарные проходы и эмоциональный вокальный стиль Сакиса. Группа имела невероятный успех, посетив с концертами не менее 20 стран, включая Турцию, Болгарию, Израиль и множество государств Южной Америки.</p>
+<p> В 1998 году Сакис и Темис усилили состав вторым гитаристом Костасом, а также пригласили Андреаса на бас и Джорджа на клавиши. И Rotting Christ отправились записываться в Woodhouse Studios, снова, как и в прошлый раз, доверив функции продюсера Кси. И снова из своей творческой сокровищницы группа вытащила на свет следующую ошеломляющую порцию эпических, очаровывающих композиций, от быстрой и стремительной "The Word Made End" к резкой "After Dark I Feel". Песни Rotting Christ повсюду находят дорогу к сердцам как metal-фэнов, так и поклонников готического рока. В поддержку "Sleep Of The Angels" группа провела мощный тур, отыграв в Мексике и выступив хедлайнерами на Milwaukee Metalfest в Соединенный Штатах в 1999 году. Затем были интересные выступления с Deicide, Sinister и Usurper по всему миру, а также несколько концертов с Cradle Of Filth.</p>
+<p> После исследования глубин возвышенного готического звука и экспериментов на альбоме "Sleep Of The Angels", греческие dark metal мастера почувствовали, что сейчас самое время ещё раз вернуться к более экстремальному и устрашающему звучанию. На этот раз Rotting Christ сделали запись своего нового злейшего альбома "Khronos" в студии Питера Тагтрена Abyss, а продюссировали его сам Сакис и Ларс Щоке из Hypocrisy. "Thou Are Blind" открывает альбом быстрым, зверским темпом, а треки подобные "My Sacred Path" и "Art Of Sin" ещё более усиливают позиции Rotting Christ в металлическом мире. Rotting Christ даже включили отдельные элементы industrial в некоторые из новых песен, "Aeternatus" и одноименная композиция с альбома - только два из лучших примеров их творческого гения. Снова Rotting Christ штормом врываются в металлический мир и мы являемся свидетелями их несомненной мощи.</p>
+
+Автор: Morsus
+
+### 10.12.2001 news Христовы новости...
+
+<p>Греческие блэкстеры "Rotting Christ" весной 2002 планируют запись продолжения альбома Khronos. Продюссировать будет Andy Classen в Stage One Studios. Вот что написано на официальном сайте: "Сейчас после возвращения на родину команда работает над сочинением новых песен... Звучание будет возвращением к корням. Представьте себе микс между Thy Mighty Contract и Khronos с ярковыраженными меланхоличными мелодиями...". Также на сайте идет обсуждение старого и нового логотипов группы. Вы можете проголосовать <A HREF="http://rchrist.conxion.gr./">здесь... </A> <BR> <BR> Из других новостей, культовые греческие блэк-металлеры "Thou Art Lord" реформировались с участием гитариста "Rotting Christ" - Sakis и участника "Necromantia" - Magus Vampyr Daoloth.</p>
+
+Автор: Yermola
+
+### 10.12.2001 news Rotting Christ are scheduled to enter Stage One Studios ...
+
+<p>Greek dark metal outfit Rotting Christ are scheduled to enter Stage One Studios with producer Andy Classen in spring 2002 to record the follow-up to Khronos. Here's what Rotting Christ's website had to say about the band's current activities: "Now straight after the band has returned in its homeland are currently working again on the new songs and seeking for a studio in order to record their new album which concerning the pre-production would sound a kind back to the roots album adapted of course to the production needs of the nowadays era. Let’s say a mix between Thy Mighty Contract with Khronos with the well established melancholic melodies of the band..." <BR> <BR> Also, Rotting Christ are debating whether or not to reinstate their old death metal logo since the new material is said to be "blacker than ever." Fans of the band will vote on the logo issue at the band's website, <A HREF="http://rchrist.conxion.gr/">rchrist.conxion.gr</A>. <BR> <BR> In similar news, it appears cult Greek black metallers Thou Art Lord will reform with Rotting Christ guitarist Sakis and Necromantia mainman Magus Vampyr Daoloth. However, most of the news on Thou Art Lord is merely rumor. We'll have the confirmed status as it becomes available. <BR> <BR> Rotting Christ's seventh as-yet-untitled full-length album isn't due out until late 2002 on Century Media Records.</p>
+
+Автор: Yermola
+
+### 04.03.2002 news Hовости от MY DYING BRIDE
+
+<p>MY DYING BRIDE отыграют шоу в Лондоне впервые за последние 2 года. Концерт пройдет 27 апреля 2002 года. Специальные гости - ROTTING CHRIST. <BR> Перед этим, 22 апреля группа выпустит полнометражное DVD "For Darkest Eyes", которое уже выходило на кассетах. Оно включает все видеоклипы группы и концерт в Кракове 1996 года. <BR> А спустя два дня, после шоу в Лондоне, 29 апреля 2002 года выйдет новый альбом группы под названием "Voice Of The Wretched (Live)”. Материал альбома был записан в марте 2001 года с концертов в Голландии.</p>
+
+Автор: Dimas
+
+### 04.03.2002 news MY DYING BRIDE NEWS
+
+<p>My Dying Bride are to play their first London show in over 2 years. The gig will take place on Saturday April 27th at The Mean Fiddler. Special guests Rotting Christ will join MDB. The gig will be MDB’s ONLY UK show of the year, and they’ll be showcasing material from their highly acclaimed last album The Dreadful Hours for the very first time. One not to be missed. <BR> April 22nd sees the release of the My Dying Bride longform "For Darkest Eyes" on DVD for the very first time. The release contains all MDB’s promo video’s to date. "For Darkest Eyes" also contains a full live set, filmed in Krakow Poland in 1996, MDB were on a European tour with then label mates Anathema. The show contains 10 tracks, and features the classic MDB line-up, with original drummer Rick Miah and Martin Powell, now with Cradle Of Filth. <BR> Carrying on this slurry of Bride activity, the band will be releasing a brand new live album, entitled “Voice Of The Wretched (Live)”. The album will hit the shops 2 days after the London gig on Monday 29th April. The album was recorded live at 013 in Tilburg Holland in March 2001 and was the bands stunning climax to the 3 day Peacefest shows that took place in 3 countries over a manic weekend in March 2001.</p>
+
+Автор: Dimas
+
+### 24.06.2002 news Новый альбом Rotting Christ
+
+<p>Свежайший альбом Rotting Christ будет называться "Genesis" и, как ожидается, выйдет 26 августа.</p>
+
+Автор: Morsus
+
+### 24.06.2002 news New album of Rotting Christ
+
+<p>Rotting Christ's new album is titled Genesis and is expected to be released on August 26th.</p>
+
+Автор: Morsus
+
+### 24.07.2002 news Генезис от ROTTING CHRIST...
+
+<p><IMG SRC="/images/news_rus/2002.07/2997.jpg" ALT="pho" width=302 height=302 hspace="15" vspace="5" border="1" align="left"> Вот так будет выглядеть обложка нового альбома ROTTING CHRIST - "Genesis"... Диск должен выйти на Century Media Records 26-го августа...</p>
+
+Автор: Yermola
+
+### 24.07.2002 news ROTTING CHRIST: &quot;Genesis&quot; Cover Artwork Posted ...
+
+<p><IMG SRC="/images/news_rus/2002.07/2997.jpg" ALT="pho" width=302 height=302 hspace="15" vspace="5" border="1" align="left"> Greece's ROTTING CHRIST have posted the cover artwork for their upcoming Genesis CD, due on August 26th through Century Media Records....</p>
+
+Автор: Yermola
+
+### 22.08.2002 news Rotting Christ&#39;s new album...
+
+<p>Rotting Christ's new album, Genesis, has been scheduled for an October 29 release. The following is the tracklisting for the album: <BR><BR> "Daemons"<BR> "Lex Talionis"<BR> "Quintessence"<BR> "Nightmare"<BR> "In Domine Sathana"<BR> "Release Me"<BR> "The Call Of The Aethyrs"<BR> "Dying"<BR> "Ad Noctis"<BR> "Under The Name Of Legion"<BR><BR> Fans should look forward to an extremely heavy and sinister-sounding album from Rotting Christ. The production is better than ever, giving justice to the supersonic evil contained throughout all ten songs. Contributing to the overall heaviness of the sound, Rotting Christ incorporate more keyboards and samples than in previous releases, but retain the focus on thick guitar tones and diabolical vocals.</p>
+
+Автор: Yermola
+
+### 22.08.2002 news Происхождение Христа...
+
+<p>С 29-го Октября новый альбом "Rotting Christ" - "Genesis" попадает на прилавки музыкальных магазинов. Трек-лист: <BR><BR> "Daemons"<BR> "Lex Talionis"<BR> "Quintessence"<BR> "Nightmare"<BR> "In Domine Sathana"<BR> "Release Me"<BR> "The Call Of The Aethyrs"<BR> "Dying"<BR> "Ad Noctis"<BR> "Under The Name Of Legion"<BR><BR> По обещаниям группы это самый экстремально тяжелый альбом за всю историю. Было использовано больше клавишных и сэмплов, но при этом акцент сделан на "жирный" гитарный звук и "дьявольский" вокал...</p>
+
+Автор: Yermola
+
+### 05.09.2002 news CENTURY MEDIA RECORDS Release Schedule....
+
+<p>Sept. 3 NOCTURNAL RITES - Shadowland<BR> Sept. 3 …AND OCEANS - Cypher<BR> Sept. 3 INTO ETERNITY - Dead Or Dreaming<BR> Sept. 17 SHADOWS FALL - The Art of Balance<BR> Oct. 1 ICED EARTH - Iced Earth (reissue)<BR> Oct. 1 ICED EARTH - Night of the Stormrider (reissue)<BR> Oct. 1 ICED EARTH - Burnt Offerings (reissue)<BR> Oct. 15 YAKUZA - Way of the Dead<BR> Oct. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Oct. 29 LACUNA COIL - Comalies<BR> Oct. 29 ROTTING CHRIST - Genesis<BR> Oct. 29 UNLEASHED - Victory/Warrior (2-on-1 reissue)<BR> Nov 12 ICED EARTH - Tribute To The Gods<BR> Nov 12 BLOODBATH - Resurrection Through Carnage</p>
+
+Автор: Yermola
+
+### 05.09.2002 news График релизов CENTURY MEDIA RECORDS....
+
+<p>Сент. 3 NOCTURNAL RITES - Shadowland<BR> Сент. 3 …AND OCEANS - Cypher<BR> Сент. 3 INTO ETERNITY - Dead Or Dreaming<BR> Сент. 17 SHADOWS FALL - The Art of Balance<BR> Окт. 15 YAKUZA - Way of the Dead<BR> Окт. 29 AVANTASIA - The Metal Opera Pt. 2<BR> Окт. 29 LACUNA COIL - Comalies<BR> Окт. 29 ROTTING CHRIST - Genesis<BR> Нояб. 12 ICED EARTH - Tribute To The Gods<BR> Нояб. 12 BLOODBATH - Resurrection Through Carnage<BR></p>
+
+Автор: Yermola
+
+### 06.09.2002 news MP3 Downloads....
+
+<p><font size="2" face="Arial, Helvetica, sans-serif">...And Oceans - <a href="http://mp3.centurymedia.com/AndOceans_AphelionLightEvanescenceintoExtinction_Cypher.mp3">Aphelion: Light Evanescence: Into Extinction</a><br> Avantasia - <a href="http://mp3.centurymedia.com/Avantasia_ChaliceofAgony_MetalOpera2.mp3">Chalice of Agony</a><br> Dark Tranquillity - <a href="http://mp3.centurymedia.com/DarkTranquillity_DamageDone_MonochromaticStains.mp3">Monochromatic Stains</a><br> Into Eternity - <a href="http://mp3.centurymedia.com/IntoEternity_DeadorDreaming_deadordreaming.mp3">Dead or Dreaming</a><br> Lacuna Coil - <a href="http://mp3.centurymedia.com/LacunaCoil_Swamped_Comalies.mp3">Swamped</a><br> Nocturnal Rites - <a href="http://mp3.centurymedia.com/NocturnalRites_Shadowland_Shadowland.mp3">Shadowland</a><br> Rotting Christ - <a href="http://mp3.centurymedia.com/RottingChrist_LexTalionis_Genesis.mp3">Lex Talionis</a><br> Shadows Fall - <a href="http://mp3.centurymedia.com/ShadowsFall_ThoughtsWithoutWords_TheArtofBalance.mp3">Thoughts Without Words</a><br> Unleashed - <a href="http://mp3.centurymedia.com/Unleashed_DontWantToBeBorn_HellsUnleashed.mp3">Don't Want to Be Born</a></font><br> <SPAN style="FONT-FAMILY: Arial"><font size="2" face="Arial, Helvetica, sans-serif">Yakuza - <a href="http://mp3.centurymedia.com/YAKUZA_Chicagotypewriter_wayofthedead.mp3">Chicago Typewriter</a></font></SPAN></p>
+
+Автор: Yermola
+
+### 06.09.2002 news MP3 Downloads...
+
+<P><FONT face="Arial, Helvetica, sans-serif" size=2>...And Oceans - <A href="http://mp3.centurymedia.com/AndOceans_AphelionLightEvanescenceintoExtinction_Cypher.mp3">Aphelion: Light Evanescence: Into Extinction</A><BR>Avantasia - <A href="http://mp3.centurymedia.com/Avantasia_ChaliceofAgony_MetalOpera2.mp3">Chalice of Agony</A><BR>Dark Tranquillity - <A href="http://mp3.centurymedia.com/DarkTranquillity_DamageDone_MonochromaticStains.mp3">Monochromatic Stains</A><BR>Into Eternity - <A href="http://mp3.centurymedia.com/IntoEternity_DeadorDreaming_deadordreaming.mp3">Dead or Dreaming</A><BR>Lacuna Coil - <A href="http://mp3.centurymedia.com/LacunaCoil_Swamped_Comalies.mp3">Swamped</A><BR>Nocturnal Rites - <A href="http://mp3.centurymedia.com/NocturnalRites_Shadowland_Shadowland.mp3">Shadowland</A><BR>Rotting Christ - <A href="http://mp3.centurymedia.com/RottingChrist_LexTalionis_Genesis.mp3">Lex Talionis</A><BR>Shadows Fall - <A href="http://mp3.centurymedia.com/ShadowsFall_ThoughtsWithoutWords_TheArtofBalance.mp3">Thoughts Without Words</A><BR>Unleashed - <A href="http://mp3.centurymedia.com/Unleashed_DontWantToBeBorn_HellsUnleashed.mp3">Don't Want to Be Born</A></FONT><BR><SPAN style="FONT-FAMILY: Arial"><FONT face="Arial, Helvetica, sans-serif" size=2>Yakuza - <A href="http://mp3.centurymedia.com/YAKUZA_Chicagotypewriter_wayofthedead.mp3">Chicago Typewriter</A></FONT></SPAN></P></>
+
+Автор: Yermola
+
+### 06.10.2002 reviews Генезис Старого Завета
+
+<p>Люблю я греческий металл... Восьмой альбом одной из моих любимейших банд - ROTTING CHRIST. Творчество этой банды вряд ли нуждается в представлении. Поклонники этой группы не будут разочарованы новой работой греческого колллектива. Этот динамичный и мелодичный материал был записан в Германии под руководством Andy Classen. Их новая работа представляет собой смесь экспериментаторского меланхоличного металла представленного на предыдущем альбоме "Khronos" и скоростного агрессивного рубилова подобного тому которое было еще на "Thy Mighty Contract". Атмосферный dark metal с элементами gothic metal во всей его красе. Группа продолжает совершенствовать свой стиль, разбавляя экстремальный black metal броскими и запоминающимися риффами и мелодиями. Альбом разнообразен как по скорости исполнения материала, так и по риффовой структуре, многослойная работа, жесткая, временами спокойная. Вокалы на альбоме распределены в отношении 50% чистого вокала, 50% очень разборчивого скриминга. Особенно хочется выделить последнюю вещь "Under The Name Of Legions". Женский хор и назойливые риффы делают эту вещь ритуальной и затрагивающей все чувства. Подобное окончание альбома заставляет верить, что группа обязательно порадует нас еще своими следующими работами. А пока, остается раз за разом слушать "Genesis" и получать удовольствие.</p>
+
+Автор: Dimas
+
+### 22.10.2002 articles Новинки лицензионного рынка (21.10 - 28.10)
+
+<p>В данных заметках, мы постараемся доносить до Вас всё то, новое, что Вы можете обнаружить на прилавках магазинов на этой неделе. Оценок не ждите… Всё в рубрике рецензии.</p>
+<p> Начнём по алфавиту. ART Music Group на прошлой неделе представила на наш суд четыре новые позиции.<IMG SRC="/images/articles_rus/2002.10/3294.jpg" ALT="pho" width=180 height=180 hspace="15" vspace="5" border="1" align="left"> <IMG SRC="/images/articles_rus/2002.10/3295.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">Сенсацией стало появление на лицензии по вполне доступным ценам нового альбома Kingdom Come “Independent”. Можно не разбираться в рок-музыке прошлого века, но не знать этого коллектива нельзя. Оценивать новое творение, оставим специалистам, но не признать того, что Ленни Волф – новая величина на лицензионном рынке нельзя. Спасибо AMG! Второй новиной, по известности, стал новый альбом Mystic Circle “Damien”. На прошлом альбоме группа отошла от black в сторону death. Что сейчас? Читайте <a href=”http://musica.mustdie.ru/ru/band/mystic_circle/6603/#reviews”>здесь</a>. И две последние не вполне известные группы. Medusa со своим sympho-power и Inner Shrine с gothic-metal.</p>
+<p> CD-Maximum представят на этой неделе нашему вниманию две новинки. <IMG SRC="/images/articles_rus/2002.10/3296.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="right">.<IMG SRC="/images/articles_rus/2002.10/3293.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left"> Trollheim's Grott "Bizzare Troll Technology" – альбом 2001 года, анонсирован, как нестандартный black-metal. И новый альбом группы Arwen, представляющий собой power-metal с прогрессивными элементами. Эти испанцы из конюшни Arise Records, на которой могут быть, как очень хорошие группы, так и откровенно слабые, но всё равно любителям power стоит попробовать.</p>
+<p> Следом идёт Fono, со своими новинками прошлой недели. Во-первых, это новый альбом Rotting Christ. Если Вы ещё его не купили на пиратке, купите лучше на лицензии. И ещё одна новинка по лицензии Century Media Borknagar “Quintessence”. Альбом начала этого года уже стал редкостью на рынке пиратов. Вперёд black-metal!</p>
+<p> Irond Records – контора, у которой без новинок не проходит ни одна неделя.<IMG SRC="/images/articles_rus/2002.10/3297.jpg" ALT="pho" width=120 height=120 hspace="15" vspace="5" border="1" align="left">.<IMG SRC="/images/articles_rus/2002.10/3298.jpg" ALT="pho" width=120 height=120 hspace="15" vspace="5" border="1" align="right"> На этот раз настоящей бомбой станет новый альбом Lake Of Tears “Neonai”. Пускай его уже тысячными тиражами продают пираты, настоящий любитель ждёт именно этого релиза. Вторым по значению стал подарок фэнам немецкой folk музыки – новый альбом Morgenstern, которые продолжают гнуть свою “In Extremo” подобную линию. Два следующих релиза Frown и Poema Arcanus представляют собой практически идентичные альбомы в жанре doom-metal – тяжёлые и медленные. Ну и напоследок Abaddon Incarnate. Irond не стесняется указывать весьма средние оценки в прессе для этого альбома, ведь это death-grind “молотилово», кто его поймёт кроме самого преданного фэна.</p>
+<p> Ну и последними по алфавиту стали и, видимо, останутся Soyuz, которые продолжают разрабатывать ниву Inside Out Records. На этой неделе всё-таки выйдут два старых альбома Symphony X. А на прошлой появились три старых альбома My Dying Bride, и альбом Anathema “Silent Enigma” (это уже, естественно, Peaceville).</p>
+<p>Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 05.11.2002 news MassaBrutto Radioshow #122, 4-5 Nov 2002.
+
+<p>Гость программы: Андрей Кузнецов - промо-менеджер компании ФОНО [www.fono.ru]<BR><BR> Playlist:<BR><BR> 1. DIES IRAE - Incarnation Of Evil (Metal Blade/Fono Ltd)<BR> 2. ZONATA - The Last Step (Century Media/Fono Ltd)<BR> 3. ROTTING CHRIST - Daemons (Century Media/Fono Ltd)<BR> 4. DARK TRANQUILLITY - Final Resistance (Century Media/Fono Ltd)<BR> 5. DARK TRANQUILLITY - Single Part Of Two (Century Media/Fono Ltd)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 6. LACUNA COIL - Daylight Dancer (Century Media/Fono Ltd)<BR> 7. RIOT - Essential Enemies (Metal Blade/Fono Ltd)<BR> 8. DIES IRAE - Comrade Of Death (Metal Blade/Fono Ltd)<BR> 9. LACUNA COIL - Self Deception (Century Media/Fono Ltd)<BR> 10. ROTTING CHRIST - Dying (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 05.11.2002 news MassaBrutto Radioshow #122, 4-5 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. DIES IRAE - Incarnation Of Evil (Metal Blade/Fono Ltd)<BR> 2. ZONATA - The Last Step (Century Media/Fono Ltd)<BR> 3. ROTTING CHRIST - Daemons (Century Media/Fono Ltd)<BR> 4. DARK TRANQUILLITY - Final Resistance (Century Media/Fono Ltd)<BR> 5. DARK TRANQUILLITY - Single Part Of Two (Century Media/Fono Ltd)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 6. LACUNA COIL - Daylight Dancer (Century Media/Fono Ltd)<BR> 7. RIOT - Essential Enemies (Metal Blade/Fono Ltd)<BR> 8. DIES IRAE - Comrade Of Death (Metal Blade/Fono Ltd)<BR> 9. LACUNA COIL - Self Deception (Century Media/Fono Ltd)<BR> 10. ROTTING CHRIST - Dying (Century Media/Fono Ltd)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 12.11.2002 reviews Nothing to drop points for
+
+<p>What a clichesque album title, and what a stunning offering! As far as I recall, “Sleep Of The Angels” was the last ROTTING CHRIST’s effort I had a chance to make acquainted with… and I liked that one, even though it was more of a heavy / dark metal CD than black metal one. Nothing to drop points for, though. Actually, I thought they would embark on a path SAMAEL unfortunately once embarked on. Well, my worst expectations didn’t come true. “Genesis” appears as an excellent mixture of “Thy Mighty Contract” / “Non Serviam” and “A Dead Poem” / “Sleep Of The Angels”, or more likely, an excellent mixture of most stunning discoveries made once crafting those offerings. In the same time, it’s different. AND it brings something new. New for black metal scene in general and ROTTING CHRIST in particular. What exactly? Give this CD a listen and you’ll figure it out yourself ;-). I believe I’m not deadly wrong considering “Genesis” one of the best albums of 2002. I believe I’m not deadly wrong considering “Genesis” absolutely outstanding piece as well. AND I believe I’m not deadly wrong consider it the most stunning CD ROTTING CHRIST came up with so far. And you should know they made a lot of exciting works available…</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 16.11.2002 reviews Genesis of an Old Precept
+
+<p>I love Greek metal... Hence do you really think I could pass on the eighth CD by one of my all-time faves? ROTTING CHRIST's creativity hardly requires any representation. All those who liked their former works definitely won't be disappointed by this one. Dynamic and melodious, it was written down in Germany and produced by Andy Classen. "Genesis" appears to be a mix of somewhat experimental and simultaneously melancholic metal submitted on the previous album "Khronos" and high-speed aggressive metal similar to that of "Thy Mighty Contract". Atmospheric dark metal intertwined with gothic metal in all it's beauty. The band continues to improve their style, diluting extreme black metal remembered riffs and melodies. The album is various when it comes to both performance's speed and structures; rigid and, from time to time, quiet. Vocals are 50% "clean", 50% - screaming-like. All the songs off "Genesis" are more or less stunning, however I'd like to mark the closing track ("Under The Name Of Legions"). Female chorus and importunate riffs make this track sound almost ritual-like. The similar ending of an album makes me trust that ROTTING CHRIST will keep on releasing excellent CD's. And while now, check out "Genesis"... and enjoy.</p>
+
+Автор: Dimas
+
+### 26.11.2002 news MassaBrutto Radioshow #128, 25-26 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. ZONATA - Heroes Of The Universe (Century Media/Fono Ltd)<BR> 2. DEICIDE - They Are The Children Of The Underworld (Roadrunner)<BR> 3. MASTODON - Workhorse (Relapse)<BR> 4. OLEMUS - EgoGod (CCP Recs/CD-Maximum Ltd)<BR> 5. ROTTING CHRIST - Ad Noctis (Century Media/Fono Ltd)<BR> 6. ISENGARD - Vinterskugge (Peaceville)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. AGORAPHOBIC NOSEBLEED - 5 Band Genetic Equalizer (Relapse)<BR> 8. ORIGIN - Insurrection (Relapse)<BR> 9. DEFORMITY - Vassago (Displeased Recs/CD-Maximum Ltd)<BR> 10. DIES IRAE - Another Being Wasted (Metal Blade/Fono Ltd)<BR> 11. MISERICORDIA - Von Cosel (Downfall Recs)<BR> 12. KATATONIA - Chrome (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 26.11.2002 news MassaBrutto Radioshow #128, 25-26 Nov 2002.
+
+<p>Playlist: <BR><BR> 1. ZONATA - Heroes Of The Universe (Century Media/Fono Ltd)<BR> 2. DEICIDE - They Are The Children Of The Underworld (Roadrunner)<BR> 3. MASTODON - Workhorse (Relapse)<BR> 4. OLEMUS - EgoGod (CCP Recs/CD-Maximum Ltd)<BR> 5. ROTTING CHRIST - Ad Noctis (Century Media/Fono Ltd)<BR> 6. ISENGARD - Vinterskugge (Peaceville)<BR> --- --- --- ---<BR> // news //<BR> --- --- --- ---<BR> 7. AGORAPHOBIC NOSEBLEED - 5 Band Genetic Equalizer (Relapse)<BR> 8. ORIGIN - Insurrection (Relapse)<BR> 9. DEFORMITY - Vassago (Displeased Recs/CD-Maximum Ltd)<BR> 10. DIES IRAE - Another Being Wasted (Metal Blade/Fono Ltd)<BR> 11. MISERICORDIA - Von Cosel (Downfall Recs)<BR> 12. KATATONIA - Chrome (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 01.10.2003 news GriFFest III (ROTTING CHRIST на Украине)
+
+<P><IMG height=176 alt="" hspace=0 src="/images/shows_rus/2003.10/5025.jpg" width=250 align="left" border=0>31 октября в день Хелоуина<BR><BR>Кинотеатр "Ленинград" (КИЕВ)<BR><BR><B>ROTTING CHRIST (Греция)<BR></B><BR>начало в 18,30<BR>Вход 25 грн., в день концерта 30 грн.<BR><BR>Так же принимает участие <B>"UNERASE" "FLYING", "CRYSTAL SWORD"<BR></B><BR>Только для иногородних (!!!!!!) есть предварительная продажа билетов на "ГриФФест 3".<BR>Для того что бы заказать билеты заранее нужно на мейл <A href="mailto:unerase@ukr.net"><U>unerase@ukr.net</U></A> прислать Имя, Фамилию, Отчество, год рождения.<BR>а 31 октября в "Грифоне" по ПАСПОРТУ можно будет их забрать (в смысле купить) за 25 грн. </P>
+Автор: Vit Belov
+
+### 25.11.2003 articles Rotting Christ в Киеве
+
+<P><B>Часть первая, торжественная.</B> </P>
+<P>Концерт греческих блэкстеров из ВИА «Rotting Christ» 31.10.2003 в стольном граде Киеве не оставил равнодушным никого. И среди группы фанов «до 16 и старше», которые ищут возможности украсить свой face макияжем а-ля «Immortal» с помощью присыпки для детских попок и черного маркера, и среди истинных ценителей качественной тяжелой музыки. Такое событие пропустить было нельзя – Москва давно дразнит нас далекими Соулфлаями и Дэнифилсами, и вот – свершилось! Следует заметить, групп такого уровня в Киеве не было никогда. Тот, кто в этот момент вспомнил «Behemoth» или почти приехавший «Vader» неправ, т.к. кощунственно сравнивать банды из соседних постсовковых стран с героями мифической Греции. Да и подход у ребят к работе различный если в райдере «Behemoth» не последнее место занимали водка и девочки, то в аналогичном документе от великих и гниющих были указаны только все те «маршаловские вкусности», которые знающие люди могли увидеть на сцене и даже прикинуть, в какую копеечку это вылилось повсеместно обсыраемым организаторам концерта. Итак, ближе к делу (а скорее телу этого самого гниющего Христа): </P>
+<P>За час до намеченного начала концерта возле здания кинотеатра с эпическим названием «Ленинград» стали появляться группы неформалов. Многие приехали издалека, хотелось пообщаться и выпить пивка или чего покрепче в дружеской обстановке. В 18-00 в зале еще чекались команды-участники вечера, а Роттинги отвечали на как всегда оригинальные вопросы журналистов. Вопреки надеждам меломанов, в помещение еще не пускали. В 18-30 , однако, в зал жидким потоком стали вливаться первые посетители festa. Витя Озолин, облаченный в бархатный халат, перед полупустым залом играть не привык, а посему первые звуки интро полились в зал в 19-10. К тому времени в помещении кое-кто уже был. </P>
+<P>“Flying”. Слушателей, знакомых с творчеством “Flying” хотя бы по последнему альбому группы (который о маленьких, но очень гордых птичках), выпущенному на славном московском лейбле «Союз», не смутил откровенно паршивый звук. Новый состав группы полностью оправдал доверие, оказанное ему бессменным фронтменом «летяг». Группа не изменила своим традициям и выступление прошло как всегда на высоком уровне. Но истинные любители гниющей плоти не смогли это оценить – они всё ещё находились на улице: кто пытался пробраться через огромную толпу и без телесных повреждений телепортироваться в зал, а кто и спокойненько пил белую и подправлял make-up. </P>
+<P>N.B. Проблема вечера – давка на входе, из-за чего множество моих знакомых и не знакомых так и не попали на “GriFFest”, была, к сожалению, неизбежна. Охрана на входе фанатично обследовала глубины бэгов на предмет наличия ножей, вилок, а также спиртного. О чудо! Нашлись и ножи, и вилки&#61514;, и, несмотря на чётко сформулированную на афишах мысль «проход со спиртным в любой таре запрещён», огненная вода, не налитая разве что в майонезные баночки. Придурки-охранники зверели, и на каждого последующего, возможно абсолютно адекватного металёра смотрели как на дебила. Так же нашлись суперэкономные люди, которые купили билеты по 10-15 грн. у неизвестных личностей&#61516;. Кому-то удалось пройти по палёным билетам, а кто-то не смог зайти и с настоящими, купленными за свои кровные (все билеты были пронумерованы, одинаковые номера исключались). Позвольте, господа, но это уже жлобство – экономить НА САМИХ СЕБЕ!!! Разве мамочка не говорила вам, что халява – не самая лучшая вещь в нашем меркантильном мире!?!?!?! Итак от всех, кто пришёл и не попал на концерт, кто прочувствовал тёплое плечо подпитого друга, с остервенением давящего на тебя, где-то между 5-м и 7-м поясничными позвонками, кто получил в морду от разозлённого наличием тупых волосатых тел охранника – огромное пафосное спасибо организаторам фэста и тем олигофренам , которые приходят не слушать музыку, а только лишь нажраться и повисеть.</P>
+<P>&nbsp;“Unerase”. Следующая команда, разделившая с Flying’ом неблагодарную миссию разогрева великих Роттингов – банда с почти диагностическим названием Энурез&#61514;. Из нового состава следует отметить барабанщика, отлично справляющегося со своим делом. Новый опять-таки вокалист в прикиде а-ля «Korn» вызвал резкую антипатию у true молодёжи. Многие возмутились настолько, что даже в музыке команды нашли песню, слизанную у «Korn». Но это была всего лишь новая композиция от «Unerase». Любители “Симфонии разума” – рыдайте, грядут перемены! К слову, недавно на гомельском концерте всем известный экс-лидер безвременно усопших «Gods Tower» гражданин Ножик охарактеризовал стиль группы как злобный trash-americano (по его же убеждению подобному стилю соответствует Pantera и Fear Factory). Всё же, если не обращать внимание на форму, можно оценить вполне съедобное содержание: достаточно интересное сочетание основного вокала со скримингом басиста и интересные гитарные партии. Но: юбку с вокалиста снять! </P>
+<P>“Rotting Christ”. Король умер, да здравствует король! Апофеоз вечера – выступление греков, - приводит в ликование тех, кто всё-таки попал на концерт. Удивительно (ну не привыкли мы к хорошему!) слаженное, чёткое и отработанное многолетним опытом выступление. К сведению интересующихся, в 2003 году у банды было 55 концертов, и по мнению Сакиса, это очень и очень мало. «Сам» был бесподобен! Мощный вокал и масса энергии, что выражалось в «хореографичных» прыжках по сцене (с несказанным удовольствием наблюдаю это на видео записи). Костас и Андреас (гитара и бас) как всегда на уровне. Барабанщик работает как машина, он же запускает с мини-диска запись величественных клавиш – полный эффект присутствия отсутствующего члена команды. Лаконичные, запоминающиеся рифы, сокрушительные партии ударных и леденящий душу голос, провозглашающий царство Сатаны отныне и вовеки веков. Народ машет хаерами, подпевает, и умудряется фотографировать кумиров. Концепция дня всех святых иль просто мрачного праздника Halloween оправдана, вечер удался. Занавес, господа. </P>
+<P><B>Часть вторая, заключительная.</B> </P>
+<P>“Rotting Christ” находились в Киеве 3 дня. Все желающие имели возможность лицезреть кумиров вблизи в магазине «Маска» 1 ноября. Раздача слонов прошла в дружественной обстановке (пиво и автографы). После сего действа, сопровождаемые криками толпы, скандирующей название банды, Роттинги погрузились в авто организаторов (Евгения и Екатерины) и укатили смотреть город. Помимо большого количества ресторанов, в которых греки смогли отведать национальные украинские блюда, также присутствием были отмечены музей ВОВ, Киево-Печерская Лавра и другие достопримечательности нашей столицы. Программа пребывания была составлена соответственно просьбам гостей. Прелести украинской марки «Оболонь» смог оценить только барабанщик группы, увёзший домой целую батарею различных бутылок. Остальные, к сожалению, не употребляют. В процессе общения выяснилось, что участники группы слушают огромное количество музыки различных направлений. Особое умиление вызывают Pink Floyd и Rage. Прощальный ужин состоялся в кофейне “Бабуин”, под аккомпанемент живой джазовой музыки. Сакис енд Ко уехали полностью очарованные Киевом, увозя в багаже массу сувениров, лихорадочно скупавшуюся ими в течении всех трёх дней. </P>
+<P>Следующий приезд греков намечен ими на осень 2004 года, после выхода нового альбома, над созданием которого они трудятся в данный момент. </P>
+<P>АМИНЬ.</P>
+Автор: Vit Belov
+
+### 06.02.2004 news Rotting Christ работают над альбомом и готовятся к мировому турне
+
+<P>Rotting Christ продолжают работу над новым альбомом, который будет записан в Греции в мае месяце и выйдет в сентябре по окончании мирового турне. Возвращение к музыкальным идеям времён "Thy Mighty Contract", имевшее место на двух последних альбомах, будет продолжено и здесь. Тем временем группу покинул клавишник Джордж и предстоящие концерты Rotting Christ будут играть в формате квартета. Расставание было мирным по взаимному согласию. В дальнейшем решено играть вчетвером, поскольку это больше соответсвует духу начала 90-х, к воплощению которого стремится сейчас Rotting Christ.</P>
+Автор: Morsus
+
+### 06.02.2004 news ROTTING CHRIST is working on their new album
+
+<P>ROTTING CHRIST is currently working on their new album the last months which will be recorded in Greece in May and will be released in September when a worlwide tour is planed. The returning back to the roots way the band has choosed in the last couple of albums goes on with that album too and it really brings back memories of THY MIGHTY CONTRACT as well as a perfect follow up of their last great reviewed GENESIS album.</P>
+<P>Meanwhile the band will be playing some shows in Europe as a four member as the keybord player (George) doesn't play anymore with the band.His departure took part on a friendly way and the follow up of the band as a four members show even more their will and the need to touch the earlier 90' philosophy and sound.</P>
+Автор: Morsus
+
+### 26.06.2004 news ROTTING CHRIST назвали новый альбом
+
+Новый альбом <B>ROTTING CHRIST</B> будет называться <B>"Sanctus Diavolos"</B> и выйдет в сентябре на <B>Century Media</B>. Альбом был записан в <B>SCA Studios</B>&nbsp;и смикширован в <B>Studio Fredman</B>&nbsp; <B>Fredrik Nordstrom</B>. &nbsp;&nbsp;
+Автор: Vit Belov
+
+### 13.07.2004 news ROTTING CHRIST покинул гитарист
+
+<B>ROTTING CHRIST</B> расстались с гитаристом <B>Costas</B>, из-за личных разногласий. Замена пока не названа.
+Автор: Vit Belov
+
+### 10.08.2004 news Новый альбом ROTTING CHRIST
+
+<P><B>ROTTING CHRIST</B> опубликовали полную информацию о новом альбоме <B>"Sanctus Diavolos", </B>который выйдет 20 сентября на <B>Century Media</B>. Альбом был спродюсирован вокалистом-гитаристом <B>Sakis Tolis</B>&nbsp;в <B>SCA Studios</B> в Афинах и смикширован <B>Fredrik Nordstr&#246;m</B>&nbsp;в <B>Studio Fredman</B>. Трэк-лист:</P>
+<P>01. <B>Visions Of A Blind Order</B> (3:46)<BR>02. <B>Thy Wings Thy Horns Thy Sin</B> (4:13)<BR>03. <B>Athanati Este</B> (5:40)<BR>04. <B>Tyrannical</B> (5:07)<BR>05. <B>You My Cross</B> (4:19)<BR>06. <B>Sanctimonius</B> (3:16)<BR>07. <B>Serve In Heaven</B> (3:55)<BR>08. <B>Shades Of Evil</B> (5:14)<BR>09. <B>Doctrine</B> (6:28)<BR>10. <B>Sanctus Diavolos</B> (6:41)<BR></P>
+Автор: Vit Belov
+
+### 01.02.2005 reviews Дьявол тоже может быть святым
+
+<P>Девятый альбом греков с первых минут поразил меня своей душевностью, мелодикой&nbsp;и агрессивностью. После&nbsp;первого прослушивания этого материала&nbsp;с ураганной риффовой поддержкой, крепкими соло и смешанным хором, вселяющим ужас в подсознание (уж в этом греки мастера), я посчитал его шедевром и, бесспорно, лучшим в дискографии команды. Но вот дальнейшие прослушивания давались уже с некоторым напряжением.&nbsp;Вроде бы они продолжают линию последних двух альбомов, ознаменовавших возврат группы к корням, но в то же время, новые вещи после тщательного прослушивания выглядят&nbsp;немного вялыми и невзрачными. Слушаешь их, все клево, альбом отличный, но уже не испытываешь того удовольствия, которое было раньше. То ли динамики альбому не хватает, то ли интересных мелодий. Хотя в профессионализме музыканты выросли так, что дальше некуда. Записан альбом был в одной из лучших греческих студий, прошел микширование в <STRONG>Studio Fredman</STRONG> под руководством самого <STRONG>Фредрика Нордстрема</STRONG>. Так что о качестве можно ничего не говорить. В записи принял участие смешанный хор из восьми человек (тот самый, что принимал участие в записи последнего <STRONG>SEPTIC FLESH</STRONG>), гостевым участием также отметился гитарный виртуоз <STRONG>Gus G</STRONG>. Так что, по всем параметрам это должен был быть суперальбом, но на самом деле это не так. Во всяком случае, я от греков ожидал большего. </P>
+<P>Диск предоставлен компанией <A href="http://www.fono.ru/">ФОНО</A></P>
+Автор: Dimas
+
+### 04.05.2005 news Anorexia Nervosa, Vader и Rotting Christ в совместном турне!!!
+
+<P>Тур начинается 5 сентября и закончится 23 октября. 49 дней! 49 концертов! Голландия, Бельгия, Франция, Испания, Португалия, Италия, Германия, Скандинавские государства и другие.....&nbsp;&nbsp; но, к сожалению, ни одного концерта в России. </P>
+<P>&nbsp;</P>
+Автор: Bizarre
+
+### 18.10.2005 news ROTTING CHRIST на Season Of Mist
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Греки <STRONG>ROTTING CHRIST</STRONG> подписали контракт с <STRONG>Season Of Mist</STRONG>. </FONT></P>
+Автор: Vit Belov
+
+### 03.11.2005 articles ROTTING CHRIST в Москве: &quot;Поклонники black-death-metal остались довольны...&quot;
+
+<P><IMG height=201 alt="" hspace=0 src="/images/articles_rus/2005.11/9702.jpg" width=150 align=left border=5>Во первых строках отчёта о концерте греков-антихристей в Москве хочу поблагодарить организаторов этого концерта Musickness и Flaming Arts. Поблагодарить их хочу не за отменную организацию, не за накладки с пребыванием артистов в Москве и выступление их в середине сэта, а за то, что без них мы никогда бы не смогли лицезреть black и death-metal команды мирового уровня. И если с ANCIENT ребята попали «пальцем в небо», то с ROTTING CHRIST всё получилось как нельзя лучше.</P>
+<P>Открывали концерт пермяки ACT OF GOD. Как раз в этот день у ребят вышел альбом “The Place Of Worship”, и выступление с Роттингами могло стать для них неплохим подарком. Могло, да не стало. В зале во время их выступления находилось всего человек 20, остальные ещё и не думали заходить в клуб. Что ж, они не увидели группу с очень оригинальным материалом. Мелодичная, апокалиптичная музыка с лидирующим женским вокалом должна обратить на себя внимание гурманов от black-metal. У <IMG height=201 alt="" hspace=0 src="/images/articles_rus/2005.11/9703.jpg" width=150 align=right border=5>столичной публики ещё будет возможность увидеть ACT OF GOD в действии – 18 ноября и 10 декабря в Релаксе.</P>
+<P>Вторыми выступали гости из Белоруссии IRRATUS DOMINIUS. У группы также вышел альбом на Flaming Arts совсем недавно, и с такими достойными выступлениями у группы будет возможность продать достаточное количество дисков. Трио отдолбило великолепный нигилистичный тру-блэк<IMG height=187 alt="" hspace=0 src="/images/articles_rus/2005.11/9705.jpg" width=250 align=left border=5>-метал. Никаких мелодий – только забой. Обратите внимание!!! Уже во время их выступления в зале собралось довольно много народа. Немудрено, ведь следующими вышли хэдлайнеры.</P>
+<P>Столь странное расположение ROTTING CHRIST в сэте объяснялось просто. Вся странствующая труппа вылетала в Томск в этот день и опаздывала на самолёт. Надеюсь, никто не опоздал на их выступление, оно было очень достойным. Мощное рубилово и забой чередовались с мелодичными композициями, этим группа всегда и славилась. Её никогда нельзя было отнести к обычному black-metal. Музыканты не отставали от публики. Отрабатывали по полной, особенно порадовал гитарист-вокалист Sakis, который скакал по сцене так, как будто он из группы SOULFLY&#61514; Отыграв сэт, греки ретировались, а с ними зал покинуло некоторое количество фэнов. Началась вторая часть концерта.</P>
+<P><IMG height=187 alt="" hspace=0 src="/images/articles_rus/2005.11/9704.jpg" width=250 align=right border=5>MIND ECLIPSE выглядели не слишком довольными тем, что им пришлось выступать «во вторую смену». Нет, их death-metal был достаточно зажигательным, вокалист отрывался, как мог, но мне показалось, что градус настроя самих исполнителей <IMG height=209 alt="" hspace=0 src="/images/articles_rus/2005.11/9706.jpg" width=150 align=left border=5>был достаточно низок. Плюс публика явно отходила после ROTTING CHRIST. В итоге MIND ECLIPSE оставили не очень сильное впечатление, но надо учесть все дополнительные условия их выступления.</P>
+<P>Завершали концерт CRYSTAL ABYSS, их я, к сожалению, не дождался, поэтому последней группой вечера для меня стали SINFUL. Москвичи выступали с новым басистом. Им стал музыкант из группы ACT OF GOD. Что ж… Можно считать, что всё у ребят прошло нормально. За исключением тех же недостатков, которые были у MIND ECLIPSE, не очень хорошего настроения, и долгой настройки, выступление можно считать «зачётным». Уверен, что у SINFUL были лучшие концерты, но даже в таком виде их можно считать одной из самых внятных российских sympho-black-metal групп.</P>
+<P>Поклонники black-metal могут быть довольны проведённым вечером. Я себя к ним отношу, поэтому я тоже остался доволен. Ждём продолжения… </P>
+Автор: Vit Belov
+
+### 28.02.2006 news Гитарист NIGHTFALL в ROTTING CHRIST
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>NIGHTFALL George Bokos</STRONG> стал членом <STRONG>ROTTING CHRIST</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 23.11.2006 news Подробности о новом альбоме ROTTING CHRIST
+
+<P><STRONG>Season of Mist</STRONG> объявил 22 января 2007 года датой релиза нового альбома&nbsp;легендарного греческого коллектива <B>ROTTING CHRIST</B> под названием <B>"Theogonia"</B>. Это будет дебют для нового гитариста группы <STRONG>George Bokos (NIGHTFALL). </STRONG>Окончательный трек-лист альбома:<BR><BR>1. <B>The Sign of prime Creation</B><BR>2. <B>Keravnos Kivernitos</B> <BR>3. <B>Enuma Elish</B> <BR>4. <B>Gaia Tellus</B> <BR>5. <B>Helios Hyperion</B> <BR>6. <B>Nemecic</B> <BR>7. <B>He, the Aethyr</B> <BR>8. <B>Phobos' Synagogue</B> <BR>9. <B>Rege Diabolicus</B> <BR>10. <B>Threnody</B></P>
+<P>Одну из новых песен можно скачать из нашего мп3 раздела.</P>
+Автор: Dimas
+
+### 06.06.2007 news THE FLAMING ARTS festival tour 2007!!!
+
+<P>Белорусское концертное агентство <STRONG>THE FLAMING ARTS</STRONG> сообщает о грандиозном событии в сентябре. Первый в СНГ фестивальный тур, участие в котором примут сразу четыре хэдлайнера. На одной сцене этого фестиваля выступят -<STRONG> VADER</STRONG> (Польша), <STRONG>ROTTING CHRIST</STRONG> (Греция), <STRONG>KRISIUN</STRONG> (Бразилия), <STRONG>INCANTATION</STRONG> (США), а так же несколько саппорт групп из Европы. <STRONG>THE FLAMING ARTS FESTIVAL</STRONG> пройдет сразу в нескольких крупнейших городах СНГ и порадует максимальное количество фэнов тяжелой музыки! Следите за информацией!</P>
+Автор: Vit Belov
+
+### 07.07.2007 news Даты THE FLAMING ARTS FESTIVAL TOUR
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Стали известны даты анонсируемого <STRONG>The Flaming Arts Tour&nbsp;Festival</STRONG>&nbsp;по России и Беларуси. Событие примет старт 16 сентября в Санкт-Петербурге и закончится 23 сентября где-то в Беларуси.</FONT></P>
+<P>16.09 - Санкт-Петербург, Орландина<BR>18.09 -&nbsp;Уфа, Огни Уфы&nbsp;<BR>19.09 -&nbsp;Екатеринбург, tba&nbsp;<BR>20.09 -&nbsp;Магнитогорск, ДК Орджоникидзе&nbsp;<BR>21.09 - Самара, Строковский Парк<BR>22.09 -&nbsp;Москва, Точка&nbsp;<BR>23.09 -&nbsp;Беларусь, tba&nbsp;<BR></P>
+Автор: Vit Belov
+
+### 18.07.2007 reviews «Последние из греческих могикан
+
+<P>«Последние из греческих могикан” ROTTING CHRIST отдуваются за троих. Говорят, SEPTIC FLESH возвращаются, но пока Seth больше занят рисованием, Sakis поддерживает реноме групп Эллады. Безусловно, там и кроме SEPTIC FLESH, NIGHTFALL и ROTTING CHRIST хватает групп, но именно эти три коллектива создавали и ковали славу греческого металла, а, кроме того, эти парни создали незабываемое греческое black-death звучание, где хаотичность соседствует с симфоничностью и шаманская монотонность с гипермелодичностью.</P>
+<P>Таким шаманским получился новый альбом классиков из ROTTING CHRIST. На протяжении всей пластинки Sakis как будто зачитывает какие-то древние тексты, эта его манера пения соседствует с мощными black-metal кусками, хорами, атмосферными вставками, например, «пением муэдзина». “Theogonia” создаёт незабываемое настроение. Подобным незабываемым настроением были наполнены и ранние работы группы, и пластинки тех же SEPTIC FLESH. Загнать в рамки какого-то стиля ROTTING CHRIST не представляется возможным. Здесь есть всё, и в то же время здесь нет ничего. Как и некоторые другие, особо талантливые музыканты, греки не обращают внимания на стили, из-за того, что не нуждаются в каких-то ярлыках, чтобы продавать свою музыку. Всем известно это имя - ROTTING CHRIST – кто любит, то поймёт.</P>
+<P>Новый альбом “Theogonia” должен понравиться всем поклонникам группы. Здесь нет ничего лишнего. Кроме этого, группа окончательно прошла свой «брутальный этап», что должно порадовать тех, кто расценивает RC не как ортодоксальную black-death-metal группу.</P>
+Автор: Vit Belov
+
+### 23.08.2007 news Moscow Metal Fest 2007
+
+<P>
+<CENTER><IMG height=450 src="/images/shows_rus/2007.09/11778.jpg" width=300 border=0></CENTER>
+Автор: Dimas
+
+### 29.08.2007 articles THE FLAMING ARTS FESTIVAL: пресс-релиз
+
+<P>THE FLAMING ARTS FESTIVAL</P>
+<P>VADER (Польша)<BR>ROTTING CHRIST (Греция)<BR>KRISIUN (Бразилия)<BR>INCANTATION (США)<BR>AMENTI (Великобритания)<BR>RIUL DOAMNEI (Италия)</P>
+<P>В сентябре этого года состоится уникальное событие для экстремальной сцены СНГ – THE FLAMING ARTS FESTIVAL TOUR 2007. Уже несколько раз делались попытки, и порой достаточно удачные, по проведению фестивалей в таких городах, как Москва, Санкт-Петербург или Киев, но впервые фэны экстремальной музыки других населенных пунктов увидят что-то подобное в своем городе! В программе фестиваля сразу 4 больших хэдлайнера: INCANTATION, KRISIUN, ROTTING CHRIST и VADER, а так же не менее интересный саппорт из-за границы. <BR>Что объединяет эти 4 коллектива из 4-х стран с 3-х разных континентов. Прежде всего, существенный вклад в развитие современной экстремальной музыки, высочайшее качество исполнения и безусловный профессионализм, как в студийной, так и в концертной деятельности. Все группы имеют огромный туровый опыт, в том числе значатся за&nbsp; ними и совместные выступления, правда, в такой связке они впервые. </P>
+<P>INCANTATION – группа, входящая в высшую лигу американского death metal появились в 1989 году, во времена появления множества death metal групп. Эстафету Флориды приняли Нью-Йорк, Калифорния, стали появляться группы, играющие death metal в Европе. Одним из новоявленных проектов стали INCANTATION из Пенсильвании во главе с гитаристом Джоном Макинти. Этот обладатель шотландской фамилии единственный человек, который всегда занимался этой группой. В остальном же, состав коллектива пережил просто немыслимое число изменений: к 2002 году в группе успело попеть 6! вокалистов, периодически они совмещали вокал с басовыми партиями. В итоге, все это настолько надоело Макинти, что он принял решение взять вокальные партии на себя, что после года подготовки и сделал. Именно его голос мы слышим на последних двух альбомах классиков американского death metal. За свою 18 летнюю карьеру группа успела побывать с концертами практически на всех континентах и всегда привозила с собой невероятно мощное и качественное шоу, т.к. считают, что фэны группы заслуживают этого и не могут быть разочарованы в коллективе. Последний диск, "Primordial Domination", вышел в сентябре прошлого года. Группа дала множество концертов в США и Европе, в октябре новый альбом будет представлен и у нас.</P>
+<P>KRISIUN – группа гиперскоростных братьев, заслуженных брутальщиков из Бразилии, которые снискали себе легендарную репутацию в мире, и всегда ассоциировались с высоким качеством музыки и уважением среди фэнов.&nbsp; Бразилия – это страна с множеством metal коллективов, правда за пределами страны Амазонки они в большинстве своем мало известны, исключение составляет совсем небольшое число команд, среди них Sepultura, Angra, Soulfly и, безусловно, KRISIUN. Они образовались в 1990 году, в 1995-м вышел дебютный альбом, сегодня на их счету уже 7 полноформатников, кроме того, в прошлом году вышел первый DVD коллектива. Трио начало давать концерты зарубежом с конца 90-х годов, сегодня на их счету уже более полутысячи живых выступлений за пределами родины (даже в Японии!), они постоянные участники фестивальных дэт-металлических туров. Cannibal Corpse, Nile, Immolation, Cryptopsy, Vader, Decapitated, Dying Fetus, Deicide, Behemoth, Morbid Angel - вот далеко не полный список групп, с которыми KRISIUN ездили в туры. <BR>На сей раз в сетке их гастрольного графика значатся и города СНГ. </P>
+<P>ROTTING CHRIST - коллектив уникальный. С каждым годом они только и делают, что набирают обороты. На первых демо группы Сакиса Толиса мы слышим очень сырой и грязный death metal, чуть позже начинают проскальзывать элементы black metal, так или иначе в 1993 году ROTTING CHRIST выпускают свой первый релиз "Thy Mighty Contract", который явился настоящим издевательством над критиками. Привычная техника по навешиванию ярлыка, определению жанра и т.п. честно провалилась, ROTTING CHRIST творили в своем собственном ключе, соединяя элементы различных музыкальных стилей и в&nbsp; то же время оставаясь уникальными и непохожими ни на одну из существующих групп европейской экстремальной сцены. Дальше были "Non Serviam" и "Triarchy Of The Lost Lovers", альбомы, собственно и принесшие известность коллективу, музыку команды в итоге стали называть dark metal. Прошел десяток лет, в январе этого года свет увидел уже 9-ый студийник группы, их музыка по-прежнему оригинальна: атмосферные клавиши, хоры, торжественное звучание... Сакис постоянно экспериментирует, так, например, последние релизы звучат более быстро и агрессивно, чем работы конца 90-х. В 2005 году они уже посещали Гомель, Киев и несколько российских городов, пришедшие на концерты фэны были невероятно довольны их выступлениями и той энергией, которая исходила от горячих парней из Греции. С тех пор множество поклонников группы желали услышать их вновь, теперь такой шанс представляется.</P>
+<P>Знаменитые VADER станут главными хэдлайнерами фестиваля. Этой польской формации давеча стукнуло 20 лет. Достижения VADER трудно переоценить. Группа во многом уникальная для Европы, пионеры польской экстремальной сцены, которые её во многом-то и подняли. Уже в 1990-1991 годах VADER начинают активно гастролировать, в том числе дважды посещают Москву! В 1993 выходит дебютник коллектива и сразу же после релиза поляки отправляются сначала в европейское, а потом и американское турне. С тех пор вышло ещё 7 студийных и 2 концертных альбома, VADER давно стали классикой европейского death metal, став на одну ступень с такими монстрами, как CANNIBAL CORPSE или MORBID ANGEL. Музыканты во главе с бессменным лидером коллектива вокалистом и гитаристом Питером ведут более чем активную гастрольную деятельность. На последних альбомах музыка группы стала более мелодичной, многообразной, выросла роль клавиш, в то же время никуда не делись агрессия и потрясающая энергетика, пронизывающие все творчество VADER. Последний раз этот весьма любимый на просторах СНГ коллектив посещал нас в 2004 году, теперь они возвращаются, чтобы в очередной раз обрушить на нас лавину убийственной техники и познакомить с последним альбомом "Impressions in Blood". Многотысячная армия фэнов из СНГ давно заждалась польских корифеев! Польский танк уже в пути!!!</P>
+<P>&nbsp;</P>
+<P>Помимо столь именитых хэдлайнеров в фестивале примут участие ещё две очень интересные группы – английский modern thrash metal AMENTI, молодые, но невероятно профессиональные музыканты, которые успели сыграть уже множество туров по Великобритании со многими монстрами экстремальной сцены, а так же итальянский sympho black metal RIUL DOAMNEI, совсем недавно выпустивший свой дебютный альбом для европейского и японского рынков посредством французского лейбла DEADSUN RECORDS.</P>
+<P>Ждем вас на концертах THE FLAMING ARTS FESTIVAL TOUR 2007.<BR>Пресс-релиз подготовил Алан Ахметов (TheMetalList.com)</P>
+Автор: Vit Belov
+
+### 17.09.2007 news THE FLAMING ARTS FESTIVAL
+
+<CENTER><IMG height=567 src="/images/news_rus/2007.09/11831.jpg" width=400 border=0></CENTER>
+Автор: Dimas
+
+### 11.12.2007 news ROTTING CHRIST отсняли DVD
+
+<P><STRONG>ROTTING CHRIST</STRONG> отсняли свой концерт 8 декабря в Афинах для выпуска на DVD. Трэк-лист:</P>
+<P>01. Intro <BR>02. <B>The Sign Of Prime Creation</B> (Theogonia) <BR>03. <B>Keravnos Kivernitos</B> (Theogonia) <BR>04. <B>Athanatoi Este</B> (Sanctus Diavolos) <BR>05. <B>Enuma Elish</B> (Theogonia) <BR>06. <B>King Of A Stellar War</B> (Triarchy Of The Lost Lovers) <BR>07. <B>The Fifth Illusion</B> (Non Serviam) <BR>08. <B>Archon</B> (Triarchy Of The Lost Lovers) <BR>09. <B>The First Field Of The Battle</B> (Triarchy Of The Lost Lovers) <BR>10. <B>Shadows Follow</B> (Trirchy Of The Lost Lovers) <BR>11. <B>The Sign Of Evil Existence</B> (Thy Mighty Contract) <BR>12. <B>Coronation Of The Serpent</B> (Thy Mighty Contract) <BR>13. <B>The Old Coffin Spirit</B> (Passage To Arcturo) <BR>14. <B>The Mystical Meeting</B> (Apokathilosis EP) <BR>15. <B>Thou Art Blind</B> (Khronos 666) <BR>16. <B>Morality Of A Dark Age</B> (Non Serviam) <BR>17. <B>You My Cross</B> (Sanctus Diavolos) <BR>18. <B>Saturn Unlock Avey's Son</B> (Non Serviam) <BR>19. <B>Exiled Archangels</B> (Thy Mighty Contract) <BR>20. <B>Sorrowfull Farewell</B> (A Dead Poem) <BR>21. <B>Among Two Storms</B> (A Dead Poem) <BR>22. <B>After Dark I Feel</B> (Sleep Of The Angels) <BR>23. <B>In Domine Sathana</B> (Genesis) <BR>24. <B>Nemecic</B> (Theogonia) <BR>25. <B>Under The Name Of Legion</B> (Genesis) <BR>Encore: <BR>26. <B>Societas Satanas</B> (THOU ART LORD cover) <BR>27. <B>Non Serviam</B> (Non Serviam) </P>
+Автор: Vit Belov
+
+### 04.02.2009 news DVD от ROTTING CHRIST
+
+<P><IMG height=406 alt="" hspace=0 src="/images/news_rus/2009.02/13557.jpg" width=300 align=right border=5>23 февраля на <STRONG>Season Of Mist</STRONG> выйдет 2DVD/2CD издание от <STRONG>ROTTING CHRIST</STRONG> <STRONG>"Non Serviam - A 20 Year Apocryphal Story". </STRONG>Концерт, ставший основой этого релиза, был отснят в декабре 2007 года в Афинах. На нём группа исполнила лучшие вещи за всю свою карьеру. Трэк-лист:</P>
+<P>01. Intro <BR>02. <B>The Sign Of Prime Creation</B> (Theogonia) <BR>03. <B>Keravnos Kivernitos</B> (Theogonia) <BR>04. <B>Athanatoi Este</B> (Sanctus Diavolos) <BR>05. <B>Enuma Elish</B> (Theogonia) <BR>06. <B>King Of A Stellar War</B> (Triarchy Of The Lost Lovers) <BR>07. <B>The Fifth Illusion</B> (Non Serviam) <BR>08. <B>Archon</B> (Triarchy Of The Lost Lovers) <BR>09. <B>The First Field Of The Battle</B> (Triarchy Of The Lost Lovers) <BR>10. <B>Shadows Follow</B> (Trirchy Of The Lost Lovers) <BR>11. <B>The Sign Of Evil Existence</B> (Thy Mighty Contract) <BR>12. <B>Coronation Of The Serpent</B> (Thy Mighty Contract) <BR>13. <B>The Old Coffin Spirit</B> (Passage To Arcturo) <BR>14. <B>The Mystical Meeting</B> (Apokathilosis EP) <BR>15. <B>Thou Art Blind</B> (Khronos 666) <BR>16. <B>Morality Of A Dark Age</B> (Non Serviam) <BR>17. <B>You My Cross</B> (Sanctus Diavolos) <BR>18. <B>Saturn Unlock Avey's Son</B> (Non Serviam) <BR>19. <B>Exiled Archangels</B> (Thy Mighty Contract) <BR>20. <B>Sorrowfull Farewell</B> (A Dead Poem) <BR>21. <B>Among Two Storms</B> (A Dead Poem) <BR>22. <B>After Dark I Feel</B> (Sleep Of The Angels) <BR>23. <B>In Domine Sathana</B> (Genesis) <BR>24. <B>Nemecic</B> (Theogonia) <BR>25. <B>Under The Name Of Legion</B> (Genesis) <BR>Encore: <BR>26. <B>Societas Satanas</B> (THOU ART LORD cover) <BR>27. <B>Non Serviam</B> (Non Serviam) </P>
+<P>Превью DVD:</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/EZiT0fRKia0&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/EZiT0fRKia0&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 20.09.2009 news ROTTING CHRIST начали запись
+
+<P>Греки <STRONG>ROTTING CHRIST</STRONG> начали запись нового альбома в студии <STRONG>Lunatach Studios. </STRONG>Группа сочиняла материал для этой работы больше года. Пластинка выйдет в следующем году.</P>
+Автор: Vit Belov
+
+### 06.11.2009 news Diamanda Galas в ROTTING CHRIST
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый, пока не названный, альбом <STRONG>ROTTING CHRIST</STRONG> уже записан. Стали известны некоторые подробности. Например, на одной из песен спела знаменитая <STRONG>Diamanda Galas</STRONG>. Также среди приглашённых музыкантов<STRONG> Alan</STRONG> из <STRONG>PRIMORDIAL</STRONG>. Подробности последуют.</FONT></P>
+Автор: Vit Belov
+
+### 28.11.2009 news ROTTING CHRIST назвали альбом
+
+<P>Новый альбом <STRONG>ROTTING CHRIST</STRONG> будет называться <STRONG>"Aealo". </STRONG>Пластинка выйдет 18 февраля на <STRONG>Season Of Mist</STRONG>.</P>
+Автор: Vit Belov
+
+### 18.12.2009 news Новый альбом ROTTING CHRIST
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=358 alt="" hspace=0 src="/images/news_rus/2009.12/15803.jpg" width=400 align=right border=5>Новый альбом греков <STRONG>ROTTING CHRIST</STRONG> <STRONG>"Aealo" </STRONG>выйдет 15 февраля на <STRONG>Season Of Mist</STRONG>. Альбом был записан в студии <STRONG>Lunatach Studios</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Aealo</B><BR>02. <B>Eon Aenaos</B><BR>03. <B>Demonon Vrosis</B><BR>04. <B>Noctis Era</B><BR>05. <B>dub-sag-ta-ke</B><BR>06. <B>Fire Death and Fear</B><BR>07. <B>Nekron Iahes... </B><BR>08. <B>...Pir Threontai</B><BR>09. <B>Thou Art Lord</B><BR>10. <B>Santa Muerte</B><BR>11. <B>Orders from the Dead</B></P>
+Автор: Vit Belov
+
+### 02.04.2010 reviews Фолковый ROTTING CHRIST
+
+<P>Часто встречаются любители тяжёлой музыки, которые ожидают от своих любимых групп постоянного развития и перемен. Большинство из этих товарищей не ведают, о чём просят, но есть группы, которые специально созданы для них. Среди этих коллективов ROTTING CHRIST, чей новый альбом “AEALO” способен поразить кого угодно.</P>
+<P>Уже с самых первых звуков, раздающихся из колонок, становится не по себе. Национальный греческий хор Ipiros, очень похожий по своей тональности на традиционное русское пение, разрывает мозг. Безусловно, и предыдущие работы ROTTING CHRIST строились на контрасте, мощные риффы и атмосферные вкрапления, подчёркивающие мрачное настроение. На новой пластинке в качестве «вкраплений» избран фолк. Наряду с «хором старушек» здесь присутствуют народные инструменты и традиционные мелодии. В некоторых местах ROTTING CHRIST напомнили мне АРКОНУ! За всем этим дорогим великолепием куда-то испарилась тяжесть звучания. На “AEALO” музыка группы представляет собой скорее атмосферные фрагменты с добавкой black-metal, нежели наоборот. Скорее всего, слушателю необходимо полностью погрузиться в музыку греков, чтобы прочувствовать её до конца. Видимо, в этом случае поклонники группы смогут даже дослушать до финальных аккордов широко анонсируемый трэк с участием певицы Diamanda Galas. </P>
+<P>Ничего страшного не произошло. Многим любителям этники и мелодий “AEALO” понравится очень сильно. Если же вам этот альбом не по душе, как и мне признаюсь, нужно дождаться следующего. Стилевая направленность ROTTING CHRIST изменяется по синусоиде. В прошлом веке у группы уже были столь же мелодичные альбомы, теперь греков должно качнуть обратно в сторону брутальной составляющей их творчества.</P>
+Автор: Vit Belov
+
+### 16.11.2010 news Журнал Decibel выпустил специальный коллекционный номер, посвящённый стилю Black Metal
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17617.jpg" width=320 height=429>В специальный выпуск журнала <STRONG>Decibel</STRONG>, получивший название "<STRONG>Black Metal Hall Of Fame</STRONG>", вошло восемь историй из общирного склепа стиля&nbsp;<STRONG>Black Metal</STRONG>.&nbsp;Выпуски журнала&nbsp;серии <STRONG>"Hall Of Fame"</STRONG> рассказывают об истории создания наиболее важных альбомов экстремальной музыки, а так же, содержат интервью с музыкантами, принимавшими участие в записи каждого&nbsp;конкретного альбома.&nbsp;</P>
+<P>Перечень историй вошедших в журнал:</P>
+<P><STRONG>BURZUM</STRONG> - "Filosofem" (1996) *<BR itxtvisited="1"><B itxtvisited="1">DARKTHRONE</B> - "Transilvanian Hunger" (1994)<BR itxtvisited="1"><B itxtvisited="1">EMPEROR</B> - "In The Nightside Eclipse" (1995)<BR itxtvisited="1"><B itxtvisited="1">ENSLAVED</B> - "Frost" (1995)<BR itxtvisited="1"><B itxtvisited="1">IMMORTAL</B> - "At The Heart Of Winter" (1999)<BR itxtvisited="1"><B itxtvisited="1">ROTTING CHRIST</B> - "Thy Mighty Contract" (1993) *<BR itxtvisited="1"><B itxtvisited="1">SATYRICON</B> - "Nemesis Divina" (1996) *<BR itxtvisited="1"><B itxtvisited="1">VENOM</B> - "Welcome To Hell" (1981)<BR itxtvisited="1">*<EM>прежде никогда не публиковались.<BR itxtvisited="1"></P></EM>
+<P>Данный номер журнала не доступен для подписчиков. Его можно преобрести в некоторых розничных магазинах или&nbsp;заказать онлайн по адресу: <A href="http://store.decibelmagazine.com/collections/special-issues/products/black-metal-hall-of-fame-special-issue">http://store.decibelmagazine.com/collections/special-issues/products/black-metal-hall-of-fame-special-issue</A></P>
+Автор: Headcrusher
+
+### 06.08.2011 news ROTTING CHRIST попали на саундтрек
+
+<P>Песня с последнего альбома <STRONG>ROTTING CHRIST</STRONG> <STRONG>"Demonon Vrosis" </STRONG>была использована в трейлере нового итальянского фильма ужасов <STRONG>"Morituris", </STRONG>который можно посмотреть ниже. Фильм рассказывает ужасающую историю о Спартаке и гладиаторах.</P>
+<P><center><iframe width="640" height="390" src="http://www.youtube.com/embed/TlFhyXy0kNI" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 08.10.2012 news ROTTING CHRIST заканчивают запись
+
+<P>Греческие монстры<STRONG> ROTTING CHRIST</STRONG> заканчивают работу над новым альбомом, который выйдет в начале 2013 года на <STRONG>Season Of Mist</STRONG>. Группа провела более четырёх месяцев в студии <STRONG>Deva Soundz, </STRONG>где записала "с мистический и оккультный" альбом за всю свою историю.</P>
+<P>Предыдущий альбом <STRONG>ROTTING CHRIST "Aealo"</STRONG> вышел в марте 2010 года.</P>
+<P><center><IMG border=0 src="/images/news_rus/2012.10/24910.jpg" width=475 height=481></P>
+Автор: Vit Belov
+
+### 17.11.2012 news ROTTING CHRIST назвали альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая работа<STRONG> ROTTING CHRIST</STRONG> получила название <STRONG>"Do What Thou Wilt". </STRONG>Альбом выйдет 1 марта на <STRONG>Season Of Mist</STRONG>.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=0 alt="" src="/images/news_rus/2012.11/25059.jpg" width=416 height=245></FONT></P>
+Автор: Vit Belov
+
+### 22.03.2013 reviews Разновидности шаманских песнопений
+
+<P>Греки ROTTING CHRIST не один раз за свою богатую событиями и альбомами карьеру меняли собственное звучание. Группа отходила от black-metal к более мелодичному death-doom, затем возвращалась к своим корням, но на последних альбомах музыканты начали играть «зрелый» метал с собственным лицом. Мощный монотонный древнегреческий звук вкупе с красивыми неторопливыми мелодиями и неожиданными вкраплениями чистоголосых песнопений или женского вокала. Безусловно, ROTTING CHRIST поражают своей особой «шаманской» атмосферой, которая отсылает слушателя к языческим ритуалам разных древних религий.</P>
+<P>Новая работа с невозможным к написанию греческим названием уже третья в ряду новых альбомов ROTTING CHRIST с подобным звучанием. И этот «шаманский» шарм начинает уже понемногу утомлять. Приятно, когда музыка вызывает легко определимое эмоциональное состояние. С первых аккордов ROTTING CHRIST вгоняют в транс. После прослушивания пластинки ещё долго не можешь прийти в себя, не можешь понять, что это было и хочется включать снова и снова. Но точно такую же реакцию вызывал “Aealo”, а ещё более сильный восторг был от “Theogonia”. </P>
+<P>ROTTING CHRIST нужно придумывать что-то новое. Этот этап их занимательной карьеры, как это не печально, прошёл, и выпускать одно и то же под разными обложками как-то некрасиво. К тому же, на мой вкус, творчество этих греков не столь выразительно, как у их коллег SEPTIC FLESH.</P>
+Автор: Vit Belov
+
+### 17.06.2016 news Новый клип ROTTING CHRIST
+
+<p><strong>ROTTING CHRIST</strong> выложили в сеть видео на песню “<strong>Apage Satana</strong>”. Песня взята с альбома "<strong>Rituals</strong>", вышедшего в феврале на <strong>Season Of Mist/Mazzar</strong>. </p><p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/EroBj1i1zAs" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 17.06.2016 news ROTTING CHRIST: New video
+
+<strong>ROTTING CHRIST</strong> have posted the video for the song “<strong>Apage Satana</strong>”. Song taken from the album "<strong>Rituals</strong>", released in February on <strong>Season Of Mist/Mazzar</strong>.<p><center><iframe width="600" height="400" src="https://www.youtube.com/embed/EroBj1i1zAs" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### ROTTING CHRIST осенью.

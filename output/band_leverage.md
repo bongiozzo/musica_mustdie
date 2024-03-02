@@ -49,6 +49,38 @@
 * C группой "Brother Firetribe" Pekka Heino (vocal)
 * C группой "Purity" Valtteri Revonkorpi (drums)
 
+## Публикации
+
+### 23.01.2009 news LEVERAGE на Spinefarm
+
+<P>Финны <STRONG>LEVERAGE </STRONG>подписали контракт с <STRONG>Spinefarm</STRONG>. В настоящее время коллектив занят написанием материала для нового альбома, который выйдет осенью.</P>
+Автор: Vit Belov
+
+### 08.10.2009 news Новый альбом LEVERAGE
+
+<P>Третий альбом <STRONG>LEVERAGE</STRONG> <STRONG>"Circus Colossus" </STRONG>выйдет 4 ноября на <STRONG>Spinefarm</STRONG>. Несколько сэмплов можно послушать на <STRONG>MySpace</STRONG> страничке группы: <A href="http://www.myspace.com/leverageband">http://www.myspace.com/leverageband</A></P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2009.10/15240.jpg" width=200 align=right border=5>Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Rise</B> <BR itxtvisited="1">02. <B itxtvisited="1">Wolf And The Moon</B> <BR itxtvisited="1">03. <B itxtvisited="1">Movie Gods</B> <BR itxtvisited="1">04. <B itxtvisited="1">Worldbeater</B> <BR itxtvisited="1">05. <B itxtvisited="1">Rider Of Storm</B> <BR itxtvisited="1">06. <B itxtvisited="1">Legions Of Invisible</B> <BR itxtvisited="1">07. <B itxtvisited="1">Revelation</B> <BR itxtvisited="1">08. <B itxtvisited="1">Don't Keep Me Waiting</B> <BR itxtvisited="1">09. <B itxtvisited="1">Prisoners</B> <BR itxtvisited="1">10. <B itxtvisited="1">Broken Wings</B> <BR itxtvisited="1">11. <B itxtvisited="1">Mean And Evil</B> * <BR itxtvisited="1">12. <B itxtvisited="1">Walk On Home</B> * <BR itxtvisited="1"><BR itxtvisited="1">* Japanese bonus tracks</P>
+Автор: Vit Belov
+
+### 08.12.2009 news Новое видео LEVERAGE
+
+<P>Финны<STRONG> LEVERAGE</STRONG> выложили в сеть клип на песню <STRONG>"Wolf and the Moon" </STRONG>со своего нового альбома <STRONG>"Circus Colossus". </STRONG>Ролик был отснят во время презентации этой пластинки в Финляндии в прошедшем ноябре режиссёром <STRONG>Petri Siikanen</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/03ePbjRMjsk&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/03ePbjRMjsk&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 26.01.2010 reviews Финнам нравится, понравится и нам
+
+<P>Финская группа LEVERAGE, выпустив два альбома на Frontiers, переехала поближе к дому, на Spinefarm. Уже первый альбом на этом финском народном лэйбле принёс группе недюжинный успех в Финляндии. “Circus Colossus” попал в чарты и продержался там несколько недель.</P>
+<P>Что же так порадовало наших северных соседей? LEVERAGE, при должной раскрутке, способен поселиться практически в любом доме. Дело тут не в особом качестве музыки, которую представляют финны, а в её стиле. Мягкая и мелодичная, но с «тяжёлой» гитарой и приятными клавишами, она способна понравиться практически каждому. Спокойные мелодии с лёгким налётом неоклассики и приятным вокалом Pekka Heino (<A href="/ru/band/brother_firetribe/">BROTHER FIRETRIBE</A>) не вызывают никакого отторжения. Я бы сравнил новый альбом LEVERAGE с классическими пластинками <A href="/ru/band/royal_hunt/">ROYAL HUNT</A>. Здесь нет прямых аналогий, которые часто встречаются у групп-подражателей, но общее настроение и мелодизм чем-то напомнили мне творчество Andre Andersen.</P>
+<P>В общем и целом, прослушанная пластинка оставила приятное впечатление. На ней есть и мелодичные быстрые вещи, и грамотные баллады, но откровением LEVERAGE я бы не назвал. Начинки этой пластинке явно не хватает.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -75,6 +75,74 @@ Syrus Peters - Drums
 * C группой "Death" Terry Butler and Rick Rozz played in Death's "Leprosy"
 * C группой "Six Feet Under" Terry Butler played in Massacre
 
+## Публикации
+
+### 14.11.2002 articles Новинки лицензионного рынка (29.10 - 14.11)
+
+<p>Из-за праздничной недели мы скомпоновали две недели в одну и представили Вашему вниманию.<BR> Hard’n’Heavy правит бал на этой неделе, самой интересной новинкой на AMG стал CD Rondinelli/Tony Martin “Our Cross – Our Sins”. Созвездие музыкантов: Tony Martin (ex-Black Sabbath), Neil Murray (ex-White Snake, ex-Gary Moore, Company Of Snakes), Bobby Rondinelli (ex-Black Sabbath, ex-Rainbow, ex-Doro). Концертник Hughes/Turner “Live in Tokyo” – вошли вещи, как с предыдущего HTP, так и с сольных пластинок музыкантов и песни Deep Purple и Rainbow. Сюрприз – раннее не издававшийся в Европе студийный бонус “Against The Wall”. Угадайте, Eternal Flame “King Of The King” – что играют эти ребята? Ну, и на закуску переиздание двух альбомов швейцарских трэшеров Messiah “Hymn To Abremelin” и “Extreme Cold Wether” 1986-87 года. Кстати, у ART MUSIC GROUP открылся сайт http://www.artmusic-group.ru/<BR> Hard’n’Heavy и на CD-Maximum. Mark Boals и Jeff Scott Soto – новые альбомы друзей-товарищей певунов. Вокалисты всех гитаристов-мальмстиноидов выдают мощнейший дуплет. Приоритетным же альбомом октября стали не творчества этих «близнецов», а альбом Lithium “Cold”. Группа Johnny Hagel (Tiamat, Paradise Lost) выдаёт экспериментальный металл. Ну и, как всегда, куча малоизвестных коллективов. Deformity (death-metal), Olemus (black metal), Aurora (gothic-metal), Enter Chaos (death-metal), Heaven’s Cry (progressive metal). В последний момент было получено ещё одно обновление. Норвежцы Ashes To Ashes выступают в жанре progressive metal, который к тому же является ещё и «Грегорианским». В добавление к новому альбому Jeff Scott Soto вышел и его дебютник “Love Parade”. Также в продаже появилось переиздание классического альбома Living Death “Metal Revolution”, к оригиналу добавлены пять живых бонус-трэков.<BR> Fono наконец-то издала новый альбом Dark Tranquillity в лицензионном варианте, что станет несомненным хитом в ближайшие недели. Также к новинкам можно отнести новый альбом power-металлистов из Zonata “Buried Alive” и переиздание The Kovenant “The Times Before The Light” – перемикшированное в духе последних работ. Ну и, как обычно, в последнее время издание старинных хитов с Century Media. Вопрос только, как здорово, это будет продаваться, из-за наличия в продаже продвинутых пиратских версий данных пластинок (Tiamat “Skeleton Skeletron”, Moonspell “Irreligious”).<BR> Irond выдал 6 новинок на этой неделе. Основной позицией можно назвать сингл Lacrimosa 'Durch Nacht Und Flut' – представлен эксклюзивный материал и различные версии заглавного трэка. Специально для России есть 2 бонус-трэка, что увеличивает продолжительность диска до 30 минут. Новый альбом Raise Hell порадует всех любителей быстрого thrash. Загадкой недели можно назвать группу Winds – проект Hellhammer’a (Mayhem, The Kovenant). Группа представляет gothic-death-doom c живыми струнными, потенциальный хит. Новейший альбом, кому-то известной, группы Stormwitch адресован любителям германского heavy metal. А старый альбом synth gothic формации Girls Under Glass мало имеет отношения к металлу, но вышел на Hall Of Sermon. <BR> Новинки Soyuz также весьма разнообразны. Продолжается издание всех работ My Dying Bride – на этих неделях вышли свежий концертник и альбом 1999 года. Тоже относится и к Anathema – вышел компакт-диск с двумя миньонами Creetfallen и Pentecost III. Также с Peaceville появился в продаже альбом нереализованного материала At The Gates “Suicidal Final Art”. Лэйбл Удо Диркшнайдера Breaker – Cyberia и Double Action – power metal… Передаём дальше… Альбом Massacre “From Beyond” представляет death-metal. На альбоме присутствуют музыканты Death. <BR> Более подробно о новинках читайте в рубрике рецензии, а весь этот ассортимент, Вы всегда сможете приобрести в ТВЦ «Рубин» на точке Б-99 (знак стоянки).</p>
+
+Автор: Vit Belov
+
+### 15.05.2009 news MASSACRE переписывают старьё
+
+<P>Возродившиеся<STRONG> MASSACRE</STRONG> готовят миньон с перезаписанным старым материалом. Группа называет эту работу "данью прошлому" и обещает настоящее мясо для любителей old school. Трэк-лист:</P>
+<P>01. <B>Aggressive Tyrant</B><BR>02. <B>Clangor Of War</B><BR>03. <B>Infestation Of Death</B><BR>04. <B>Perpetual Domination</B></P>
+<P>Пока никаких контрактов на выпуск пластинки не подписано. В составе группы сейчас: <STRONG>Kam Lee, </STRONG>басист&nbsp;<B>Dave Pybus</B> (<B>CRADLE OF FILTH</B>)&nbsp;и барабанщик&nbsp;<B>Tony Laureano</B> (<B>DIMMU BORGIR</B>, <B>1349</B>, <B>NILE</B>, <B>ACHERON</B>).</P>
+Автор: Vit Belov
+
+### 28.05.2009 news Старая песня от MASSACRE
+
+<P>Мы уже сообщали, что вернувшиеся из небытия <STRONG>MASSACRE</STRONG> перезапишут некоторые свои хиты из прошлого. Новая версия песни "<STRONG>Clangor Of War</STRONG>" доступна на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/massacrefrombeyond">http://www.myspace.com/massacrefrombeyond</A></P>
+Автор: Vit Belov
+
+### 18.11.2010 news Книга о славных временах Death Metal
+
+<P><B>Alan Moses</B> (бывший редактор фэнзина <B>Buttface</B>)&nbsp;и <B>Brian Pattison</B> (<B>Chainsaw Abortions</B> 'zine) выпускают исправленное и дополненное издание своей книги <B>"Glorious Times: A Pictorial Of The Death Metal Scene 1984-1991"</B> в конце ноября. Книга, на 160 страницах, содержит редкие (многие из них, никогда не публиковались) фотографии дет-металлической сцены периода с 1984 по 1991 гг. и&nbsp; истории, которые были написаны самими группами, а так же, редакторами&nbsp;фэнзинов того периода.</P>
+<P>Комментируют авторы книги: <EM>"Мы отказались подчиниться издателям, которые хотели, чтобы истории групп были написаны третьим лицом. Мы отказались заменить редкие фотографии групп и использовать вместо них общедоступные&nbsp;промо-фотографии, как хотели этого&nbsp;издатели. Вместо этого, мы занимались поисками фотографов из тех далёких времён&nbsp;и нашли&nbsp;у них&nbsp;ещё больше фотографий, которые никто и никогда не видел. В то же самое время, мы нашли ещё несколько групп,&nbsp;чтобы сделать эту версию книги ещё лучше."</EM></P>
+<P>Больше информации доступно по адресу:<EM>&nbsp;</EM> <A href="http://www.myspace.com/glorioustimesdeathbook" target=_blank><U><FONT color=#0000ff>www.myspace.com/glorioustimesdeathbook</FONT></U></A></P>
+<P><U><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.11/17629.jpg" width=400 height=521>Группы, вошедшие в книгу</U>:</P>
+<P><B>ACHERON<BR>AUTOPSY<BR>BAPHOMET<BR>BRUTALITY<BR>CANNIBAL CORPSE<BR>CRYPTIC SLAUGHTER<BR>DARK ANGEL<BR>DEATH<BR>DECEASED<BR>DEICIDE<BR>DERKETA<BR>DISHARMONIC ORCHESTRA<BR>EXMORTIS<BR>GROOVY AARDVARK<BR>HELLWITCH<BR>HIDEOUS MANGLEUS<BR>IMMOLATION<BR>IMPETIGO<BR>INCANTATION<BR>INCUBUS<BR>INSANITY<BR>LETHAL AGGRESSION<BR>MALEVOLENT CREATION<BR>MASSACRE<BR>MASSAPPEAL<BR>MASTER<BR>MORBID ANGEL<BR>NAPALM DEATH<BR>NOCTURNUS<BR>NOKTURNEL<BR>NUCLEAR DEATH<BR>OVERTHROW<BR>PAINEATER<BR>POSSESSED<BR>PRIME EVIL<BR>REVENANT<BR>RIGHTEOUS PIGS<BR>RIPPING CORPSE<BR>SACRIFICE<BR>SLAUGHTER<BR>SOOTHSAYER<BR>TERRORAIN<BR>TIRANT SIN<BR>UNSEEN TERROR<BR>VOMIT<BR>WEHRMACHT<BR>WHERE'S THEPOPE?</B><BR></P>
+Автор: Headcrusher
+
+### 17.10.2011 news Rick Rozz и Terry Butler собираются в тур по вывеской MASSACRE
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.10/21584.jpg" width=400 height=400>В честь двадцатилетия классического альбома<STRONG> "From Beyond"</STRONG> (1991) группы <STRONG>MASSACRE,</STRONG> два её оригинальных участника - басист&nbsp;<STRONG>Terry Butler</STRONG> (<B>DEATH</B>, <B>MASSACRE</B>, <B>SIX FEET UNDER</B>, <B>DENIAL FIEND</B>, <B>OBITUARY</B>) и гитарист <B>Frederick "Rick Rozz" DeLillo</B> (<B>MANTAS</B>, <B>DEATH</B>, <B>MASSACRE</B>, <B>M INC.</B>) отправятся в европейский тур, который пройдёт в январе/феврале 2012 года.</P>
+<P>Состав группы в туре будет выглядеть следующим образом:</P>
+<P><STRONG>Mike Mazzonetto</STRONG> (<STRONG>M INC.</STRONG>, <STRONG>PAIN PRINCIPLE</STRONG>) - барабаны<BR><STRONG>Ed Webb</STRONG> (<STRONG>DIABOLIC</STRONG>, <STRONG>SUPREME EVIL</STRONG>) - вокал<BR><STRONG>Frederick "Rick Rozz" DeLillo</STRONG> – гитара<BR><STRONG>Terry Butler</STRONG> - бас</P>
+<P>Комментирует&nbsp;<B>Butler</B>: <EM>"<B>Rick</B> и я очень&nbsp;рады приехать с&nbsp;<B>MASSACRE</B> в Европу. Мы хотим дать фэнам (новым и старым) шанс услышать <B>MASSACRE</B> снова. Это не прощальный тур и не тур-возрождение."</EM></P>
+<P>Добавляет&nbsp;<B>Rozz</B>: <EM>"Я бы только хотел сказать, что вовлечён в этот проект, посвящённый&nbsp;<B>MASSACRE</B>, группе, в которой я провёл много лет своей жизни, по разным причинам. Я написал для группы много песен и&nbsp;по этому принял приглашение&nbsp;от&nbsp;<B>Terry.</B> Это не воссоединение группы и никогда таковым не будет. Это просто&nbsp;несколько друзей, новых и старых, которые отдадут дань уважения моим и <STRONG>Terry</STRONG> прошлым заслугам, так что, давайте повеселимся и исполним эти треки 20 летней давности с удвоенной мощью. По моему мнению, это будет самый мощный/тяжёлый/брутальный тур <B>MASSACRE</B> за всю историю группы."</EM></P>
+<P>В 2007 году уже состоялся похожий тур <STRONG>MASSACRE</STRONG>, с той разницей, что оригинальный состав группы тогда представляли <STRONG>Terry Butler</STRONG>&nbsp;и вокалист&nbsp;<STRONG>Kam Lee</STRONG>.</P>
+<P>Состав тура&nbsp;2007 года:&nbsp;гитарист <B>Sam Williams</B> (<STRONG>DENIAL FIEND</STRONG>), барабанщик <B>Curt Beeson</B> (<STRONG>DENIAL FIEND</STRONG>, <B>NASTY SAVAGE</B>), басист&nbsp;<B>Terry Butler</B> (<STRONG>DENIAL FIEND</STRONG>,<STRONG> OBITUARY</STRONG>,<STRONG> MASSACRE</STRONG>,<STRONG> DEATH</STRONG>), гитарист&nbsp;<B>Steve Swanson</B> (<STRONG>SIX FEET UNDER</STRONG>) и вокалист <B>Kam Lee</B> (<STRONG>BONE GNAWER</STRONG>, <STRONG>MASSACRE</STRONG>, <STRONG>DEATH</STRONG>).</P>
+Автор: Headcrusher
+
+### 28.03.2012 news MASSACRE подписались на лейбл Century Media
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Воскресшие флоридцы <STRONG>MASSACRE</STRONG> подписались на лейбл </FONT><STRONG>Century Media</STRONG>. 17 февраля группа вошла в студию <STRONG>CGM</STRONG>, чтобы записать две новые песни — <STRONG>"Succumb To Rapture"</STRONG> и <STRONG>"Back From Beyond"</STRONG>. Эти треки выйдут на&nbsp;7" сингле в августе, как раз, к моменту выступления группа на фестивале&nbsp;<STRONG>Wacken Open Air</STRONG>.</P>
+<P><STRONG>MASSACRE</STRONG> сыграли <STRONG>"Succumb To Rapture"</STRONG> в первый раз во время своего выступления в клубе <STRONG>The Brass Mug</STRONG> (Тампа, Флорида) 14 января. Видео запись этой песни можно посмотреть ниже. </P>
+<P>Шоу в клубе <STRONG>The Brass Mug</STRONG> впервые представило поклонникам новый состав группы, в который вошли сторожилы <STRONG>MASSACRE</STRONG> - басист <STRONG>Terry Butler</STRONG>, гитарист <STRONG>Frederick "Rick Rozz" DeLillo</STRONG>, а так же, два новичка - <STRONG>Mike Mazzonetto</STRONG> (барабаны; <STRONG>M INC.</STRONG>, <STRONG>PAIN PRINCIPLE</STRONG>) и <STRONG>Ed Webb</STRONG> (вокал; <STRONG>DIABOLIC</STRONG>, <STRONG>GENERICHRIST</STRONG>, <STRONG>DESTINED TO RUIN</STRONG>).</P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/IzHOVTlKsXw" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 08.02.2014 news Новый альбом MASSACRE
+
+<P><FONT style="BACKGROUND-COLOR: rgb(0,0,0)" color=#ffffff>Долгожданный альбом<STRONG> MASSACRE "Back From Beyond"</STRONG> выйдет 24 марта на <STRONG>Century Media</STRONG>. Обещается, что группа, в которой по-прежнему играют <STRONG>Rick Rozz</STRONG> и <STRONG>Terry Butler</STRONG>, вернётся к саунду 90-х.</FONT></P>
+<P>Обложку альбома, которую&nbsp;выполнил<STRONG>&nbsp;Toshihiro Egawa</STRONG> (<A href="http://toshihiroegawa.com/">http://toshihiroegawa.com</A>), можно увидеть ниже.</P>
+<P><FONT style="BACKGROUND-COLOR: rgb(0,0,0)" color=#ffffff>Трек-лист:</FONT></P>
+<P>01. <STRONG>The Ancient Ones</STRONG> | 02. <STRONG>As We Wait To Die</STRONG> | 03. <STRONG>Ascension Of The Deceased</STRONG> | 04. <STRONG>Hunter’s Blood</STRONG> | 05.<STRONG> Darkness Fell</STRONG> | 06. <STRONG>False Revelation</STRONG> | 07. <STRONG>Succumb To Rapture</STRONG> | 08. <STRONG>Remnants Of Hatred</STRONG> | 09. <STRONG>Shield Of The Son</STRONG> | 10. <STRONG>The Evil Within</STRONG> | 11. <STRONG>Sands Of Time</STRONG> | 12. <STRONG>Beast With Vengeance</STRONG> | 13. <STRONG>Back From Beyond</STRONG> | 14. <STRONG>Honor The Fallen</STRONG></P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/hLQTIQ0SQMI?feature=player_embedded" frameBorder=0 width=640 allowfullscreen=""></IFRAME>
+<P></P>
+<P>
+<CENTER>&nbsp;<IMG border=0 src="/images/news_rus/2014.02/26630.jpg" width=500 height=500> </CENTER></CENTER>
+Автор: Vit Belov
+
+### 20.03.2014 news MASSACRE: клип &quot;Back From Beyond&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Флоридцы <STRONG>MASSACRE</STRONG> опубликовали мультипликационное видео на титульный трек с нового альбома<STRONG> "Back From Beyond"</STRONG>. Диск выходит 24 марта на <STRONG>Century Media</STRONG>.</FONT></P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/jaSc_eQciVc" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

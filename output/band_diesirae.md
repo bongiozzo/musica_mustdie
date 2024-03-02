@@ -45,6 +45,21 @@ Luis Martinez [drums]
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.06.2000 reviews Еще одно мексиканское перевоплощение
+
+<p>Еще одно мексиканское перевоплощение. Эта группа тоже из разряда хамелеонов. Начинала она свое творчество нарубая стандартный шведский death-black. Теперь же эта группа нарезает довольно непонятную местами музыку, но в целом, надо признать, что довольно красивую и мелодичную. Только заметно, что запись происходила не в лучшей студии и без особых условий. Качество записи от этого несколько пострадало. Очень интересно использование в музыке национальных фолковых обработок на тяжелых инструментах. Два лидер-гитариста, порой, просто повергают в шок своими сольными выходками. Довольно медленный и меланхоличный doom-metal с black-вокализациями и использованием речитативов, с множеством акустических вставок и лирических отступлений. Только не очень хорошее качество записи не позволяет мне поставить высокую оценку, но сам материал хорош.</p>
+
+Автор: Dimas
+
+### 30.06.2000 reviews One more mexican transformation.
+
+<p>One more mexican transformation. This group too from the category of chameleons. It began the creativity playing standard Swedish death-black. Now this group plays by rather not clear places music, but as a whole, is necessary to recognize, that rather beautiful and melodious. Only noticeably, that the entry happened not in the best studio and without particular covenants. The quality of an entry has suffered from it a little. The use in music national folk of processings on heavy tools is very interesting. Two leaders - guiotarists, occasionally, simply plunge into a shock solo-numbers. Rather slow and melancholic doom-metal with black-vocals and use speaks, with a set of acoustic insertions and lyrical retreats. Only not so high quality of an entry does not allow me to deliver a high evaluation, but material is good.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

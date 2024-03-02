@@ -8,6 +8,21 @@ progressive metalband with two female singers
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 17.11.2001 news Новые имена
+
+<p>На связь вышла группа Arabesque. Малоизвестная нашим слушателям, но уже выступавшая на некоторых крупных фестах. Банда исполняет Progressive metal и примечательна тем, что в ней две женских вокалистки. В настоящее время Arabesque пишут новый материал и Вы можете послушать две новые песни <a href="http://www.arabesque-site.com">здесь.</a></p>
+
+Автор: Vit Belov
+
+### 17.11.2001 news Arabesque news
+
+<p>Arabesque is a progressive metalband with two female singers. In te past they played at the "Bospop" (With Dream theater, spocks beard, vandenplas, satriani, after forever, within temptation and more...) and"progpower"(With opeth, spiral architect, evergrey, After forever and more...) festivals and won the benelux progmetal contest. At the moment Arabesque is recording an album and two songs from that album are available for downloading at the homepage : <A HREF="http://www.arabesque-site.com/">http://www.arabesque-site.com/</A></p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

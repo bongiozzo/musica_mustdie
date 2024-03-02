@@ -31,6 +31,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 06.07.2011 news Mirai Kawashima сыграет для ARES KINGDOM
+
+<P><STRONG>Mirai Kawashima</STRONG> из <STRONG>SIGH</STRONG> сыграет клавишное интро для кавер-версии <STRONG>VULPECULA 'Celestial'</STRONG> в исполнении <STRONG>ARES KINGDOM</STRONG>, которая появится на новом мини-альбоме этой группы, состоящем исключительно из чужих вещей в их обработке. Также этот альбом будет содержать кавер-версии: <STRONG>'Die By Power' (SLAUGHTER LORD), 'Act Dead' (MEFISTO), 'The Captive' (SACRILEGE), 'When Your Heart Turns Black' (R.U. DEAD?)</STRONG>&nbsp;и<STRONG>&nbsp;'Oblivion' (NEPENTHE)</STRONG>.</P>
+<P>Гитарист<STRONG> ARES KINGDOM Chuck Keller</STRONG> записал гостевое соло для альбома <STRONG>SIGH</STRONG> 2007 года <STRONG>'The Memories as a Sinner'</STRONG>, теперь лидер<STRONG> SIGH</STRONG> возвращает должок.</P>
+<P><center><IMG height=213 src="/images/news_rus/2011.07/19929.jpg" width=320 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

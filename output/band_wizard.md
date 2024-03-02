@@ -151,6 +151,146 @@ Story concept by Christian Bartel / Meldric
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.09.2001 reviews Волшебный эликсир Power Metal
+
+<p> Мускулистый рыцарь с мечом в одной руке и с отрубленной головой в другой на обложке, песни, тематика которых колеблется от фэнтэзи (Magic Potion, Calm Of The Storm, Demon Witches) до true metal текстов в духе Manowar (Defenders Of Metal, True Metal). Мы имеем дело с новым альбомом группы Wizard, который, надо сказать, очень даже неплох! Power Metal в лучших традициях - быстрые песни чередуются со среднетемповыми. Нет ни одной баллады - ребята из Wizard не дают нам скучать! В музыке заметно влияние Manowar и немецкой power-metal сцены. Все это сочетается довольно органично. Звучание в целом напоминает Grave Digger - это и неудивительно, ведь продюсером был Uwe Lulis. Wizard отличаются от большинства молодых power-metal групп тем, что почти не используют клавишных в своей музыке. В их песнях нет ни капли симфонизма! Это настоящий хэви-пауэр. Не знаю как вам, но мне лично это нравится! Есть еще порох в пороховницах! Хорошо, что молодые группы не забывают этот стиль, и приходят на смену ветеранам. Такие альбомы всегда будут радовать настоящего любителя тяжелой музыки 80-х годов. Хочется закончить словами одной из песен с альбома Head Of The Deceiver -</p>
+<p> WE PLAY METAL FOR ALL METALHEADS!!!</p>
+
+Автор: Vic Thor
+
+### 15.01.2002 news Wacken Festival...
+
+<p>Вот такие команды уже подтвердили участие в немецком Wacken Festival в этому году (будет проходить 2-3 августа): <BR> <BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 15.01.2002 news WACKEN 2002 ...
+
+<p>CANNIBAL CORPSE and ROTTWEILLER are the latest bands to have been confirmed for this year's Wacken Festival, which is scheduled to take place on August 2-3 in Wacken, Germany. The full line-up of acts that are presently scheduled to partake in the festivities now looks like this: <BR><BR> AMON AMARTH <BR> BLAZE <BR> BLIND GUARDIAN <BR> CANNIBAL CORPSE<BR> CHILDREN OF BODOM <BR> DESTRUCTION <BR> DIMPLE MINDS <BR> DORO <BR> EDGUY <BR> FALCONER <BR> GREEN CARNATION <BR> HEATHEN<BR> HOLLENTHON <BR> HYPOCRISY <BR> IN EXTREMO <BR> J.B.O <BR> KREATOR <BR> MACABRE <BR> NECROPHOBIC <BR> ONKEL TOM <BR> PRETTY MAIDS <BR> PUNGENT STENCH <BR> RAVEN <BR> ROTTWEILLER<BR> U.D.O. <BR> VICIOUS RUMORS <BR> WIZARD <BR> WOLF <BR></p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN OPEN AIR....
+
+<p> Вот эти команды уже подтвердили свое участие в 13 по счету фестивале WACKEN OPEN AIR (будет проходить с 01 по 03 августа): </p>
+<p> ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - MY DYING BRIDE - M&Ouml;RK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF. </p>
+
+Автор: Yermola
+
+### 13.03.2002 news WACKEN : OPEN : AIR
+
+<p>WACKEN : OPEN : AIR - Part 13<BR> <BR> 01. - 03. August 2002 <BR><BR> The following bands are confirmed yet (in alphabetical order):<BR><BR> - ALABAMA THUNDERPUSSY - AMON AMARTH - BLAZE - BLIND GUARDIAN - - BRUCE DICKINSON - CANDLEMASS (Reunion) - CANNIBAL CORPSE - - CHILDREN OF BODOM - CRIMINAL - DESTRUCTION - DIMPLE MINDS - - DOMINE - DORNENREICH - DORO - DYING FETUS - EDGUY - EISREGEN - - EVERGREY - EXODUS - FALCONER - FLESHCRAWL - GREEN CARNATION - - HEATHEN (Reunion) - HOLLENTHON - HYPOCRISY - IMMORTAL - - IN EXTREMO - J.B.O - KREATOR - LOCK UP - MACABRE - MOB RULES - - MY DYING BRIDE - MЦRK GRYNING - NECROPHOBIC - NUCLEAR ASSAULT - - ONKEL TOM - PRETTY MAIDS - PRIMORDIAL - PUNGENT STENCH - RAVEN - - REBELLION - RED AIM - ROTTWEILLER - SINERGY - U.D.O. - - VICIOUS RUMORS - VISION DIVINE - VOMITORY - WARLORD - WIZARD - WOLF - and many more...... <BR><BR> Homepage: http://www.wacken.com <BR> Tickets: 3 - Dayґs - Festival & Camping - OriginalTicket: 55 EUR incl. 7% VAT & charge plus Postage<BR> Tickethotline: + 49 (0) 46 27 - 18 38 38 http://www.metaltix.com<BR> Telefax: + 49 (0) 46 27 - 18 38 80 <BR></p>
+
+Автор: Yermola
+
+### 25.10.2003 reviews Хороший true-power-metal
+
+<P>Наконец-то к Piet Sielk обратились на самом деле талантливые ребята. WIZARD играют в достаточно популярном жанре power-metal, ориентированном на ранние альбомы HELLOWEEN и альбомы IRON SAVIOR. Пластинки, к которым и имел отношение Piet Sielk. Всем коллективам, которые у него пишутся он пытается навязать подобный архаичный звук. WIZARD это не мешает играть насыщенную мелодиями и прямолинейностью музыку с множеством отличных песен, а вот за другие коллективы бывает по просту стыдно. На 'Odin' вошли 13 песен, которые спокойно могли попасть на альбомы HELLOWEEN 85 года. Я думаю, что найдётся много любителей подобной музыки, которым не хватает новинок в этом жанре. Вот она та новинка, которую Вы просто не имеете права пропустить.</P>
+<P>Диск предоставлен MUSICA PRODUCTION</P>
+Автор: Vit Belov
+
+### 25.10.2003 reviews Good true-power metal
+
+Finally true talented guys appealed to Piet Sielk. WIZARD plays in rather popular genre of power-metal, which oriented on early albums by HELLOWEEN and albums by IRON SAVIOR. Piet Sielk had relationships to this CDs. He tries to force this archaic sound for every band recording with him. But It doesn't prevent WIZARD to play concetrated with melodies and&nbsp;straightness of line music. But i ashamed of other Piet's bands with this sound and absence of fresh ideas. There are 13 songs, which easily could be included on HELLOWEEN's albums of 1985th. I think, that we can find many fans of such music. New releases in this style are not enough to them. Yes, this is something new and you just can't miss 'Odin'!!!
+Автор: Vit Belov
+
+### 18.11.2003 articles Wizard: &quot;Следующий альбом мы не будем записывать с Piet Sielk.&quot;
+
+<I>
+<P><IMG height=333 alt="" hspace=0 src="/images/articles_rus/2003.11/5485.jpg" width=250 align="left" border=0>Альбом немецкой группы <B>WIZARD ‘Odin’</B> по праву считается одним из лучших релизов года в своём жанре. Великолепный power-metal, в духе раннего творчества <B>HELLOWEEN</B> и <B>IRON SAVIOR</B> с запоминающимися мелодиями и отличным исполнением, заслужил высочайшие оценки по всему миру.</P></I>
+<P><B>Snoppi Van Heek</B> – барабанщик группы – не совсем согласен с моим утверждением:</P><B>
+<P>“<B>Я никогда не слышал IRON SAVIOR, Piet (Sielk – продюсер пластинки, прим. авт.) никогда не давал мне послушать, а я и не покупал… Кроме того, мне кажется, мы не звучим, как HELLOWEEN тоже. Правда, каждый имеет право на собственное мнение. Однажды, я встретил парня, который сравнил нашу музыку с TANKARD:)))”</B></P></B>
+<P>Ну, а с кем бы сам <B>Snoppi</B> сравнил музыку своей группы?</P>
+<P>“<B>Хороший вопрос. Я не могу сказать ничего конкретного. Подобную музыку играют слишком много коллективов, мы явно не являемся экзотикой. Ближе всех MANOWAR и VIRGIN STEELE, пожалуй. Мы просто сочиняем песни, которые по настроению схожи с творчеством HELLOWEEN, в этом ты прав, но мы не копируем их музыку. В конце концов, это всё не важно, мы WIZARD, и этим всё сказано!</B>”</P>
+<P>Оказывал ли <B>Piet Sielk</B> влияние на звучание коллектива?</P>
+<P>“<B>Piet ни к чему нас не принуждал, но его влияние на наше звучание огромно. Мы играли в студии и делали это до тех пор, пока качество не устроило нас. Я могу сказать за себя, на мне никто не оказывал влияния, я играл свои партии так, как умею. Не могу сказать за других, они могли советоваться с Piet для достижения лучшего результата. Я считаю, Piet проделал огромную работу, но для следующей пластинки мы снимем другую студию и наймём другого продюсера</B>”.</P>
+<P>Последний альбом группы, как я уже сказал, имел хорошую прессу в России, но так и не был издан в лицензионном варианте, кроме того, на рынке появилась, так называемая, “высокотехнологичная пиратка” с книжкой. Что <B>Snoppi</B> думает об этом?</P>
+<P>“<B>Это не хорошо, что альбом не был издан в России. Дистрибуция наших пластинок – очень плохая. Например, в Германии альбом доступен далеко не в каждом магазине. Многие люди жалуются, но я ничего не могу сделать. Это – SPV. А что ты написал после? Кто издал наш диск с буклетом? Пираты в России? Гм, я не знаю… Если люди не могут купить компакт-диск официально, то это нормально, что они делают копии. Но если есть люди, которые зарабатывают на этом деньги, это очень неправильно</B>”.</P>
+<P>Какие планы на будущее?</P>
+<P>“<B>Мы работаем над новыми песнями, четыре уже готовы. Мы ищем общую тему для нового альбома, и похоже мы нашли её. Он будет опять связан с религией. Альбом выйдет в следующем году на LIMB, если всё будет нормально. Мы должны им ещё один альбом</B>”.</P>
+<P>“<B>Привет, фэны в России! Не важно, каким образом Вы получили наш альбом, главное чтобы он Вам понравился. Мы все любим металл, посетите наш сайт</B> <B>http://www.legion-of-doom.de/</B> <B>Возможно, однажды, мы сыграем в Вашей стране. Увидимся</B>!”</P>
+Автор: Vit Belov
+
+### 18.11.2003 articles WIZARD: &quot;We will not record next album with Piet Sielk.&quot;
+
+<P><I><IMG height=333 alt="" hspace=0 src="/images/articles_rus/2003.11/5487.jpg" width=250 align="left" border=0>German band WIZARD’s new album ‘Odin’ is regarded by one of the best power-metal releases. Magnificent power-metal in the vein of old HELLOWEEN and IRON SAVIOR with remaining in memory melodies and great musicianship had got good marks in over the world. </I></P><B>
+<P>Drummer of the band <B>Snoppi Van Heek</B>&nbsp;doen't agree with my opinion</B>:</P>
+<P>"<B>I don't know Iron Savior (never bought or got a cd from Piet), but I think, we don't sound like Helloween ;-) But everybody interpretes it in a different way. One time I met a guy who compared us with Tankard(!!!!), hahahaha</B>".</P>
+<P>What kind of metal can you compare your music with?</P>
+<P>"<B>Good question. I really can't say it, it's comparable with a lot of bands, we play a kind of metal that is played by so much bands, we are no exotes. Perhaps Manowar and Virgin Steele? We just composed a song, that sounds very Helloween like, so you would be right with your comparison, but you can't know this song because it's new... In the end it doesn't matter. We are Wizard and that's all</B>."</P>
+<P>Did Piet Sielk forced you to play in this sound or it's natural for WIZARD?</P>
+<P>"<B>Piet did not force us. But he had a big influence of the sound, that's right. We played in the studio and we made is as long as it took to sound good. I also have to say, that for example I did not have very much influence. When the other recorded their parts, I was not present, so each of us had to mix his own ideas with Piets ideas to get the best result. I think that Piet did a very good job. But for the next album we will have another studio and producer, I guess</B>."</P>
+<P>Your last album has a good press here in Russia. But unfortunatly Limb Music&nbsp;is not licensed in our country. What do you think about it?</P>
+<P>"<B>That's not good. I know, that the distribution of our cds is very bad. Also in germany the album is not available in every shop. A lot of people complain about that. Sorry, I don't have influence on that, that's SPV."</B></P>
+<P>What do you&nbsp;think about piracy (they released your album with booklet in RUSSIA)?</P>
+<P><B>"Who released our album with booklet? Pirates in russia? Hm, I don't know... If people can't get the cds in an official way, it's ok if they make copies. But if there are some guys who only do that for earning money, I think it is not right."</B></P>
+<P>What plans on future releases? When can we wait for new album?</P>
+<P>"<B>We are working on new songs, 4 are ready now. We are searching for a theme at the moment and it seems that we have found one. I think it will again have to do with religion!"</B></P>
+<P>What can you tell to Russian fans?</P>
+<P><B>"Hi russia fans! I hope you can get our music in any way and I also hope you will like it. We are all bound by metal. Would be great if you visit our site on </B><A href="http://www.legion-of-doom.de/"><U>http://www.legion-of-doom.de</U></A><B>&nbsp;Perhaps one day we will play in your country, and we see us!"</B></P>
+Автор: Vit Belov
+
+### 20.08.2004 news Новости от WIZARD
+
+<P>Немецкая power-metal группа <STRONG>WIZARD</STRONG> пишет песни для своего шестого альбома, который предположительно выйдет в мае следующего года на <STRONG>Limb</STRONG>.</P>
+<P>Из других новостей, группу покинул гитарист <STRONG>Michael Maass</STRONG>, которого заменил <STRONG>Dano Boland.</STRONG></P>
+Автор: Vit Belov
+
+### 17.02.2005 news WIZARD продолжают работу над новым альбомом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>WIZARD</STRONG> заканчивают работу над новой пластинкой <STRONG>'Magic Circle'</STRONG>, которая выходит на <STRONG>Limb Music</STRONG>. Этот альбом стал дебютным для нового басиста <STRONG>Volker Leson</STRONG>, в качестве продюсера, а также для нового гитариста <STRONG>Dano Boland</STRONG>.</FONT>&nbsp;</P>
+Автор: Vit Belov
+
+### 14.09.2006 reviews Твёрдое «хорошо» с твёрдым минусом
+
+<P>WIZARD продолжают заниматься true-power-metal. Новый альбом группы не то, чтобы очень хорош, но вполне устроит любителей стиля. Быстрые запоминающиеся боевики, грязноватый высокий вокал. Коллектив, как и обещал, поменял продюсера. Место Piet Sielk занял некто Christian Jungebluth. Звук, конечно же, слегка изменился. WIZARD не звучат теперь, как клон IRON SAVIOR, но, видимо, это фишка, и саунд по-прежнему ближе к классике HELLOWEEN, например, чем к современным работам тех же PRIMAL FEAR.</P>
+<P>Что ещё сказать? Да вроде больше и нечего. “Magic Circle” явно не лучшая пластинка немцев, но и уровень свой они выдерживают. Твёрдое «хорошо» с твёрдым минусом.</P>
+Автор: Vit Belov
+
+### 26.12.2006 news Новый альбом WIZARD
+
+<P>Немецкий коллектив&nbsp;<B>WIZARD</B>&nbsp;подготовил к выпуску свой новый альбом под названием&nbsp;<B>"Goochan".</B> Дата релиза - 23 февраля на&nbsp;<B>Massacre Records</B>. Он был записан с продюсером <B>Dennis Ward</B>&nbsp;в студии&nbsp;<B>House of Music.</B> Трек-лист альбома:<BR><BR><IMG height=300 alt="" hspace=10 src="/images/news_rus/2006.12/11119.jpg" width=300 align=left border=0>1. <B>Witch of the Enchanted Forest</B><BR>2. <B>Pale Rider</B> <BR>3. <B>Call to the Dragon</B> <BR>4. <B>Children of the Night</B> <BR>5. <B>Black Worms</B> <BR>6. <B>Lonely in Desertland</B> <BR>7. <B>Dragons Death</B> <BR>8. <B>Sword of Vengeance</B><BR>9. <B>Two faces of Balthasar</B> <BR>10. <B>Return of the Thunderwarriors</B><BR></P>
+Автор: Dimas
+
+### 05.03.2009 reviews Не для любителей progressive-techno-thrash-death-doom-metalcore
+
+<P>Немцы WIZARD активно наполняют собой магазины металлической музыки по всему миру. С автоматической чёткостью они выпускают альбомы, которые безошибочно попадают в сердце любителей немецкого звучания в heavy-power-metal.</P>
+<P>Вот и на этот раз, альбом со звучным названием “Thor” можно смело рекомендовать. Несколько помпезных хитов, великолепная реализация, гитарная работа и обязательная напористость исполнения. Отмечу для себя песню “The Visitor”, которая украсила бы последний альбом MANOWAR. Безусловно, это самая мелодичная вещь на альбоме, и кому-то покажется, что ей не хватает динамичного риффа, но остальные вещи доказывают, что WIZARD – это, прежде всего, безумное heavy-metal молотилово с редкими вкраплениями запоминающихся мелодий.</P>
+<P>Конечно же, на “Thor” нельзя обнаружить ничего нового. Все, кто охотятся за новинками в жанре progressive-techno-thrash-death-doom-metalcore, пропускают эту пластинку с чистой душой. А вот если вы хотите послушать качественный ритмичный heavy-metal, вам сюда. Не пожалеете.</P>
+Автор: Vit Belov
+
+### 08.02.2011 news WIZARD выйдет в марте
+
+<P>Девятый студийный альбом <STRONG>WIZARD</STRONG> <STRONG>"...Of Wariwulfs And Bluotvarwes" </STRONG>выйдет 25 марта на <STRONG>Massacre Records</STRONG>. Альбом основан на произведении немецкого писателя <STRONG>Andre Wiesler. </STRONG>Пластинка записана продюсером <STRONG>Volker Leson </STRONG>в студии <STRONG>Magic Hall Studio. </STRONG>Сведение и мастеринг проделал <STRONG>Achim Kohler</STRONG> (<B>PRIMAL FEAR</B>, <B>SINNER</B>). Обложку нарисовал <B>Steve Argyle.</B></P>
+<P><STRONG><center><IMG height=400 src="/images/news_rus/2011.02/18464.jpg" width=400 border=0></STRONG></P>
+Автор: Vit Belov
+
+### 17.02.2014 news Escapemind.ru начинает лицензионное сотрудничество с Massacre Records
+
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>Escapemind.ru <SPAN lang=ru-RU>представляет очередные лицензионные релизы при поддержке<STRONG> </STRONG></SPAN><STRONG>MUSICA Production</STRONG>. <SPAN lang=ru-RU>По лицензии немецкого лэйбла </SPAN>Massacre Records <SPAN lang=ru-RU>две популярнейших </SPAN>power-metal <SPAN lang=ru-RU>Германии.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><STRONG>EPD – 14.2 WIZARD “Trail Of Dead”</STRONG></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>-power-metal; <SPAN lang=ru-RU>Десятый альбом известнейшего коллектива. Настоящий тевтонский </SPAN>power-metal, <SPAN lang=ru-RU>мощные риффы, высокий вокал и гимноподобные мелодии. Поклонникам </SPAN>GAMMA RAY, PRIMAL FEAR <SPAN lang=ru-RU>и </SPAN>MANOWAR. <SPAN lang=ru-RU>Группа создала новую и мегауспешную страницу в собственной истории. Достойный юбилейный альбом. </SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><SPAN lang=ru-RU><A href="http://soundcloud.com/wizardmetal/black-death">http://soundcloud.com/wizardmetal/black-death</A></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR><STRONG>EPD – 14.3 MYSTIC PROPHECY “Killhammer”</STRONG></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>-power-metal; <SPAN lang=ru-RU>Восьмой альбом основной группы великолепного немецкого вокалиста-продюсера греческого происхождения </SPAN>R.D. Liapakis (DEVIL'S TRAIN). <SPAN lang=ru-RU>Пожалуй, самая мрачная и тяжёлая команда на современной немецкой </SPAN>power-metal <SPAN lang=ru-RU>сцене. Также в записи приняли участие басист </SPAN>CIRCLE OF PAIN Connie “Connor” Andreszka <SPAN lang=ru-RU>и бывший гитарист </SPAN>SYMPHORCE Markus Pohl. <SPAN lang=ru-RU>Альбом включает кавер-версию на песню </SPAN>OZZY OSBOURNE “Crazy Train”. <SPAN lang=ru-RU>Великолепный 24-страничный буклет.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><SPAN lang=ru-RU></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><SPAN lang=ru-RU><A href="http://youtu.be/FDXZSAllHjk">http://youtu.be/FDXZSAllHjk</A></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><SPAN lang=ru-RU>Приобрести диски с пятницы 24 января 2014 года можно в интернет-магазине <A href="http://www.escapemind.ru/"></SPAN>escapemind.ru</A> <SPAN lang=ru-RU>и на Горбушке в магазине «</SPAN>MUSICA<SPAN lang=ru-RU>» </SPAN>(<SPAN lang=ru-RU>ТЦ Горбушкин Двор, место </SPAN>B2-230). <SPAN lang=ru-RU>Дата релиза — 27 января. Оптовая дистрибуция: Фоно (</SPAN><A href="http://www.fono.ru/"><U><FONT color=#000080>http://www.fono.ru</FONT></U></A>)</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>
+<CENTER>&nbsp;<IMG border=0 src="/images/news_rus/2014.02/26548.jpg" width=595 height=304></CENTER>
+Автор: Vit Belov
+
+### 05.04.2014 reviews True-metal из любви
+
+<P>Немецкий коллектив <SPAN lang=en-US>WIZARD </SPAN>являет собой яркий образец преданности тяжёлой музыке. Группе в этом году исполняется 25 лет, она выпустила десяток альбомов, но по-прежнему остаётся на обочине стиля. При этом музыканты не теряют упорности, довольно давно уже доказав, что музыкой они занимаются не ради денег или бешеной популярности, а для собственного удовольствия. Короче говоря, из любви...</P>
+<P>В карьере <SPAN lang=en-US>WIZARD </SPAN>было три лэйбла. Начинали они на уже забытом <SPAN lang=en-US>B.O. Records, </SPAN>выпустили на нём три альбома и ушли с него только после прекращения лэйблом активной деятельности. Далее был культовый лэйбл <SPAN lang=en-US>Limb music, </SPAN>который славился не только своими великолепными <SPAN lang=en-US>power-metal </SPAN>коллективами, но и полным отсутствием желания их раскручивать в промышленном масштабе. Продукцию этого значка все поклонники <SPAN lang=en-US>power-metal </SPAN>просто-таки боготворили, но ни одна группа с <SPAN lang=en-US>Limb Music </SPAN>не получила должной популярности. Даже иконы <SPAN lang=en-US>sympho-power metal RHAPSODY </SPAN>долгое время находились в стороне от активной деятельности по раскрутке собственных работ, и им пришлось погибнуть творчески, перейдя под крыло «мановарщика» Ди Майо. <SPAN lang=en-US>WIZARD </SPAN>отлично вписывались в ростер <SPAN lang=en-US>Limb. </SPAN>Их альбомы здорово продавались, но каких-то глобальных успехов немцы с <SPAN lang=en-US>Limb Music </SPAN>не добились. Теперь коллектив обретается на <SPAN lang=en-US>Massacre Records, </SPAN>где постепенно собралась отличная <SPAN lang=en-US>power-metal </SPAN>компания. Быть может, сейчас у<SPAN lang=en-US> WIZARD </SPAN>получится заявить о себе? Ведь их музыка вполне достойна всеобщего признания. Да, это не мелодично-театральный <SPAN lang=en-US>HAMMERFALL, </SPAN>не неоклассически отточенный <SPAN lang=en-US>STRATOVARIUS </SPAN>и не легендарный <SPAN lang=en-US>HELLOGAMMA RAY. WIZARD </SPAN>представляют настоящий метал от слова <SPAN lang=en-US>'true'. </SPAN>Хоровые распевки, зубодробительные гитары (конечно же, в рамках стиля), героические мелодии. В этом и есть сила этих немцев. Можно сравнивать с героями стиля и говорить, что они отстающие, но можно взглянуть на это дело под другим углом. Например, <SPAN lang=en-US>WIZARD – </SPAN>самая известная команда в жанре <SPAN lang=en-US>true-heavy-metal </SPAN>в Европе!</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Отличный альбом великолепной и упёртой на своём группы. Героика, мощь, риффы... Всё это не приносит никакого дохода, но приносит душевное удовлетворение и музыкантам, и слушателям.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

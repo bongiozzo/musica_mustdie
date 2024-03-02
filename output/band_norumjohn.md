@@ -99,6 +99,32 @@
 * C группой "Europe" Europe
 * C группой "Don Dokken" Norum, John
 
+## Публикации
+
+### 13.03.2001 news Война и Мир...
+
+<P>Сольный проект басиста DOKKEN - Jeff Pilson "WAR & PEACE" в конце Апреля выпускает новый альбом символично названный "Light At The End Of The Tunnel". Материал состоит из песен неиспользованных для Dokken и других ранее незавершенных треков. В записи помогали барабанщик SCORPIONS - James Kottak. На двух треках играл Reb Beach, на одном - John Norum и Paul Gilbert. Также отметились Richie Kotzen, Jon Levin (WARLOCK). Сам Pilson исполнил соло в 'Playing God Again'.</P>
+Автор: Yermola
+
+### 13.03.2001 news WAR &amp; PEACE - Tunnel Vision!
+
+<p>DOKKEN bassist Jeff Pilson, who fronted his own band, WAR & PEACE, in the late '80s, is revisiting that band again with a new album, Light At The End Of The Tunnel, due out in late April/May. The material consists of some songs intended for but not used by Dokken, songs Pilson had never finished, and others he did that appeared elsewhere. Pilson, who sings and plays all the basic tracks on it, gets assistance from SCORPIONS drummer James Kottak on all but two of the ten songs, and from a lineup of solo-contributing guitarists. Reb Beach plays on two tracks, John Norum plays on one as does Paul Gilbert, who recorded his performance in Japan and air expressed it to Pilson. Gilbert's MR. BIG replacement Richie Kotzen plays on two cuts, and Jon Levin, the WARLOCK guitarist-turned-lawyer who actually did one fill-in date with Dokken, is also heard on one track. Pilson himself contributes the solo to 'Playing God Again'. "Best solo I've ever done," he says proudly.</p>
+
+Автор: Yermola
+
+### 23.03.2003 news Джон Норум присоединился к UFO
+
+<p>UFO официально объявили, что новым гитаристом группы стал Джон Норум (DOKKEN/EUROPE). Джон заменит Майкла Шенкера, который в очередной раз покинул группу. Напомним, что Норум уже планировал присоединится к UFO в 1996.</p>
+
+Автор: Vit Belov
+
+### 23.03.2003 news Former EUROPE&#x2F;DOKKEN Guitarist Joins UFO
+
+<p>UFO have officially recruited former EUROPE/DOKKEN guitarist John Norum as a replacement for Michael Schenker. Norum was last rumored to be possibly joining the band back in 1996 when the "Walk On Water" tour went belly-up, but now after a recent stint with DOKKEN, he finally joins the band officially.</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

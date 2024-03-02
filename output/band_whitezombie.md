@@ -173,6 +173,33 @@ Track 12 Remixed by DJ Lethal
 * C группой "Anthrax" John Tempesta (drums)
 * C группой "Zombie, Rob" John Tempesta (drums)
 
+## Публикации
+
+### 24.08.1999 news 
+
+<p>Geffen Records сообщают, что 16 ноября выйдет ремиксовый альбом "Hellbilly Deluxe" Роба Зомби. На альбоме представлены ремиксы "Dragula", "Living Dead Girl" и "Superbeast", выполненные Charlie Clouser из Nine Inch Nails, а также "Return of the Phantom Stranger", выполненный бывшим барабанщиком Nine Inch Nails, Chris Vrenna. Другие ремиксы на альбоме сделали God Lives Underwater "How to Make a Monster" и Rammstein "Spookshow Baby". Rob Zombie сказал, что "Еще не все треки утверждены, так как некоторых я еще не слышал. Я послушал ремиксы Charlie Clouser. Они все fucking fantastic, потрясающие !" Кроме участия в Nine Inch Nails, Clouser и Vrenna широко сотрудничали с группами White Zombie и Marilyn Manson. Chris Vrenna в данный момент работает над своим сольным альбомом "Tweaker". Также он будет продюссером нового альбома Jack Off Jill, группы в которой играет Scott Puteski, известный нам как Daisy Berkowitz - бывший гитарист Marilyn Manson.</p>
+
+Автор: Vit Belov
+
+### 03.05.2001 news Зомбирование Керри Кинга...
+
+<p>Kerry King ("SLAYER") решился поучаствовать в качестве гостя на втором сольнике Роба Зомби, который запланирован к выходу на конец текущего года. Наш лысый красавчик собирается в Hollywood studio на следующей неделе чтобы записать свои треки под руководством продюссера Scott Humphrey. По заверениям самого Зомби новый альбом будет: "быстрее, тяжелее и громче" чем дважды платиновый Hellbilly Deluxe.</p>
+
+Автор: Yermola
+
+### 03.05.2001 news Kerry King will be making a guest appearance .....
+
+<p>SLAYER's Kerry King will be making a guest appearance on ROB ZOMBIE's forthcoming second solo effort, which is tentatively due for release at the end of the year. The bald-headed axeman will be heading into a Hollywood studio next week to record his tracks on an as-yet-untitled tune on the Scott Humphrey-produced album, which the frontman has described as being "faster, heavier, and louder" than the double-platinum Hellbilly Deluxe CD. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 14.10.2002 news Дом тысячи трупов......
+
+<p>Вот <A HREF="http://www.houseof1000corpses.com/trailer.html">здесь </A>можно посмотреть официальный трэйлер фильма Роба Зомби "House Of 1000 Corpses". Премьера назначена на март 2003.</p>
+
+Автор: Yermola
+
+
 ## Обсуждения
 
 

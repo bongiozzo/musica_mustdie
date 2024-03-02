@@ -20,6 +20,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 01.09.2016 news VORE сняли клип
+
+<p>Новый клип death metal группы из США <strong>VORE "The Unseen Hand"</strong> можно посмотреть ниже. Трек взят с последнего альбома группы "<strong>Gravehammer</strong>", который вышел на<strong> AFM</strong> в 2012 году.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/mskYl47l2Hg" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+### 01.09.2016 news VORE filmed clip
+
+<p>New clip of death metal band from USA <strong>VORE "The Unseen Hand"</strong> can be viewed below. The track is taken from the band's latest album "<strong>Gravehammer</strong>", which was released via<strong> AFM</strong> in 2012.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/mskYl47l2Hg" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

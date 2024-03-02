@@ -8,6 +8,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.08.2006 news Новое приобретение THE FLAMING ARTS MANAGEMENT
+
+<P>Новым приобретением <STRONG>THE FLAMING ARTS MANAGEMENT</STRONG> для Восточной Европы стала польская deathcore машина <STRONG>FRONTSIDE</STRONG>. Группа уже успела сыграть несколько концертов в Беларуси, а также на недавно проходившем RED ALERT FESTIVAL в Крыму. За время своего существования <STRONG>FRONTSIDE</STRONG> дали более 300 концертов на одной сцене с такими группами как <STRONG>Iron Maiden, Satyricon, Kreator, Nightwish, Sepultura, Madball, Earth Crisis, Length of time, Cro-Mags, Integrity, All out war, Congress, Warzone</STRONG>, сыграть два тура вместе с<STRONG> Behemoth</STRONG> и один тур с <STRONG>Vader</STRONG>, выиграть польский <STRONG>Grammy Awards</STRONG> в категории "лучший металлический альбом" с материалом "<STRONG>and Forgive Us Our Sins</STRONG>", который вышел на шведском <STRONG>REGAIN Rec</STRONG>. Сейчас идет поиск издателя для последнего альбома&nbsp; "<STRONG>Twilight To The Gods</STRONG>" на территории СНГ, после чего не исключено&nbsp; появление группы на концертах в России, Украине и Беларуси.</P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

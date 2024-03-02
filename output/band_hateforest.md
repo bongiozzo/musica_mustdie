@@ -10,6 +10,21 @@
 * C группой "Khors" Khaoth
 * C группой "Nokturnal Mortum" Khaoth
 
+## Публикации
+
+### 04.03.2002 news HATE FOREST
+
+<p>HATE FOREST - "The Most Ancient Ones", the forthcoming album by these unfriendly Ukrainian warriors, was taken to a mastering studio in London last week. We asked the engineer what kind of music they usually worked with. They said it was all mainstream. He then asked what Black Metal was. He was told, "You will hear it". We then played one song. The guy, who up until then had been smiling, soon became serious, his brow furrowed, his mind in the depths. He was sullen and didn't say much afterwards; the sun had set in his heart. As we walked out, he cast a fearful, distrustful glance in our direction. He was told we would be back for more. <BR> The Most Ancient Ones will be released on 25 March 2002, the day of Spring equinox. We will be mailing out the promos during the first week of March. <BR> Meanwhile, the band has recorded another song this year, titled "To Those Who Came Before Us". It's more mid-tempo and hypnotic, with bursts of speed and a certain folksy flavour in parts, but still harsh, stern, and unmelodic, as always. Another album by them, "The Gates", will be out later this year on Miriquidi Records; that one will present the more minimalist, abstract side of HATE FOREST - a work of maximum negativity and hate captured in the Scythian burial mounds near Kharkiv. Perhaps sooner than that, Red Stream will be re-releasing "Scythia" on digipak format with a bonus track. And yet another album will be recorded in April/May. <BR> Also, as if that wasn't enough, the 7" vinyl versions of "Blood and Fire" and "Ritual" are now out on Sombre Records and Miriquidi Productions respectively in extremely limited editions. We will be selling both through our mailorder, so if you are a HATE FOREST addict, fear not, for you will see them in our catalogue soon.</p>
+
+Автор: Dimas
+
+### 04.03.2002 news Вести с ненавистных лесов Украины
+
+<p> "The Most Ancient Ones" - так будет называться скоро выходящий альбом недружелюбных украинских черных воинов. На днях был закончен процесс мастеринга в Лондонской студии. Альбом выходит в день весеннего равноденствия 25 марта 2002 года на SUPERNAL MUSIC. <BR> Между тем, группа уже начинает работать над новым материалом. Он более среднетемповый и гипнотический со скоростными вспышками и небольшим фольклорным привкусом. Заметно уменьшится мелодика, музыка огрубеет. <BR> Еще один альбом группы "The Gates" выйдет позднее в этом году на Miriquidi Records. Эта работа содержит максимум негативных эмоций почерпнутых на могильных холмах близ Харькова.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

@@ -29,6 +29,9 @@ Recorded At Studio Doruk Onatkut.
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 ### Lake Of Tears 'The Neonai'

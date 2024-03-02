@@ -103,6 +103,110 @@ The third and final part of the trilogy "Dragonland Chronicles".
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 14.11.2001 reviews Шведский power на греческом лэйбле
+
+<p>Шведский power на греческом лэйбле. Дебютный альбом шведской команды играющий добротный симфоничный heavy-power metal напоминающий Rhapsody (по части гитарно-клавишных переливов) и Hammerfall (по риффовым структурам и, особенно, вокальным делам). Музыканты этой группы далеко не новички и уже успели поднабрать опыта в разных группах. Играют скандинавы довольно профессионально, их песни кишат мелодиями, слушается все интересно несмотря на то, что материал не содержит ничего нового, одни лишь наработанные другими командами фишки и риффы. Многие их уже спешат назвать новой надеждой пауэра. Звук на альбоме недостаточно отполирован. То ли это специальная находка, то ли студийная недоработка. Хотя за студийным процессом следил такой человек, как Andy LaRoque... Но слушается альбом с неподдельным интересом, обладает приятным разнообразием и заряжает положительными эмоциями, как минимум, на целый день. Настоящий эпический true-power metal, громкая и чистая музыка. Музыкантам удалось создать очень хорошую музыку и хочется пожелать им в дальнейшем не терять своих способностей и выпустить еще несколько альбомчиков с хорошей музыкой радующей слух.</p>
+
+Автор: Dimas
+
+### 02.12.2001 reviews Swedish power on the Greek label
+
+<p>Swedish power on the Greek label. A debut album of the Swedish band, which playing good-quality sympho heavy-power metal reminding Rhapsody (in connection with guitar-keyboard solos) and Hammerfall (on riffes structures and, especially, vocal). The musicians of this group is far from being the beginners and already have tooken some experience in different bands. Scandinaves plays rather professionally, their songs are full by melodies, every song is listened interestingly in spite of the fact that the material does not contain anything new, only old riffes and stuffings are thought by other bands. Some people have already named them as new hope of power. The sound on an album is unsufficiently polished. Whether it is a special find, whether studio defect. Though the studio process was looked after by such man, as Andy LaRoque... But the album is listned to with genuine interest, has a pleasant variety and charges by positive emotions, as a minimum, on all the day. Present epic true-power metal, loud and clean music. The musicians managed to create very good music and I would like to wish'em to not lose abilities and release more albums with good music, which pleasing hearing.</p>
+
+Автор: Dimas
+
+### 14.01.2002 articles Dragonland: &quot;Обыденный power-metal&quot;
+
+<p>Всегда существовало великое множество групп, которые не играют ничего оригинального, но составляют ту или иную сцену. Вот и этой осенью попало в руки множество power-релизов. Об одной группе здесь и поведётся рассказ - DRAGONLAND. Рассказывает Никлас Магнуссон.</p>
+<p>Q: Первым делом расскажите про историю Вашей команды. Какие группы были у Вас до DRAGONLAND? Как Вы, шведская команда, оказались на греческом лэйбле? <b></p>
+<p>Мы существуем уже в течение двух лет, всё произошло довольно быстро для этой команды. Как только мы записали демо, мы получили контракт!!! Я играл в death-metal банде Prophanity (выпущен один альбом) до Dragonland, но из-за различных обстоятельств я организовал новую группу со своими друзьями. Затем мы послали демки на 3-4 лэйбла, которые заинтересовались, а нам оставалось только выбрать тот, который дал больше денег на студию. Мы никогда не слышали о нашем лэйбле до этого, но мы впечатлены его работой, Dragonland неплохо продаётся в Японии и Германии. </b> </p>
+<p>Q: О чём Ваш альбом? Что-нибудь из fantasy? <b></p>
+<p>Да, это fantasy история, довольно типичная для нашего времени, к сожалению… Но те, кто её прочитают увидят, что её окончание, совершенно не такое, которое Вы ожидаете, хе-хе-хе. Та же история продолжится и на втором альбоме, а затем мы начнём писать совсем о других вещах. Хочется сказать, что мне уже порядком поднадоели эти fantasy истории… все это делают, это уже наскучило. </b> </p>
+<p>Q: Какие группы ты предпочитаешь? Мы думаем, что Вы довольно близки по музыке к Rhapsody и Hammerfall. <b></p>
+<p>Я, вообще-то, предпочитаю слушать такие группы, как To/Die/For и HIM, а также Sonata Arctica. Может, мы звучим немного похоже на Rhapsody, но Hammerfall??? О, Господи. Я надеюсь, что нет. На следующем альбоме, я думаю, многие заметят, что мы нашли свой звук. По крайней мере, я на это надеюсь. </b></p>
+<p>Q: Довольно много групп в Вашей стилистике сейчас на сцене. Как Вы можете описать свою музыку, чтобы фэны выбрали именно Вашу пластинку, а не другую? <b></p>
+<p>Да, много альбомов в этом стиле выходит сейчас. Я думаю, мы лучше, из-за того, что каждый наш музыкант великолепен плюс к тому, у нас великолепные аранжировки. Следующий альбом будет по любому лучше, именно из-за саунда. </b></p>
+<p>Q: Вы работали с Энди ЛяРоком. Что Вы можете о нём сказать? Почему у Вас немного "недостаточно отшлифованный" звук на альбоме? </p>
+<p>Энди великолепный парень, здорово, что нам удалось с ним поработать. Он прекрасно понимает, что хочет группа. Но в следующий раз мы будем записываться в студии fredman. Звук будет в тысячу раз лучше, если мы будем иметь несколько больше времени для записи.</p>
+
+Автор: Vit Belov
+
+### 14.01.2002 articles Dragonland: &quot;Usual power-metal&quot;
+
+<p>Always there was a great variety of groups, which do not play anything original, but make this or that stage. And this autumn the set power-releases has got in hands. About one group here is the story - DRAGONLAND. Tells Niklas Magnusson.</p>
+<p>Q: First of all, some words about history of band. What bands were before DRAGONLAND? How did you, Swedish band, turn out on Greek Label?</p>
+<p><b>Well we haven't actually existed for more than 2 years now, everything has gone real fast for this band...as soon as we recorded a demo we got a contract!!! I used to play in the death metal band Prophanity(1 album released) before Dragonland, but due to various circumstances i started a new band with some friends! When we sent out the demo, there were 3-4 labels that were interested...and we just choose the one that seemed most honest and gave oney for the studio, we took a real chance since we never heard about this label before, but i must say that have done a far better job than we imagined, we sell really good in japan and germany thx to them!!! </b></p>
+<p>Q: What is your album about? Something from fantasy?</p>
+<p><b>Yeah, its a fantasy story, quite typical to do this nowadays unfortunately...but those who read it will see that the end isn't what you'd expect hehehe... it will continue on the next album too, and then we will write about totally different things than just fantasy, i can honestly say that i've had up to my ears in all this fantasy stuff...everyone is doing it, so it has become quite boring!!! </b></p>
+<p>Q: What bands do you prefer? We think, you're close Hammerfall and Rhapsody.</p>
+<p><b>well personally i prefer to listen to bands such as To/die/for and HIM and sonata arctica!!! Maybe we sound abit like rhapsody, but hammerfall? oh my god...i hope not!!! hehehe... On the next album i think many will notice that we tend to sound more like we are starting to find a sound that is our own!!! At least i think so! </b></p>
+<p>Q: We have very many bands in your style now. How can you describe your music, to fans will select your album, but not other?</p>
+<p><b>Well, many albums in this style is released nowadays, i think we differ in the way that everything is superb musicianship and well written arrangements!!! The next album will be different anyway as i said before, more of a own style!!! </b></p>
+<p>Q: You worked with Andy LaRoque. What can you say about him? Why do you have a little bit "unsufficiently polished" sound on this album?</p>
+<p><b>Andy is a great guy, fantastic to work with he understands very well what the band wants....but next time we will record in studio fredman instead(In flames, hammerfall, the storyteller, soilwork etc...)!!! The sound would have been a thousand times better if we'd had more time to record the album, but i think it turned out quite ok despite the time pressure!!! </b></p>
+
+Автор: Vit Belov
+
+### 18.04.2002 news DRAGONLAND second album
+
+<p>Dragonland has just finished recording their second album "Holy War" in Studio Fredman (Hammerfall, In Flames, Dimmu Borgir etc...). It will be released summer 2002, the band has also recorded a Helloween cover for a tribute album by Arise records. Keyboardist Elias has also done the keyboards for the new Falconer album and the upcoming Ironware debut. <A HREF="http://fade.to/Dragonland ">Check out </A> for samples from the new album.</p>
+
+Автор: Dimas
+
+### 18.04.2002 news Второй альбом DRAGONLAND
+
+<p>DRAGONLAND закончили запись в Studio Fredman своего второго альбома, который будет называться "Holy War". Альбом выйдет летом 2002 года. Также команда примет участие во второй части посвящения HELLOWEEN на Arise records. Клавишник группы Elias также записал клавишные партии на новом альбоме FALCONER и на вскоре выходящем дебютном альбоме группы IRONWARE.</p>
+<p> <A HREF="http://fade.to/Dragonland ">Здесь</A> можно найти более подробную информацию о группе и сэмплы с нового альбома.</p>
+
+Автор: Dimas
+
+### 24.09.2002 news A TRIBUTE TO HELLOWEEN PART II
+
+<p>Окончательно стало известно, что вторая часть посвящения HELLOWEEN "The Keepers Of Jericho - A Tribute To Helloween Part II -" выйдет 9 декабря 2002 года на Arise Records. Трэк-лист альбома:</p>
+<p> IRON SAVIOR - PHANTOMS OF DEATH <BR> STEEL ATTACK - DR.STEIN<BR> POWERGOD - STARLIGHT<BR> BETO VAZQUEZ INFINITY - A TALE THAT WASN&acute;T RIGHT (Featuring Elisa - DARK MOOR -)<BR> ARWEN - MARCH OF TIME<BR> HIGHLORD - POWER <BR> FRETERNIA - MURDERER <BR> PARAGON - METAL INVADERS<BR> VHALDEMAR - GORGAR <BR> CELESTY - THE CHANCE <BR> DRAGONLAND - SOUL SURVIVOR <BR> AXENSTAR - TWILIGHT OF THE GODS <BR> RED WINE - RISE & FALL</p>
+<p> Все трэки на альбоме эксклюзивные и записывались специально для него. Обложку для альбома нарисовал Travis Smith.</p>
+
+Автор: Dimas
+
+### 04.12.2002 reviews Последнее пророчество спасителя
+
+<p>Второй полнометражный альбом шведской power-speed группы. Новый альбом группы не менее привлекателен, чем дебют группы. По сути дела, здесь вы услышите все то же самое, но с более лучшим качеством и с более симфоничными и разнообразными аранжировками. Все такой же добротный симфоничный fantasy-power metal напоминающий STRATOVARIUS (по части гитарно-клавишных переливов) и HAMMERFALL (по риффовым структурам и, особенно, вокальным делам). Сразу скажу, если вам понравился дебютный альбом группы, то смело берите и этот. Для остальных скажу, что вас ждет настоящий эпическо-героический power metal, громкая и чистая музыка. Супермелодичное сражение гитар и клавиш оборачивается ничейным исходом, придает этой музыке гармоничность и делает ее интересной для долгого прослушивания. Также музыканты смело используют сложные композиционные структуры и некоторые фолковые влияния, вплетая в музыку звуки скрипки, клавесина и флейты. Песни на любой вкус, в основном, скоростные, но есть и среднетемповые вещи и хорошие баллады. Неоригинальная, без всяких инноваций музыка подкупает верностью стилю, требовательностью музыкантов к своей работе и интересным мелодичным материалом в лучших традициях.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru"><U><I>CD-MAXIMUM</I></U></A></p>
+
+Автор: Dimas
+
+### 02.03.2004 news Dragonland подписались на Century Media
+
+<B>DRAGONLAND</B> подписали контракт с <B>CENTURY MEDIA</B> на несколько альбом. В настоящее время группа усиленно работает над новым материалом.
+Автор: Vit Belov
+
+### 02.03.2004 news DRAGONLAND sign with Century Media
+
+<B>Dragonland</B> from Sweden inked a deal with <B>Century Media</B>. The melodic metal six-piece from Gothenburg signed a worldwide multi-album deal. "<I>We are really happy to have found a new home with Century Media Records</I>", states lead-guitarist and founder of the band <B>Nicklas Magnusson</B>. The guys are currently working on their forthcoming album. "<I>It's needless to say that it will be our best material ever</I>", says <B>Nicklas</B>.
+Автор: Vit Belov
+
+### 12.05.2005 reviews Пластмассовый пупсик для первоклассницы
+
+<P>Шведская пауэр-метал-формация DRAGONLORD – одна их тех групп, чей смысл существования остается для меня неразрешимой загадкой. Вроде и не новички уже – «Звездопад» то ли третий, то ли четвертый их альбом. Вроде и Швеция – страна не из самых бедных, и там вполне себе можно сочинять и записывать интересную и оригинальную музыку, не особо заботясь о хлебе насущном. Но все равно – продолжают скандинавские музыканты с удивительным упорством играть несвежую помесь HAMMERFALL и SONATA ARCTICA. Творческого начала в таких командах нет никакого, а откровенно второсортной музыкой больших денег не заработаешь – дураки есть, но их не много. Тогда зачем, скажите мне?..<BR>Клавиши, постоянно оглядывающиеся на пограничные территории прога. Хоры. Приторная мелодика. Милое, даже немного наивное оформление – как в старых добрых мультфильмах. Хороший, добротный саунд. Качественный вокал с надрывом и томным придыханием. Немного женского голоса. Все как у всех, все на уровне, все в формате. <BR>Но… ведь всего этого добра – навалом. Зачем слушать тысячную копию тысячного клона, идеальную внешне – но абсолютно пустую и бездушную внутри? Зачем копия – ведь есть оригинал! Где, где та искорка, которая цепляет? Где фишка, из-за которой каждый альбом этой команды ожидаешь с надеждой и нетерпением – эх, скорее бы, ведь наверняка ТАК сыграют! Где та мощь, отвечающая самому названию стиля – power? Где драйв?<BR>Ничего этого нет и в помине. Игрушечная музыка для Барби.</P>
+<P>Диск предоставлен <A href="http://www.fono.ru/">Фоно</A></P>
+Автор: Dr. Grandma
+
+### 12.10.2006 news Новый альбом DRAGONLAND
+
+<P>Новый альбом <STRONG>DRAGONLAND "Astronomy"</STRONG> выходит в ноябре на <STRONG>Century Media</STRONG>. Трэк-лист:</P>
+<P>01. <B>Supernova</B> (5:09)<BR>02. <B>Cassiopeia</B> (4:06)<BR>03. <B>Contact</B> (4:25)<BR>04. <B>Astronomy</B> (3:20)<BR>05. <B>Antimatter</B> (3:00)<BR>06. <B>The Book of Shadows part IV: The Scrolls of Geometria Divina</B> (4:04)<BR>07. <B>Beethoven's Nightmare</B> (6:11)<BR>08. <B>Too Late for Sorrow</B></B> (3:36)<BR>09. <B>Direction: Perfection</B> (4:29)<BR>10. <B>The Old House on the Hill Chapter I: A Death in the Family</B> (4:30)<BR>11. <B>The Old House on the Hill Chapter II: The Thing in the Cellar</B> (3:07)<BR>12. <B>The Old House on the Hill Chapter III: The Ring of Edward Waldon</B> (6:17) </P>
+Автор: Vit Belov
+
+### 15.08.2011 news DRAGONLAND закончили альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Пятый альбом шведов<STRONG> DRAGONLAND</STRONG> выйдет в этом году на <STRONG>AFM Records</STRONG>. Сведение сделал <STRONG>Jacob Hansen. </STRONG>Некоторые названия песен: <STRONG>"The Tempest"</STRONG>, <B>"A Stranger I Know"</B>, <B>"The Shadow Of The Mithril Mountains"</B>&nbsp;и <B>"A Thousand Towers White"</B>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предыдущий альбом группы вышел в 2006 году на <STRONG>Century Media</STRONG>.</FONT></P>
+<P><center><object width="640" height="390"><param name="movie" value="http://www.youtube.com/v/q5J9M5D6Tqo&hl=en_US&feature=player_embedded&version=3"></param><param name="allowFullScreen" value="true"></param><param name="allowScriptAccess" value="always"></param><embed src="http://www.youtube.com/v/q5J9M5D6Tqo&hl=en_US&feature=player_embedded&version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></embed></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

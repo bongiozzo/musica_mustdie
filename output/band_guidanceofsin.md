@@ -68,6 +68,33 @@ Cover design & lay-out by Bjarke Ahlstrand Karen Hjermind
 * C группой "A Canorous Quintet" Split up of A Canorous Quintet
 * C группой "Curriculum Mortis" Mattias Leinikka (vocal)
 
+## Публикации
+
+### 03.04.2000 reviews 
+
+<p>Альбом шведской команды, образовавшейся на руинах другого шведского коллектива A CANOROUS QUINTET. В принципе, творчество обеих групп имеет очень много общего и одни и те же корни. Мелодичный и ритмичный дэт-блэк в духе IN FLAMES и DARK TRANQUILLITY. Но только GUIDANCE OF SIN играют не настолько быструю музыку. Они, скорее, сторонники среднетемповых скоростей, степенности и добротности. Профессиональное качество записи, отшлифованность материала, мелодичность, сложность структур не дадут этому альбому затеряться в общем потоке, но, в то же время, и на гребне успеха эти ребята тоже вряд ли будут. Исключительно для любителей шведского дэт-метал.</p>
+
+Автор: Dimas
+
+### 11.04.2000 news 
+
+<p>Guidance Of Sin уже закончили запись новой пластинки "6106". это творение выйдет когда-то в марте-июне.</p>
+
+Автор: Vit Belov
+
+### 24.10.2001 news GUIDANCE OF SIN решили разойтись
+
+<p>Шведская группа GUIDANCE OF SIN решила разойтись. Участники группы играют в других проектах, Linus Nirbrants & Tob Sillmans участвуют в группе THE DEAD. Они выпустили сплит-CD с группой BIRDFLESH на лэйбле Nocturnal music. Сейчас они записали новый MCD из 6 песен. Информацию про группу THE DEAD можно получить по адресам: deadthe@hotmail.com или rich@nocturnalmusic.net</p>
+
+Автор: Vic Thor
+
+### 24.10.2001 news GUIDANCE OF SIN have decided to split up
+
+<p>The Swedish band GUIDANCE OF SIN have decided to split up. We have some other projects going on,but the only one worth mention right now are Linus Nirbrants & Tob Sillmans project THE DEAD. They have released a split-CD with BIRDFLESH on Nocturnal music. They have also been in the studio again and have just recorded a MCD (6 new brutal songs). For info about The DEAD send e-mails to: deadthe@hotmail.com or rich@nocturnalmusic.net</p>
+
+Автор: Vic Thor
+
+
 ## Обсуждения
 
 ### VicThor явился мне с отвратительной новостью! :(((((((((((

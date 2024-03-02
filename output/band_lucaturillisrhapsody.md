@@ -242,6 +242,98 @@ III. IGNIS DIVINUS
 * C группой "Rhapsody Of Fire" Luca Turilli
 * C группой "Dionysus" Luca Turilli
 
+## Публикации
+
+### 21.10.1999 reviews 
+
+<p>Этот альбом я ждал с огромнейшим нетерпением. Очень интересно было познакомиться с собственными наработками виртуозного музыканта одной из моих любимых групп. Каково же было моё удивление и ,даже, некоторое разочарование от того, что я услышал. Однако, тут же мои чувства сменились бурным восторгом. Да, я не услышал то, что ожидал и надеялся услышать. Но вместо ожидаемого, я получил то, что совсем не ожидал. После многократного прослушивания сего творения, меня до сих пор не покидает непоколебимое уверенность, что "King Of The Nordic Twilight" - новый альбом RHAPSODY. Так неразличим сольный материал гитариста группы с материалом его основной группы. Разве, что вокал не тот. Но это не слишком бросается в глаза (или в уши). Он не менее высок и выразителен. Вокалист, в своё время, поработал с Ингви Малмстином, чей дух тоже витает рядом при прослушивании этого шедевра. Альбом, безусловно классный и критике не подлежит. Упрекнуть почти не за что. Плагиатом назвать нельзя. Если вам нравится RHAPSODY, то этот альбом понравится тем более. Музыка стала ещё более симфоничной. Все композиции содержат классические вступления и наполнены оркестровой аранжировкой. Снова на меня обрушился мощнейший град супермелодий, поток двойных и чередующихся соло. Порадовали некоторые нововведения. Местами, звучат очень интересные и оригинальные партии ударных. Очень к месту использование женского оперного вокала и женского же хора в завершающей вещи "Виртуальной Одиссеи". Превосходная работа, затмевающая собой даже предыдущие альбомы RHAPSODY. Надеюсь, что группа не останется в долгу и запишет ещё более сильные вещи (хотя, представить это трудно). (10)</p>
+
+Автор: Dimas
+
+### 30.03.2001 news Новый проект Luca Turilli.....
+
+<p>Участник "CRIMSON GLORY" вокалист Midnight работает с гитаристом Luca Turilli ("RHAPSODY") над совместным проектом. Но по сообщению сайта певца работа продвигается очень медленно из-за занятости обоих участников. Кроме того, Midnight работает с гитаристом "CRIMSON GLORY" Jon Drenning над другим сольником.</p>
+
+Автор: Yermola
+
+### 30.03.2001 news Luca Turilli&#39;s forthcoming project....
+
+<p>Former CRIMSON GLORY vocalist Midnight is still slated to work with guitarist Luca Turilli from Italy’s RHAPSODY on a forthcoming project, but according to the singer’s official web site, “things have slowed while the two parties work out contracts to make the project workable.” In other Midnight news, no progress has been made on the writing or recording front for the planned project between Midnight and CRIMSON GLORY guitarist Jon Drenning. However, Midnight remains fairly adamant that he is in no way interested in a CRIMSON GLORY reunion with him on vocals, and is continuing work on a solo album, which will reportedly feature guest musicians.</p>
+
+Автор: Yermola
+
+### 22.09.2002 news Новая сольная работа Luca Turilli
+
+<p>30 сентября 2002 года выходит новый шестипесенный мини-альбом гитариста RHAPSODY Luca Turilli "Demonheart". Этот мини-альбом будет пробой перед выходом полнометражного альбома музыканта "Prophet Of The Last Eclipse". Случится это событие 28 октября 2002 года. Продюссеры альбома - неизменный дуэт Sascha Paeth и Miro. По словам музыканта, это будет symphonic cosmic metal на новом уровне с типичными гитарными запилами от Turilli.</p>
+<p> В то же время, полным ходом идет работа над новым творением RHAPSODY. Выход пятого альбома группы планируется летом 2003 года.</p>
+
+Автор: Dimas
+
+### 03.10.2002 reviews Очередной миньончик от маэстро Турилли
+
+<p>Очередной миньончик от маэстро Турилли. Так сказать, для затравочки. "Demonheart" мало чем отличается от "King Of The Nordic Twilight", – и удивляться здесь нечему. Не стоит ожидать от Луки ничего особенно нового… да и нового вообще. Помпезности и прочих, уже изрядно набивших оскомину атрибутов "Голливудского металла" здесь меньше, – но только если сравнивать с RHAPSODY. Если же параллели проводить с первым сольником синьора Турилли, – то ровно столько же. Симфоничность, эпичность и прочие …ичности на "Сердце Демона" конечно же присутствуют, но, к счастью, не раздражают. Вокалист обладает несравненно лучшим голосом, чем Фабио, и это, сами понимаете, нельзя не занести в графу "плюсы". Как уже было сказано, "Demonheart" – всего лишь мини-альбом, предвещающий выход второго по счёту полноценного диска, и состоит он из шести вещей. Первая, "Demonheart", войдёт в "Prophet Of The Last Eclipse" – тот самый новый альбом – а вот две другие, одна из которых псевдо-неоклассический инструментал – нет. В миньон также включена урезанная (?) версия заглавного трэка грядущего полноформатника, а также новый микс "Короля Нордических Сумерек" и замечательный кавер HELLOWEEN'овского "I'm Alive". Наслаждайтесь…</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 12.11.2002 reviews Пророчество апокалипсиса
+
+<p>Добро пожаловать в загадочную страну бесконечного космоса... Второе сольное творение итальянского гитариста-виртуоза Luca Turilli (RHAPSODY) с первых же секунд повергает слушателя в состояние ступора своим неожиданным началом в виде технобитов на фоне не пересекающихся женского и мужского хоров. Но уже со второй композиции все начинает помаленьку вставать на места. Мы снова слышим знакомые звуки гитары маэстро, голливудские героизм и торжественность, море красивых клавиш, оркестрово-симфонические дела, хоровые распевки и прочие дела присущие RHAPSODY при этом разбавленные с электронными нововведениями. В отличие от дебютной соло работы, новый альбом более разнообразный и интересный, со множеством свежих решений и новых элементов. Действие новой работы разворачивается в другое время и в другом мире. И поэтому звук нового альбома идеально подходит под определение симфонический космический металл. Это история о космической любви и жизни на другой планете в дальней галактике. История о межгалактическом путешествии звездного корабля "Темная Комета" ведомым командором Зефиром. Это повествование изобилует непредсказуемыми поворотами и неожиданной драматичностью. То же самое можно сказать и про музыкальный материал альбома. Компьютеризированно-синтезаторный happy power-metal являющийся смесью творчества RHAPSODY и некоторых редких моментов, где чувствуется влияние AYREON и PAIN. Снова собралась великолепная команда музыкантов. На альбоме записывались три разных хора плюс певец исландской оперы Rannveig Sif Sigurdardottir и американка Amanda Summerville. Безупречная работа состоящая из десяти песен-бомб, взрывающих атмосферу своей мелодичностью, эпичностью и разноплановостью, вызывая к себе неподкупный и неподдельный интерес вместе с бурным потоком эмоций... Продолжение следует.</p>
+
+Автор: Dimas
+
+### 14.11.2005 news LUCA TURILLI готовит сольник
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Гитарист <STRONG>RHAPSODY Luca Turilli</STRONG> готовит новый сольный альбом, который предположительно выйдет в январе/феврале будущего года. Подробности пока не сообщаются.</FONT></P>
+Автор: Vit Belov
+
+### 26.05.2006 news Новый альбом Luca Turilli
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=199 alt="" hspace=0 src="/images/news_rus/2006.05/10410.jpg" width=200 align=left border=5>Новый сольный альбом гитариста <STRONG>RHAPSODY Luca Turilli "The Infinite Wonders Of Creation"</STRONG> выходит 29 мая на <STRONG>Magic Circle</STRONG>. Эта пластинка завершит трилогию, начатую музыкантом на первых двух альбомах.</FONT></P>
+Автор: Vit Belov
+
+### 31.01.2012 news Подробности о новом альбоме LUCA TURILLI’S RHAPSODY
+
+<P><IMG height=225 alt="" hspace=0 src="/images/news_rus/2012.01/22882.jpg" width=400 align=right border=0>Первый альбом одной из частей итальнской группы <STRONG>RHAPSODY</STRONG> - <STRONG>LUCA TURILLI'S RHAPSODY</STRONG> - будет называться "<STRONG>Ascending To Infinity</STRONG>" и выйдет летом на <STRONG>Nuclear Blast</STRONG>. Трек-лист:</P>
+<P>1. <STRONG>Quantum X</STRONG><BR>2. <STRONG>Ascending To Infinity</STRONG><BR>3. <STRONG>Dante’s Inferno</STRONG><BR>4. <STRONG>Excalibur<BR></STRONG>5. <STRONG>Tormento E Passione</STRONG><BR>6. <STRONG>Dark Fate Of Atlantis</STRONG><BR>7. <STRONG>Fantasia Gotica</STRONG><BR>8. <STRONG>Clash Of The Titans<BR></STRONG>9. <STRONG>Of Michael The Archangel And Lucifer’s Fall</STRONG><BR>&nbsp;I. <STRONG>Alma Mundi</STRONG><BR>&nbsp;Ii. <STRONG>Fatum Mortalis <BR></STRONG>&nbsp;Iii. <STRONG>Ignis Divinus</STRONG></P>
+Автор: Vit Belov
+
+### 28.02.2012 news Обложка LUCA TURILLI&#39;S RHAPSODY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG><IMG height=483 alt="" hspace=0 src="/images/news_rus/2012.02/23162.jpg" width=475 align=right border=0>RHAPSODY OF FIRE</STRONG> распались на две части в августе прошлого года. Первым выпускает новый альбом проект под названием <STRONG>LUCA TURILLI'S RHAPSODY. </STRONG>Пластинка <STRONG>"Ascending To Infinity" </STRONG>выходит 29 июня на <STRONG>Nuclear Blast</STRONG>. Трек-лист:</FONT></P>
+<P>01. <B itxtHarvested="0" itxtNodeId="81">Quantum X</B><BR itxtNodeId="80">02. <B itxtHarvested="0" itxtNodeId="79">Ascending To Infinity</B><BR itxtNodeId="78">03. <B itxtHarvested="0" itxtNodeId="77">Dante’s Inferno</B><BR itxtNodeId="76">04. <B itxtHarvested="0" itxtNodeId="75">Excalibur</B><BR itxtNodeId="74">05. <B itxtHarvested="0" itxtNodeId="73">Tormento E Passione</B><BR itxtNodeId="72">06. <B itxtHarvested="0" itxtNodeId="71">Dark Fate Of Atlantis</B><BR itxtNodeId="70">07. <B itxtHarvested="0" itxtNodeId="69">Fantasia Gotica</B><BR itxtNodeId="68">08. <B itxtHarvested="0" itxtNodeId="67">Clash Of The Titans</B><BR itxtNodeId="66">09. <B itxtHarvested="0" itxtNodeId="65">Of Michael The Archangel And Lucifer's Fall</B><BR itxtNodeId="64">I. Alma Mundi<BR itxtNodeId="63">II. Fatum Mortalis<BR itxtNodeId="62">III. Ignis Divinus</P>
+Автор: Vit Belov
+
+### 31.03.2012 news Luca Turilli представил певца
+
+<P>Новым фронтменом одной из частей <STRONG>RHAPSODY OF FIRE</STRONG>, которая называется <STRONG>Luca Turilli's RHAPSODY</STRONG>, стал итальянец <STRONG>Alessandro Conti (TRICK OR TREAT)</STRONG>. Гитарист и основатель группы<STRONG> Luca Turilli</STRONG>&nbsp;сообщил, что новый певец учился на первого тенора в учебном заведении, которое выпустило из своих стен великого <STRONG>Luciano Pavarotti</STRONG>.</P>
+<P>29 июня на <STRONG>Nuclear Blast</STRONG> выйдет дебют нового проекта "<STRONG>Ascending To Infinity</STRONG>", нарезку из песен которого можно послушать ниже.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/k4Ebb88lkPU?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+### 04.05.2012 news Видео RHAPSODY от Luca Turilli
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип части <STRONG>RHAPSODY</STRONG>, принадлежащей гитаристу <STRONG>Luca Turilli</STRONG>, можно посмотреть ниже. Трек "<STRONG>Dark Fate Of Atlantis</STRONG>" взят с дебюта <STRONG>LUCA TURILLI'S RHAPSODY</STRONG> <STRONG>"Ascending To Infinity"</STRONG>, который выйдет 22 июня на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/XFqOkq8ta8U?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/XFqOkq8ta8U?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 03.07.2015 reviews Luca Turilli, саундтрек и Олег Газманов
+
+<P>Главным героем этой заметки, безусловно, должен стать итальянский гитарист, практически гитарист-виртуоз, Luca Turilli. Мало того, что его имя и фамилия указаны в названии обозреваемой группы, он ещё является главным идеологом и вдохновителем стиля cinematic-metal.</P>
+<P>Немного истории. В 2011 году коллектив, известный в то время, как RHAPSODY OF FIRE, развалился на две части. Собственно RHAPSODY OF FIRE и Luca Turilli's Rhapsody. Вернее даже это был процесс деления, митоз. Бульк, и была одна Рапсодия, а стало две. Инициатором процесса, безусловно, стал лидер и гитарист исходной клетки Luca Turilli. Что же заставило его пойти на этот шаг? Скандалов, столь любимых нами, не было. Никто не напивался, не выносил сор из избы, не бил друг другу или себе самому морду. Просто Turilli захотел отделиться от своего бывшего соратника клавишника Alex Staropoli. Раньше у Luca уже были успешные и не очень сольные альбомы, но в этот раз захотелось самостоятельности. Причиной этого события стал зверь редкий и одинокий cinematic metal. Мне всегда казалось странным, что Turilli считал своей любимой музыкой саундтреки к фильмам. Всё-таки полностью насладиться этим музыкальным полотном можно только, сильно вникая в суть кинокартины, даже вспоминая какие-то события фильма. СлабО вам выпустить альбом-саундтрек к несуществующему фильму? Будут его покупать? Господин Turilli решил, что будут. Но как он понимает себе cinematic-metal? Что нужно выкинуть из исходной Rhapsody, чтобы окончательно превратить её в саундтрек? Во-первых, сложность вокальных мелодий, во-вторых, тяжёлый метал, оставив только лёгкий такой метальчик, а, главное, нужно выкинуть... гитару, вернее, задвинуть себя как гитариста в дальний-дальний угол. Хозяин — барин, у Luca Turilli всё задуманное получилось великолепно. Альбом с длинным названием, начинающимся со слова Prometheus, идеально похож на саундтрек, в нём много симфонического оркестра, много хора, много женщин, мелодии зачастую напоминают творчество итальянских композиторов (не Верди или Пуччини, а других, которые сочиняли для Тото Кутуньи), а гитара прописана только пунктиром, мы понимаем, она где-то здесь, но её слышно плохо.</P>
+<P>Мне новый альбом Люки напомнил творчество Олега Газманова, прости Господи. Вот представьте себе, что наш народный артист возьмёт и сочинит оперу. А чё? Если будет выступать, я пойду смотреть.</P>
+<P>Лицензионный диск с альбомом можно приобрести на сайте <A href="http://escapemind.ru/">http://escapemind.ru</A></P>
+<P>
+<CENTER><IFRAME height=315 src="https://www.youtube.com/embed/bY031PZVNjM" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 23.01.2016 news Какая Рапсодия лучше?
+
+<P>Голосуй здесь: <A href="/ru/poll/221/">http://musica.mustdie.ru/ru/poll/221/</A></P>
+<P><center><IMG border=0 src="/images/news_rus/2016.01/28708.jpg" width=270 height=230></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

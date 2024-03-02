@@ -47,6 +47,17 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.07.2011 news Название нового альбома LANDMINE MARATHON
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Четвёртый альбом группы из Аризоны<STRONG> LANDMINE MARATHON</STRONG> получил название "<STRONG>Gallows</STRONG>". Пластинка выйдет 27 сентября на <STRONG>Prosthetic Records</STRONG>. Работа была записана гитаристом группы <STRONG>Ryan Butler</STRONG>&nbsp;в <STRONG>Arcane Digital Recording Studio (EXHUMED, NIGHTRAGE, MISERY INDEX, PHOBIA)</STRONG>. Мастеринг сделал<STRONG> Dave Shirk</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группу предлагается оценить поклонникам раннего творчества <STRONG>BOLT THROWER</STRONG> и <STRONG>ENTOMBED</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/landminemarathon">http://www.myspace.com/landminemarathon</A></FONT></P>
+<P><center><IMG height=317 src="/images/news_rus/2011.07/20322.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

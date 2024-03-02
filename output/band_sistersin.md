@@ -50,6 +50,77 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.03.2009 news SISTER SIN помянут чемпиона
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведская глэм группа с женским вокалом<STRONG> SISTER SIN</STRONG> запишет новую песню в память об умершем шведском боксёре <STRONG>Ingemar 'Ingo' Johansson. </STRONG>Новая песня <STRONG>'Beat 'Em Down' </STRONG>вскоре будет доступна на <STRONG>MySpace</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 29.04.2009 news Песня SISTER SIN
+
+<P>Новая песня <STRONG>SISTER SIN</STRONG> <STRONG>"Beat 'Em Down", </STRONG>посвящённая умершему шведскому боксёру <STRONG>Ingemar "Ingo" Johansson </STRONG>доступна на MySpace: <A href="http://www.myspace.com/sisterssin">http://www.myspace.com/sisterssin</A></P>
+Автор: Vit Belov
+
+### 22.03.2011 news Новый ролик SISTER SIN
+
+<P>Видео-клип шведов <STRONG>SISTER SIN</STRONG> на песню <STRONG>"24/7"</STRONG> (кавер на <STRONG>U.D.O.</STRONG>)&nbsp;можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Richard Frantzen, </STRONG>который уже работал с группой ранее. </P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/y3rfFX0ilTg?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/y3rfFX0ilTg?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 30.11.2011 news SISTER SIN поют MOTORHEAD
+
+<P>Видео-клип на кавер-версию на песню <STRONG>MOTORHEAD "Rock'N'Roll"</STRONG> в исполнении греческой банды <STRONG>SISTER SIN</STRONG> можно посмотреть ниже. В ролике также снялась знаменитая <STRONG>Doro Pesch</STRONG>.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/gUNhlzLWjPk?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/gUNhlzLWjPk?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 24.03.2012 news Новый альбом SISTER SIN
+
+<P>Новая работа <STRONG>SISTER SIN</STRONG> получила название "<STRONG>Now And Forever</STRONG>". <STRONG>Victory Records</STRONG> назначили датой релиза 22 мая текущего года. Обложку нового альбома glam-rock группы с женским вокалом можно посмотреть ниже.</P>
+<P><center><IMG height=477 src="/images/news_rus/2012.03/23314.jpg" width=475 border=0></P>
+Автор: Vit Belov
+
+### 15.10.2012 news SISTER SIN: клип &quot;End Of The Line&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведы <STRONG>SISTER SIN</STRONG> порадовали новым разудалым клипом на трек <STRONG>"End Of The Line"</STRONG>. Готовьте деньги - их новый альбом<STRONG>&nbsp;"Now And Forever"</STRONG>&nbsp;выходит уже совсем скоро - 23 октября на <STRONG>Victory Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первоначально альбом <STRONG>"End Of The Line" </STRONG>должен был выйти ещё 22 мая, но по каким-то причинам его выпуск был отложен.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/0KGbF8Hp_-Y" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 21.01.2013 news SISTER SIN: видеоклип &quot;Heart Of Gold&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведские&nbsp;хард-рокеры<STRONG>&nbsp;SISTER SIN </STRONG>опубликовали видеоклип на песню <STRONG>"Heart Of Gold"</STRONG>. Данный трек вошёл в прошлогодний альбом коллектива <STRONG>"Now & Forever"</STRONG>.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/vnQZPNkPQl4" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 13.03.2013 news SISTER SIN: видеоклип &quot;Fight Song&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведский состав <STRONG>SISTER SIN</STRONG> представил видеоклип на песню&nbsp;<STRONG>"Fight Song"</STRONG>.&nbsp;Этот трек вошёл на последний диск&nbsp;<STRONG>"Now & Forever".</STRONG></FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/tP7vRAr79N0" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 24.09.2014 news SISTER SIN выпускает новый альбом
+
+<P>Шведская metal-банда <STRONG>SISTER SIN</STRONG>, с прекрасной <STRONG>Liv</STRONG> за микрофонной стойкой, выпускает новый альбом. </P>
+<P>Диск&nbsp;получил название <STRONG>"Black Lotus"</STRONG>&nbsp;и выйдет&nbsp;27 октября на <STRONG>Victory Records</STRONG>.</P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Food For Worms</STRONG> | 2. <STRONG>Chaos Royale</STRONG> | 3. <STRONG>Au Revoir</STRONG> | 4. <STRONG>Desert Queen</STRONG> | 5. <STRONG>Count Me Out</STRONG> | 6. <STRONG>Stones Thrown</STRONG> | 7. <STRONG>The Jinx</STRONG> | 8. <STRONG>Ruled By None</STRONG> | 9. <STRONG>Sailed North</STRONG></P>
+<P>С треком <STRONG>"Chaos Royale"</STRONG> можно ознакомиться по ссылке: <A href="http://youtu.be/s8Y_H-tV3EM">http://youtu.be/s8Y_H-tV3EM</A></P>
+<P><center><IMG border=0 src="/images/news_rus/2014.09/27300.jpg" width=500 height=500></P>
+Автор: Headcrusher
+
+### 13.11.2014 news SISTER SIN: клип &quot;Chaos Royale&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клип на песню <STRONG>"Chaos Royale"</STRONG> шведских металистов <STRONG>SISTER SIN</STRONG>, можно посмотреть ниже. Этот трек вошёл на альбом <STRONG>"Black Lotus"</STRONG>, выход которого состоялся 27 октября на <STRONG>Victory Records</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В следующем месяце группа уже во второй раз посетит Россию с концертами. Больше подробностей о грядущих российских&nbsp;концертах совсем скоро в разделе<STRONG> "Shows"</STRONG>: <A href="/ru/shows/">http://musica.mustdie.ru/ru/shows/</A></FONT></P>
+<CENTER><IFRAME height=315 src="//www.youtube.com/embed/CDjOlhqWuy0" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### SISTER SIN (Швеция) в Москве!!!

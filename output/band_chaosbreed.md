@@ -22,6 +22,15 @@
 * C группой "Moonsorrow" Marko Tarvonen
 * C группой "Amorphis" Esa Holopainen
 
+## Публикации
+
+### 29.03.2003 news Новое имя в финском death metal
+
+<p>CHAOSBREED - новое имя в финском death metal. Однако, музыканты группы далеко не новички на местной сцене. В состав супергруппы входят ударник Nalle Osterman (ex-GANDALF), басист Oppu Laine (ex-AMORPHIS, MANNHAI), гитаристы Marko Tarvonen (MOONSORROW) и Esa Holopainen (AMORPHIS), а также вокалист Taneli Jarva (ex-SENTENCED, THE BLACK LEAGUE). Официальный пресс-релиз сообщает, что музыка группы будет содержать все самое лучшее из творчества таких групп, как ENTOMBED, DISMEMBER, CARNAGE, GRAVE, UNLEASHED, AUTOPSY, REPULSION, CARCASS, SLAYER и MORBID ANGEL. Пока что идет работа над сочинением материала. Летом, группа засядет в Sunlight Studio с продюссером Tomas Skogsberg'ом. Дебютный альбом ожидается к концу 2003 года.</p>
+
+Автор: Dimas
+
+
 ## Обсуждения
 
 

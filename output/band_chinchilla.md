@@ -21,6 +21,115 @@ Anymore
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.04.2001 news Tourdates.......
+
+<p> Here are the final IMMOLATION Tourdates:</p>
+<p></p>
+<p> IMMOLATION</p>
+<p> Deranged / Destroyer 666</p>
+<p> Decapitated / Soul Demise</p>
+<p></p>
+<p> 01.05. UK London Underworld</p>
+<p> 02.05. UK Edinburgh Attic</p>
+<p> 03.05. UK Bradford Rio</p>
+<p> 04.05. NL Groningen Vera</p>
+<p> 05.05. BL Vosselaar Biebob</p>
+<p> 06.05. NL Rotterdam Baroeg</p>
+<p> 07.05. FR Rennes LґAntipode</p>
+<p> 08.05. D Essen Zeche Carl</p>
+<p> 09.05. D Berlin Razzle Dazzle</p>
+<p> 10.05. D Hamburg Marx</p>
+<p> 11.05. D Offenbach Hafenbahn</p>
+<p> 12.05. D Zwickau Alarm</p>
+<p> 13.05. PL Warsow Proxima</p>
+<p> 14.05. CZ Praha Rock Cafe</p>
+<p> 15.05. SLO Lubljana Metalkova</p>
+<p> 16.05. CRO Zagreb Mocvara</p>
+<p> 17.05. SLK Ruzomberok Papiernik</p>
+<p> 18.05. A Vienna Arena</p>
+<p> 19.05. I Prato Siddharta</p>
+<p> 20.05. CH Will Remise</p>
+<p> 21.05. FR Paris Gibus</p>
+<p> Booking by metallysee@skynet.be</p>
+<p></p>
+<p> CHINCHILLA</p>
+<p> all dates in Germany!</p>
+<p> Fr. 13.04.01 Logo Hamburg</p>
+<p> Sa. 14.04.01 Spritzenhaus Frankfurt</p>
+<p> So. 15.04.01 Zur Eiche Crailsheim</p>
+<p> Sa. 21.04.01 Hammerfestival Bьren Harth</p>
+<p> Sa. 28.04.01 Festhalle Dagersheim</p>
+<p> Mo. 30.04.01 Haus der Jugend Mainz</p>
+<p></p>
+<p> PARTY-SAN OPEN AIR</p>
+<p> feat. Metal Blade acts: FLESHCRAWL, GOD DETHRONED, VOMITORY</p>
+<p> other appearing acts: FINNTROLL, CENTINEX, PENTACLE, PURGATORY, ADORNED</p>
+<p> BROOD, SEIRIM + many more</p>
+<p> 11.08.2001</p>
+<p> Bad Berka (Germany)</p>
+<p> http://www.party-san.de</p>
+<p></p>
+<p> WACKEN OPEN AIR</p>
+<p> feat. Metal Blade acts: BRAINSTORM, CHINCHILLA, TOURNIQUET</p>
+<p> other appearing acts: too many to mention, check their website.</p>
+<p> 03.04.08. 2001</p>
+<p> Wacken (Germany)</p>
+<p> www.wacken-open-air.de</p>
+<p></p>
+
+Автор: Yermola
+
+### 14.12.2001 news График релизов Metal Blade...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 14.12.2001 news Next Metal Blade releases...
+
+<p>28.01.02 KING DIAMOND Abigail II - The Revenge <BR> 28.01.02 LIZZY BORDEN Love You To Pieces (Re-Issue)<BR> 28.01.02 LIZZY BORDEN Menace To Society (Re-Issue)<BR> 11.02.02 CALLENISH CIRCLE Flesh-Power-Dominion<BR> 25.02.02 CANNIBAL CORPSE Gore Obsessed<BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 08.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore (DO-CD)<BR> 08.04.02 BROKEN HOPE Repulsive Conception + Loathing (DO-CD)<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edit.<BR> 22.04.02 SAVATAGE Sirens - Silver Edit.</p>
+
+Автор: Yermola
+
+### 27.02.2002 news График релизов Metal Blade Records....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 27.02.2002 news Metal Blade Records Release Schedule....
+
+<p>25.02.02 CANNIBAL CORPSE Gore Obsessed <BR> 11.03.02 CHINCHILLA The Last Millennium<BR> 11.03.02 FALCONER Chapters From A Vale Forlorn<BR> 25.03.02 VOMITORY Blood Rapture<BR> 25.03.02 BLUDGEON Crucify The Priest<BR> 08.04.02 THE CROWN Crowned In Terror<BR> 08.04.02 CANNIBAL CORPSE Live Cannibalism - Ultimate Edition (DVD)<BR> 22.04.02 BROKEN HOPE Bowels Of Repugnance + Swamped In Gore<BR> 22.04.02 BROKEN HOPE Repulsive Conception + Loathing<BR> 22.04.02 SAVATAGE The Dungeons Are Calling - Silver Edition<BR> 22.04.02 SAVATAGE Sirens - Silver Edition<BR> 06.05.02 RED AIM Flesh For Fantasy<BR> 06.05.02 BEYOND THE EMBRACE Against The Elements<BR> 20.05.02 ENGINE Superholic<BR> 03.06.02 EIDOLON Coma Nation<BR> 03.06.02 VADER Epitaph<BR></p>
+
+Автор: Yermola
+
+### 09.02.2003 news Танцы с Дьяволом
+
+<p>Немецкая группа CHINCHILLA закончила запись своего нового четвертого альбома под названием "Madtropolis". Слушателям обещают чистейший и мощнейший heavy metal. Альбом выйдет весной 2003 года на Metal Blade Records. В альбом войдут следующие вещи:</p>
+<p> 1. A DANCE WITH THE DEVIL <BR> 2. BATTLE OF THE WORLD <BR> 3. HEADLESS FOOLS <BR> 4. HEAVY METAL <BR> 5. MADTROPOLIS <BR> 6. MONEY RULES EVERYTHING <BR> 7. OUR DESTINY <BR> 8. SATELLITE <BR> 9. THE ENTIRE WORLD <BR> 10. TURN AROUND THE MAGIC TABLE <BR> 11. WHEN THE SAND DARKENS THE SUN</p>
+
+Автор: Dimas
+
+### 29.03.2003 news CHINCHILLA выпускает новый альбом
+
+<p>5 мая на Metal Blade Records выходит новый альбом группы CHINCHILLA "Madtropolis". Он был записан в германской House Of Music Studios под руководством Achim Kohler'a. В качестве гостя, на альбоме отметился бывший гитарист MOTORHEAD "Fast" Eddie Clarke в трэке "When The Sand Darkens The Sun".</p>
+
+Автор: Dimas
+
+### 05.03.2004 news Chinchilla уже подготовили новый альбом
+
+<P><B>CHINCHILLA</B> назвали новый альбом, который выйдет в конце года на <B>Metal Blade</B>, "<B>Take No Prisoners". </B>Трэк-лист:</P>
+<P>01. <B>Stillborn Soul</B><BR>02. <B>I'm The Ripper</B><BR>03. <B>Money Talks</B><BR>04. <B>Under The Flames</B><BR>05. <B>Take No Prisoners</B><BR>06. <B>The Almighty Power</B><BR>07. <B>The Call</B><BR>08. <B>Rich Hounds</B><BR>09. <B>Lost Control</B><BR>10. <B>Silent Moments</B><BR>11. <B>Death Is The Grand Leveller</B></P>
+Автор: Vit Belov
+
+### 17.02.2005 news CHINCHILLA на Armageddon
+
+<P><STRONG>CHINCHILLA</STRONG> подписали контракт с <STRONG>Armageddon Media</STRONG> и собираются в тур с <STRONG>SAXON</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

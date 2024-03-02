@@ -96,6 +96,33 @@ Mr. Hellhammer
 * C группой "Thorns" HellHammer
 * C группой "Winds" HellHammer
 
+## Публикации
+
+### 28.07.2000 reviews Э-эх прокачу......
+
+<p>Э-эх прокачу.......Слушая этот альбом, временами создается впечатление, что ты катишься по шоссе на огромной скорости и тебя со всех сторон обдувает попутным ветром. Но иногда, тебя останавливают светофоры и ты тормозишь. В это время твоя голова кружится, в тебе полно адреналина. Очень психопатичный и соматичный альбом. Не рекомендую его для прослушивания людям с неразвитой и поврежденной психикой. Он может подействовать отрицательно. Такой альбом может довести до сумасшествия. Представьте себе суперэкстремальную версию последнего альбома The Kovenant, добавьте бешеных скоростей и неимоверную злобу - получите Troll'2000. Да это и немудрено. Ведь в записи принимал участие полный состав The Kovenant. Интересная музыка. Альбом небольшой, но подпитывает энергией на целый день (а кого-то и на целую неделю). Сумасшедший механикообразный black-metal со странными вокалами, очень влияющими на неокрепшую психику. Альбом сильно отличается от дебютного, где присутствовал традиционный норвежский black-metal. На мой взгляд, только в лучшую сторону. Хороший альбом, но будьте осторожны при его прослушивании :-)</p>
+
+Автор: Dimas
+
+### 28.07.2000 reviews Oh yeahhh!......
+
+<p>Oh yeahhh!....... Listening this album, from time to time there is an impression, that thee are bowled till a highway on huge speed and in thee from different directions blows by a tail wind. But sometimes, thee the traffic lights intercept and thee inhibit. At this time thy head is turned, in thee is full of an epinephrine. Very much psychopatic and somatic an album. I do not recommend it for listening the people with the undeveloped and injured psychics. He can work negatively. Such album can finish up to madness. Imagine the superextreme version of last album The Kovenant, add of rabietic speeds and an extreme wrath - receive Troll ' 2000. Yes it and no wonder. You see the full structure The Kovenant participated in a record. Interesting music. An album small, but doing by energy on all the day (and someone and for the whole week). Mad mechanical black-metal with strange voices, very much influential on the not got stronger psychics. The album hardly differs from debut, where was present conventional Norwegian black-metal. On my view, only in the best party. A good album, but be cautious at his(its) listening:-)</p>
+
+Автор: Dimas
+
+### 22.08.2009 news TROLL вернулись
+
+<P>Группа <STRONG>Lex Icon/Nagash</STRONG> (<STRONG>THE KOVENANT</STRONG>)&nbsp;<STRONG>TROLL</STRONG> подписала контракт с <STRONG>Napalm Records</STRONG> на выпуск нового альбома этой зимой.</P>
+Автор: Vit Belov
+
+### 10.03.2010 reviews Nagash вернулся
+
+<P>О Stian Arnesen aka Nagash aka Lex Icon ничего не было слышно уже довольно давно. Музыкант много лет пытается реализовать новый альбом своего мегауспешного проекта THE KOVENANT, но что-то всегда мешает ему это сделать. И вот, довольно неожиданно, в прошлом году он, набрав новый состав, он оживил другую свою группу TROLL.</P>
+<P>Сказать, что на новом альбоме этой группы чувствуется рука Nagash, было бы наверное небольшим преувеличением. Каких-то знаковых хитов, которых от него ждут после “Animatronic”, я на “Neo-Satanic Supremacy” не обнаружил, но, в общем и целом, этот альбом звучит зрело и очень профессионально. В своей музыке TROLL обратились к наследию DIMMU BORGIR, где Nagash играл на басу до Vortex’а. Суровый северный black-metal с обилием клавишных, которые задают тон музыке. При этом альбом не звучит «попсово» или вычурно, он просто содержит клавишные, которые ведут помпезные и не очень мелодии. Слушать подобную музыку очень приятно, сразу вспоминаются 90-е, когда симфонизм в black-metal делал лишь первые шаги, а, слушая некоторые современные альбомы в этом жанре, иногда чувствуешь, что многим группам не мешало бы остановиться на тех первых шагах. </P>
+<P>TROLL представляют нам sympho-black-metal, который всё ещё black-metal. На этом альбоме есть, что послушать практически каждому, для которого название стиля не пустой звук. Крепко сделанный альбом от знаменитых норвежцев.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Otyg - Trollsloter - это чего?

@@ -12,6 +12,19 @@ hard rock from Italy
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.07.2016 news Новый сингл ALCHEMY
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Ниже можно послушать песню итальянской hard rock команды <strong>ALCHEMY "Alcohol Symphony"</strong> с дебютного альбома, вышедшего 31 мая на<strong> Street Symphonies Records</strong>. В ближайшее время группа отправится в студию<strong> Atomic Stuff</strong> для записи нового сингла вместе с продюсером<strong> Oscar Burato</strong>.</font></p><p>&nbsp;</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/oepPrKM1SHo" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+### 02.07.2016 news ALCHEMY: second song online
+
+<p>Italian hard rockers <strong>ALCHEMY</strong> made available the song <strong>“Alcohol Symphony</strong>” to listen below, the second extract from their debut album “<strong>Never Too Late</strong>”, released on May 31st under <strong>Street Symphonies Records</strong>. In a few weeks the band will enter the <strong>Atomic Stuff Studio</strong> to record a new single under the guide of <strong>Oscar Burato</strong>: more infos coming soon.</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/oepPrKM1SHo" frameborder="0" allowfullscreen=""></iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

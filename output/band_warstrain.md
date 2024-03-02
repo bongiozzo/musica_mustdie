@@ -18,6 +18,9 @@ All lyrics and music by Philosopher, additional arrangements by Drummer
 ## Отношения с другими группами
 
 
+## Публикации
+
+
 ## Обсуждения
 
 

@@ -257,6 +257,238 @@ All lyrics by ATF Sinner
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.10.2002 news MassaBrutto Radioshow #118, 21-22 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 2. ILLDISPOSED - Purity Of Sadness (Diehard Music)<BR> 3. HATE - Apocalypse (Apocalypse Prods/Moral Insanity Prods)<BR><BR> + конкурс от HATE и Moral Insanity Prods [email: moralinsanity@tut.by]<BR><BR> 4. HATE - Cain's Way (Apocalypse Prods/Moral Insanity Prods)<BR> 5. PENTAGRAM - Bride Of Evil (Peaceville)<BR> 6. THE BEAST - Fixed By The Devil (Painkiller Recs)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. THE GREAT DECEIVER - Enter The Martyrs (Peaceville)<BR> 8. THE GREAT DECEIVER - After Us The Flood (Peaceville)<BR> 9. ABSCESS - Mourners Will Burn (Peaceville)<BR> 10. ABSCESS - Through The Cracks Of Death (Peaceville)<BR> 11. MY DYING BRIDE - The Cry Of Mankind [live] (Peaceville)<BR> 12. MY DYING BRIDE - The Snow In My Hand [live] (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 22.10.2002 news MassaBrutto Radioshow #118, 21-22 Oct 2002.
+
+<p>Playlist: <BR><BR> 1. NOVEMBERS DOOM - Lost In A Day (Dark Symphonies)<BR> 2. ILLDISPOSED - Purity Of Sadness (Diehard Music)<BR> 3. HATE - Apocalypse (Apocalypse Prods/Moral Insanity Prods)<BR> 4. HATE - Cain's Way (Apocalypse Prods/Moral Insanity Prods)<BR> 5. PENTAGRAM - Bride Of Evil (Peaceville)<BR> 6. THE BEAST - Fixed By The Devil (Painkiller Recs)<BR> 7. THE GREAT DECEIVER - Enter The Martyrs (Peaceville)<BR> 8. THE GREAT DECEIVER - After Us The Flood (Peaceville)<BR> 9. ABSCESS - Mourners Will Burn (Peaceville)<BR> 10. ABSCESS - Through The Cracks Of Death (Peaceville)<BR> 11. MY DYING BRIDE - The Cry Of Mankind [live] (Peaceville)<BR> 12. MY DYING BRIDE - The Snow In My Hand [live] (Peaceville)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 29.10.2002 news MassaBrutto Radioshow #120, 28-29 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. LUNATIC GODS - Stone (Shindy Prods)<BR> 2. NILE - Churning The Maelstrom (Relapse)<BR> 3. BURNT BY THE SUN - Shooter McGavin (Relapse)<BR> 4. HATE - Through Hate To Eternity (Apocalypse Prods/Moral Insanity Prods)<BR> 5. DUST - The Prophecy (Mester Prods)<BR> 6. DUST - The Chosen One (Mester Prods)<BR> --- --- --- ---<BR> // новости //<BR> --- --- --- ---<BR> 7. SCHIZOID - It Feels Like I'm Being Raped (D-Trash Recs/Invasion Wreck Chords)<BR> 8. DIABOLICUM - Heavens Die (Mester Prods)<BR> 9. DIABOLICUM - The War Tide [All Out Genocide] (Mester Prods)<BR> 10. DIABOLICUM - Into The Dementia (Mester Prods)<BR> 11. BELENOS - Le Domaine Des Songes [Acte II] (Sacral Prods/Ablaze)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 30.10.2002 news MassaBrutto Radioshow #120, 28-29 Oct 2002.
+
+<p>Playlist:<BR><BR> 1. LUNATIC GODS - Stone (Shindy Prods)<BR> 2. NILE - Churning The Maelstrom (Relapse)<BR> 3. BURNT BY THE SUN - Shooter McGavin (Relapse)<BR> 4. HATE - Through Hate To Eternity (Apocalypse Prods/Moral Insanity Prods)<BR> 5. DUST - The Prophecy (Mester Prods)<BR> 6. DUST - The Chosen One (Mester Prods)<BR> --- --- --- ---<BR> // NEWS //<BR> --- --- --- ---<BR> 7. SCHIZOID - It Feels Like I'm Being Raped (D-Trash Recs/Invasion Wreck Chords)<BR> 8. DIABOLICUM - Heavens Die (Mester Prods)<BR> 9. DIABOLICUM - The War Tide [All Out Genocide] (Mester Prods)<BR> 10. DIABOLICUM - Into The Dementia (Mester Prods)<BR> 11. BELENOS - Le Domaine Des Songes [Acte II] (Sacral Prods/Ablaze)<BR><BR> massabrutto@tut.by<BR> massaradio@yandex.ru</p>
+
+Автор: Yermola
+
+### 24.11.2002 news Новости Moral Insanity prods
+
+<p>На Moral Insanity prods [www.moral-insanity.org] вышла лицензионная МС-версия последнего альбома ведущей death-бригады польского подземелья HATE. Подробности: http://hatesatanic.org/russian; e-mail: hate@moral-insanity.org.</p>
+<p> Также в новостях от этой конторы: <br>Польские brutal death/grind маньяки #1 будут атаковать нас со сцены в рамках беларуско-украинского тура в декабре. Компанию им, скорее всего, составят MENTAL DEMISE, RASTA, VELD. Подробности вскоре.</p>
+<p> Украинские ветераны-брутальщики Mental Demise завершают запись нового альбома, который будет называться "Disgraceful Sores" и включит 7 трэков брутального и интеллектуального death/grind. Трэк-лист: Posterity's Defect Removal / Pornopedophilic Mocery / Skeleton 509 / Totsk / Soporific Anabiosis / Coitus Per Machina / Mattoid (Sensless Prophet).</p>
+
+Автор: Vit Belov
+
+### 03.12.2002 reviews Poland&#39;s own DEICIDE?
+
+<p>Poland's own DEICIDE? Well, maybe… At least, the main idea's basically the same: hell-blasting death metal, antichristian to the core. “Cain's Way” comes with eleven tracks of an ode to pure yet more or less intelligent brutality, and most probably it's the best work HATE have spitted forth the light so far. Actually, there's not much to be reviewed. If you get high on DEICIDE and the likes, this CD must be yours. However… what about originality?… Can we speak about it in case with HATE? Perhaps. Replacing it with ‘individuality’. Adam The First Sinner and co. possess pretty much recognizable sound and – again – it's intelligent kind of brutality if you can imagine anything like that. While Mr. Benton previously cared about furious death metal onslaught and shocking the audience in the first turn, it strikes as HATE value _music_ most. All in all, “Cain's Way” is definitely worth checking out. Just like “Daemon Qui Fecit Terram”, “Victims” (MCD, which, besides HATE's own songs, features covers from SLAYER & NAPALM DEATH) and “Lord Is Avenger”, band's former works, which have been recently re-released in the shape of MC-albums by Belarus’ Moral Insanity Production. Apparently, they're way less impressively executed, in terms of both sound and musicianship, however those three aren't less stunning than “Cain's Way” musically. Please, believe me. What surprises me most, though, is that HATE still remains a relatively unknown band worldwide. A pity, since I bet this combo deserves a better fate…</p>
+<P>Website: <A HREF="http://www.hatesatanic.org">http://www.hatesatanic.org</A> // <A HREF="http://www.moral-insanity.org">http://www.moral-insanity.org</A></>
+<P>Email: <A HREF="mailto:adsinner@friko4.onet.pl">adsinner@friko4.onet.pl</A> // <A HREF="mailto:Eugen@moral-insanity.org">Eugen@moral-insanity.com</A></>
+
+Автор: Kai Mathias Stalhammar
+
+### 29.01.2003 news Новости от Hate
+
+<p><IMG SRC="/images/news_rus/2003.01/3730.jpg" ALT="pho" width=201 height=200 hspace="15" vspace="5" border="1" align="right">Польские death-богохульщики HATE завершили работу над своим четвёртым полноформатником - "Awakening Of The Liar". Премьера диска в Польше состоится 25 марта (издатель - Empire Records). Несколько слов о процессе записи, концепции альбома и прочие подробности на официальном русскоязычном сайте группы: http://hatesatanic.org/russian.</p>
+<P> Трэк-лист:<BR> 1. Flagellation<BR> 2. Anti-God Extremity<BR> 3. Close To The Nephilim<BR> 4. Immolate The Pope<BR> 5. The Shroud (A Hellish Value)<BR> 6. Serve God Rely On Me (Hymn Of Asa'el)<BR> 7. Awakening Of The Liar<BR> 8. Spirit Of Gospa<BR> 9. Grail In The Flesh<BR> 10. The Scrolls.</>
+
+Автор: Vit Belov
+
+### 05.03.2003 news HATE - МР3 с грядущегшо альбома
+
+<p>Качаем одну из новых песен польских дэтстеров HATE "The Shroud": http://www.empire-records.com.pl/mp3/shroud-hate.mp3.</p>
+<P>Новейший альбом группы "Awakening Of The Liar" выйдет в Польше 25 марта через Empire Records, а в Европе во второй половине года через Candlelight Records. <BR> Больше сэмплов вскоре на сайте HATE: http://hatesatanic.org/russian</>
+
+Автор: Vit Belov
+
+### 15.01.2004 news HATE подписали сделку с Listenable Records
+
+Польские экстремальщики <B>HATE</B> подписали договор с французским лейблом <B>Listenable Records. </B>Именно там, 23 февраля 2004 года&nbsp;выйдет новый альбом группы <B>"Awakening Of The Liar". </B>Это будет массивная доза свирепого death metal превосходного качества и в привлекательной упаковке.
+Автор: Dimas
+
+### 13.01.2005 reviews Когда пробуждается лжец
+
+<SPAN lang=RU><SPAN style="COLOR: #ffffff">
+<P><SPAN lang=RU>Что может играть группа из Польши, имеющая название </SPAN>Hate <SPAN lang=RU>и выпустившая свою пластинку на Listenable Records? Правильно, дэт-метал. Сатанинский квартет, фотографии которого – естественно, со зверскими лицами – вы можете видеть вкупе с немалым количеством черепов в буклете альбома, выпустил, если не ошибаюсь, свой первый релиз на </SPAN>CD<SPAN lang=RU> (до этого были только записи на лентах), что за более чем десятилетнее существование коллектива весьма и весьма скромное достижение. Однако пусть в истории копаются фэны, я же отмечу, что данная пластинка произвела очень хорошее впечатление: мясистый дэт-метал, крайне агрессивный и безупречно сыгранный. Продолжаю удивляться, где только поляки находят для своих тяжелых групп музыкантов такого класса, особенно барабанщиков. Как всегда, оговорюсь, что практически ничего тут нового, шедеврального или сверхестественного нет, просто еще одна хорошая пластинка жанра. Для фэнов дэта рекомендую хотя бы послушать, остальные могут спокойно проходить мимо.</SPAN></P>
+<P><SPAN lang=RU>Альбом предоставлен компанией "СД-Максимум"</SPAN></P></SPAN></SPAN>
+Автор: Ixtiandr
+
+### 14.01.2005 news Планы HATE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Польские маньяки <STRONG>HATE</STRONG> готовы к европейскому туру вместе со совими земляками <STRONG>DECAPITATED</STRONG>, <STRONG>DIES IRAE</STRONG> и <STRONG>CRIONICS</STRONG>. Новый альбом группы будет записан в июне, а выйдет он в сентябре на<STRONG> Listenable</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 26.04.2005 news Новый альбом HATE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Летом польские маньяки <STRONG>HATE</STRONG> войдут в <STRONG>Herz Studio</STRONG> для записи нового альбома, который выйдет в октябре на<STRONG> Listenable</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 27.07.2005 news HATE записали альбом
+
+<P><STRONG>HATE</STRONG> записали новый альбом "<STRONG>ANACLASIS - A haunting gospel of malice and hatred</STRONG>" и выйдет в скором времени на <STRONG>Listenable</STRONG>. Вот названия нескольких песен: <STRONG>Anaclasis, Necropolis, Hex, Malediction, Euphoria Of The New Breed, Empire Of Dirt, Immortality, Fountains Of Blood To Reach Heavens</STRONG>.</P>
+Автор: Vit Belov
+
+### 25.01.2007 reviews Добротная польская работа
+
+<P>Почему-то сложилось так, что Польша стала одним из лидеров мировой дэт-метал-сцены. Не жалуясь на нехватку денег, хороших студий, умелых музыкантов и сильных вокалистов, группы из этой бывшей социалистической страны записывают себе альбом за альбомом, составляя неслабую конкуренцию американским коллегам. Почему наши отечественные команды не могут выйти на такой уровень, я не берусь судить. Впрочем, я отвлекся. Пятая работа польских дэтстеров Hate под названием "Anaclasis - A Haunting Gospel Of Malice & Hatred" представляет собой еще один добротный кровавый кусок смертельного метала made in Poland. Шквал риффов, неустанный грохот барабанов, сочный рык вокалиста, плотная стена звука - здесь есть всё, что так любит душа поклонника данного жанра. Это польское трио не делает никаких открытий, как и нововведений; впрочем, они весьма органично вплели в свое звуковое полотно даже пару индастриальных сэмплов. В общем и целом - "Anaclasis..." это добротная и крепкая работа, которая рекомендуется к приобретению всем поклонникам дэт-метала, в особенности польского разлива.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 21.03.2007 news HATE едут в Россию
+
+<P>В рамках четвёртой части тура <STRONG>Metal Spirit Resurrection</STRONG> Россию с широкомасштабным туром посетят поляки <STRONG>HATE</STRONG>. Даты:</P>
+<P><IMG height=209 alt="" hspace=0 src="/images/news_rus/2007.03/11485.jpg" width=300 align=right border=5>19.04 - Санкт-Петербург<BR>20.04 - Москва <BR>21.04 - Мичуринск <BR>22.04 - Воронеж <BR>23.04 - Липецк <BR>24.04 - Саранск <BR>25.04 - Ульяновск <BR>26.04 - Самара <BR>27.04 - Йонкар-Ола <BR>28.04 - Киров <BR>29.04 - Казань </P>
+<P>С российской стороны в трассе примут участие:<STRONG> SINFUL, ACT OF GOD, LITTLE DEAD BERTHA, TARTHARIS, GOTHIC SKY, DEMOGORGON</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.03.2007 articles METAL SPIRIT RESURRECTION TOUR Vol. 4 (feat. HATE): пресс-релиз
+
+<P>METAL SPIRIT RESURRECTION TOUR VOL.4</P>
+<P><A href="http://www.metalspirit.ru/">www.metalspirit.ru</A></P>
+<P>(19.04.07 - 29.04.07)</P>
+<P>Участники:</P>
+<P>HATE&nbsp; (Польша)</P>
+<P>SINFUL (Москва)<BR>ACT OF GOD (Пермь, Москва)<BR>LITTLE DEAD BERTHA (Воронеж)<BR>TARTHARIA (Санкт-Петербург)<BR>GOTHIC SKY (Мичуринск)<BR>DEMOGORGON (Йошкар-Ола)</P>
+<P>Расписание:</P>
+<P>19.04&nbsp; Санкт-Петербург&nbsp;&nbsp; «Арктика»<BR>20.04&nbsp; Москва&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; «План-Б»<BR>21.04&nbsp; Мичуринск&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ДК «Авангард»<BR>&nbsp;22.04&nbsp; Воронеж&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; «100 Ручьёв»<BR>23.04 Липецк&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ДК ЛКЗ<BR>24.04 Саранск&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ДК "Строитель"<BR>25.04 Ульяновск&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Зал филармонии<BR>26.04 Самара&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; Рок-бар "Подвал"<BR>27.04 Йошкар-Ола&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; «Тоннель»<BR>28.04 Киров&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ЦО "Победа"<BR>29.04 Казань&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; "Крылья"</P>
+<P>Пресс-релиз:</P>
+<P>Четвёртое "воскрешение" должно открыть новую главу в истории движения МЕTAL SPIRIT RESURRECTION. Трасса тура насчитывает&nbsp; одиннадцать крупнейших региональных центров России: Санкт-Петербург, Москва, Мичуринск, Воронеж, Липецк, Саранск, Ульяновск, Самара, Йошкар-Ола, Киров, Казань.<BR>На этот раз движение "Воскрешение металлического духа" решила поставить перед собой ещё более глобальные цели и задачи: увеличение количества городов, участвующих в туре, и привлечение в ряды MSR команд мирового уровня. В качестве хэдлайнера&nbsp; была приглашена одна из ведущих европейских death metal формаций - HATE.</P>
+<P><BR>HATE (Польша, death metal)<BR><A href="http://www.hatesatanic.org/">www.hatesatanic.org</A><BR><A href="http://www.myspace.com/hatepoland">www.myspace.com/hatepoland</A></P>
+<P>Немногим командам удаётся создавать такую грешную музыку. Немногим командам удаётся пронести свою бескомпромиссность и экстремальность через многие годы. Не многим коллективам удаётся выжить, не изменив своим ценностям и взглядам. Стиль, которые создали НАТЕ, отличается от стиля их коллег по цеху. Особенно это заметно на последнем опусе «Ненависти» -&nbsp; «Anaclasis - A haunting Gospel of Malice & Hatred». Команда добавила в свою музыку целый ряд инновационных элементов, чем привнесла огромный&nbsp; вклад в развитие металлической музыки.<BR>Можно лишь позавидовать упорству и трудолюбию этих безумных поляков!&nbsp; <BR>Богатейшая&nbsp; дискография:<BR>demo: «Abhorrence»'92, «Evil Art»'94, «Unwritten Law»’95<BR>mini-LP: «Lord Is Avenger»’97, «Victims'»’99&nbsp; <BR>LP: «Daemon Qui Fecit Terram»'96, «Holy Dead Trinity»'00, «Cain’s Way»’02, «Awakening of The Liar»’03, «Anaclasis - A haunting Gospel of Malice & Hatred»’05<BR>DVD: «The Litanies Of Satan»'04 – и активная туровая деятельность, - ставит их в один ряд с самыми лучшими метал-коллективами Европы.</P>
+<P>SINFUL(Москва, sympho-black death metal)<BR><A href="http://www.sinful.ru/">www.sinful.ru</A></P>
+<P>После более чем полугодичного молчания SINFUL спешит порадовать всех любителей тёмного искусства долгожданными новостями! За время отсутствия на сцене группа успела: укомплектовать состав, отработать новую программу, а также начать запись нового ЕР «Второе Рождение», промо-компания которого начнётся в туре MSRT-4.</P>
+<P>ACT OF GOD(Пермь – Москва, unholy death metal)<BR><A href="http://www.actofgod.metalspirit.ru/">www.actofgod.metalspirit.ru</A></P>
+<P>За свою пятилетнюю историю эти богохульники успели издать два полноценных альбома: «…for Demon» (2002г. Oupiric prod.) , «The Place Of Worship» (2005г. Musica prod.), - и ЕР - «Life Denied» (EP 2007г. MSR prod.) После ухода вокалистки Viktory, команда взяла курс на скоростной death/black metal современной северо-американской школы. Не так давно ряды ACT OF GOD пополнил гитарист-вокалист из московского SINFUL – Taus. Последние выступления не оставляют ни капли сомнения в том , что команда движется в правильном направлении и не собирается сдавать свои позиции. </P>
+<P>LITTLE DEAD BERTHA (Воронеж, melodic death-doom metal) <BR><A href="http://bertha-music.narod.ru/">http://bertha-music.narod.ru</A> <BR><A href="http://www.myspace.com/ldbertha">www.myspace.com/ldbertha</A></P>
+<P>«Маленькая мёртвая Берта» к настоящему времени успела записать и реализовать целых 4 полноценных альбома: "In Memorium Premortis"(1997), "Two Sides" (1999), "Light & Shadows" (2003), "Way Of Blind"(2005), - очень разнообразные по стилю и звучанию: начиная от классического doom/death metal с тяжелым гитарным саундом и печальными и меланхоличными мелодиями. Сегодня музыка LDB - это скоростная и симфоничная смесь из melodic death, doom и black metal с мощным гитарным звуком и глубоким мужским и академичным женским вокалами. Помимо регулярного участия в турах MSR, группа принимала участие в крупнейших в СНГ open-air фестивалях METAL HEAD’S MISSION(Украина) и METAL CROWD(Беларусь). </P>
+<P>TARTHARIA(Санкт-Петербург, post death metal)<BR><A href="http://www.tartharia.com/">www.tartharia.com</A><BR><A href="http://www.myspace.com/tartharia">www.myspace.com/tartharia</A></P>
+<P>Одна из самых активных и профессиональных метал-банд «Северной Пальмиры» по праву заслужила внимание западных студий и издающих лейблов, где записала и выпустила свои 2 новаторских альбома: "A secret device"(2003г. Crash music inc.), "Abstract nation" (2004г. Crash music inc.) После смены в составе в 2005 группа записывает и выпускает на R.M.G.music (Россия) EP -&nbsp;&nbsp; "Crowned by name". Вдобавок к аудио-релизам&nbsp; в активе питерцев имеется&nbsp; <BR>DVD "OVER THE TOP". Оно включает в себя 8 клипов группы и концерт, снятый 24-го февраля 2007-го года.&nbsp; На концертах MSRT-4 публике будет представлен новый альбом «Unpolished diamonds», записанный в русском и англоязычном вариантах.</P>
+<P>DEMOGORGON(Йошкар-Ола, gothic sympho-black metal)<BR><A href="http://www.demogorgon.info/">www.demogorgon.info</A> </P>
+<P>Неоромантическая русскоязычная лирика в сочетании с очаровательным <BR>женским вокалом и космическим мелодизмом создает авангардное направление <BR>на российской металлической сцене. Запись нового альбома завершена, и <BR>группа вновь готова поразить поклонников отечественной тяжелой музыки.</P>
+<P>GOTHIC SKY (Мичуринск, melodic black doom metal)<BR><A href="http://www.realmusic.ru/gothic_sky/">www.realmusic.ru/gothic_sky/</A><BR>Старейшая группа металлургического центра Тамбовщины вот уже на протяжении почти десяти лет дарит металхэдам свою проникновенную и мелодичную музыку. Дискография этого коллектива насчитывает 3 альбома, последний из которых “Witchcraft Of Krehterwehs” был выпущенв 2006г. питерским лэйблом "Taigasounds". В настоящее время ведется работа над новым, с русскоязычной лирикой, альбомом «Реальности черного Рыцаря». В честь своего десятилетия&nbsp; коллектив, специально для своих мичуринских поклонников, представит программу, состоящую как из нового материала, так и композиций первого альбома «Open Your Mind For Insinity».</P>
+<P>Подробная информация по концертам:</P>
+<P>19.04 Санкт-Петербург&nbsp;«Арктика» ул. Беринга д.38, начало:17-00,&nbsp; цена билета: <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; в предварительной продаже - 300руб, в день концерта - 400руб&nbsp;</P>
+<P>20.04 Москва «План-Б» ул.Советской Армии д.7, начало:17-00, цена билета: в&nbsp;&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; предварительной продаже - 350руб, по флаеру – 400руб, в день концерта -&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 450руб</P>
+<P>21.04&nbsp;Мичуринск ДК «Авангард» Липецкое шоссе д.66В, начало: 16-00, цена&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; билета: по флаеру – 150руб, в день концерта - 180руб</P>
+<P>22.04 Воронеж «100 РУЧЬЕВ» ул. Кирова д.5, начало: 18-00, цена билета: в&nbsp;&nbsp;&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; предварительной продаже - 250руб, в день концерта - 300руб</P>
+<P>23.04 Липецк ДК ЛКЗ, начало: 18-00, цена билета – 250 руб, вход по флаеру –&nbsp;&nbsp;&nbsp;&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 200руб</P>
+<P>24.04 Саранск ДК "Строитель" ул.Титова д.23, начало: 17-00, цена билета: в&nbsp;&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; предварительной продаже - 150руб, по флаеру – 170 руб, в день концерта&nbsp;&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; - 200руб, support: Кряж(г.Рузаевка)</P>
+<P>25.04 Ульяновск, Зал филармонии, площадь Ленина д.6, начало: 17-00, цена&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; билета: в предварительной продаже - 200руб, по флаеру – 250 руб, в день&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; концерта - 300руб<BR>&nbsp;<BR>26.04 Самара Рок-бар "Подвал" ул.Галактионовская д.46, начало: 17-30, цена&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; билета: в предварительной продаже - 200руб, в день концерта - 250руб </P>
+<P>27.04&nbsp; Йошкар-Ола «Тоннель»(КСК им. Ленина) ул.Машиностроителей д.22&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; начало: 16-30, цена билета: в предварительной продаже - 160руб, по&nbsp;&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; флаеру – 180, в день концерта - 200руб, support<BR>&nbsp;<BR>28.04 Киров ЦО"Победа" ул. Володарского д.103а, начало: 16-00, цена билета: в&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; предварительной продаже - 150руб, в день концерта - 200руб, support:&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; ARBITRATOR(Киров)</P>
+<P>29.04 Казань "Крылья" ул.Правобулачная д.13, , начало: 15-00, цена билета: в&nbsp; <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; предварительной продаже - 200руб,&nbsp; по флаеру – 180руб, в день концерта - <BR>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 220руб</P>
+Автор: Vit Belov
+
+### 14.04.2007 news METAL SPIRIT RESURRECTION TOUR Vol. 4 (feat. HATE)
+
+<CENTER><IMG height=560 src="/images/shows_rus/2007.04/11555.jpg" width=400 border=0></CENTER>
+Автор: Vit Belov
+
+### 26.11.2007 news Новый альбом HATE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2007.11/12007.jpg" width=400 align=right border=5>Новый альбом <STRONG>HATE</STRONG> <STRONG>"Morphosis" </STRONG>выходит в начале 2008 года на <STRONG>Osmose</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Metamorphosis</B><BR>02. <B>Thredony</B><BR>03. <B>Immum Coeli (Everlasting World)</B><BR>04. <B>Catharsis</B><BR>05. <B>Resurrection Machine</B><BR>06. <B>The Evangelistic Pain</B><BR>07. <B>Omega</B><BR>08. <B>Erased</B></P>
+Автор: Vit Belov
+
+### 28.12.2007 news Дата релиза HATE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как мы уже сообщали, <STRONG>HATE</STRONG> закончили запись нового альбома "<STRONG>Morphosis</STRONG>". Стало известно, что пластинка выйдет 4 февраля на<STRONG> Listenable</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 08.07.2008 reviews Поляки могут шагнуть вперёд
+
+<P>Полякам HATE давно пора выходить из тени своих знаменитых земляков BEHEMOTH и VADER. Группа уже довольно давно радует нас качественными работами, но мне кажется, именно сейчас наступил подходящий момент, чтобы занять место рядом с этими монстрами, а не под ними.</P>
+<P>HATE только что совершили два тура по России, я не смог побывать ни на одном их выступлении и теперь, признаться, жалею об этом. Новый материал HATE – это не просто классный, забойный, но малоинтересный death-metal, это классный, забойный и очень интересный техничный death-metal. Группу можно смело включать в список тех, кто способен на равных бороться с американскими законодателями моды в подобной музыке. Например, с DYING FETUS или CEPHALIC CARNAGE (ну, это я, конечно, загнул, прим. авт.). В любом случае “Morphosis” доставит несколько десятков приятных минут всем любителям death-metal, и, чем чёрт не шутит, может, останется в вашем плэйере на достаточно долгое время.</P>
+<P>Отличный альбом, который может перевести HATE на следующий уровень. Качество, забой, брутальность и техничность – всё здесь присутствует.</P>
+Автор: Vit Belov
+
+### 29.04.2009 news HATE выпустят концертник
+
+<P><IMG height=350 alt="" hspace=0 src="/images/news_rus/2009.04/14032.jpg" width=350 align=right border=5>8 июня на <STRONG>Metal Mind</STRONG> выходит концертный альбом <STRONG>HATE</STRONG> <STRONG>"The Litanies of Satan</STRONG>".&nbsp;Пластинка была записана в февраля 2004 года и будет лимитирована 1000 экземпляров в digi-pack. В нашей стране этот концерт выходил на DVD на<STRONG> CD-Maximum</STRONG>. Трэк-лист:</P>
+<P>01. <B>Hex</B><BR>02. <B>Immolate The Pope</B><BR>03. <B>The Shroud</B><BR>04. <B>The Scrolls</B><BR>05 <B>Anti-God Extremity</B><BR>06. <B>Demigod</B><BR>07. <B>Close To The Nephilim</B><BR>08. <B>The Sin Becomes</B><BR>09. <B>The Kill</B><BR>10. <B>Postmortem</B><BR>11. <B>Awakening Of The Liar</B><BR>12. <B>Spirit Of Gospa</B><BR>13. <B>Flagellation</B><BR>14. <B>No Life After Death</B><BR>15. <B>Sectarian Murder</B>&nbsp;</P>
+Автор: Vit Belov
+
+### 08.12.2010 reviews Подземное царство находится на Востоке
+
+<P>Почему польских художников всегда так волновал Восток? Почему одна из лучших книг о фараонах принадлежит перу Болеслава Пруса? Почему наследники славы этого польского автора так часто обращаются в своей музыке к подобным мотивам? Достаточно вспомнить BEHEMOTH, музыке которых иногда даже сопутствует термин месопотамская. Дело не только и не столько в лирической составляющей, а собственно в музыке. Мрачная, среднетемповая с помпезными восточными мотивами, она идеально ложится на слух. По этому пути пошли и HATE на своём альбоме “Erebos”. Пускай эта группа на новейшей пластинке всё больше поминает подземное царство, но, безусловно, по задумке Адама «Первого Грешника», лидера коллектива, мир Эреба находится где-то на Востоке.</P>
+<P>Великолепно реализованная, маршевая death-metal музыка, представленная на этом альбоме, приводит в восторг только одним своим “мясистым» звучанием. Кажется, что сами подземные силы выходят на звук гитары и ритм-секции HATE из своих убежищ. “Erebos” не оставит никого равнодушным. Конечно же, если взглянуть на эту работу глубже, попытаться разобрать её по винтикам и шпунтикам, найдутся люди, которые отметят некоторое однообразие этого альбома. Но мне делать этого не хочется. Эта пластинка HATE представляет собой великолепный образец ужасающего и шаманского death-metal, который сразу же потеряет всю свою привлекательность, если из него удалить какие-то составляющие.</P>
+<P>Мощный альбом, от которого получат удовольствие все поклонники современного низкого звучания. HATE стоит слушать только за это, но, безусловно, на “Erebos” есть кое-что ещё. Отмечу также, что изданием пластинки на территории России занимаются MSR Production,подготовившие всем любительям death-metal мрачнейший и чернейший digi-pack.</P>
+Автор: Vit Belov
+
+### 19.12.2010 news Тройной залп от MSR Productions!!!
+
+<P>В преддверии тура <STRONG>MSR-7 </STRONG>музыкальное агентство<STRONG> MSR Productions</STRONG> выпустило в свет сразу три новейших релиза! Первые два - это новые CD от поляков <STRONG>HATE</STRONG> и <STRONG>CRIONICS</STRONG>, ну а третий - долгожданный альбом от ветеранов российской металл-сцены <STRONG>LITTLE DEAD BERTHA</STRONG>!</P>
+<P><STRONG><IMG height=269 alt="" hspace=0 src="/images/news_rus/2010.12/17880.jpg" width=300 align=right border=0>HATE "Erebos"</STRONG></P>
+<P>Этот CD стал первым релизом <STRONG>MSR Prod</STRONG>, выпущенный по лицензии одного из самых крупных европейских металл-лейблов <STRONG>Listenable Records</STRONG>. Ещё более мрачная, чем на предшественнике "<STRONG>Morphosis</STRONG>", зловещая и холодная музыка проведёт слушателя по самым тайным закоулкам тёмной стороны души современного человека, являющегося заложником своих слабостей, комплексов и пороков... Великолепно записанный и спродюссированный в студии <STRONG>Hertz</STRONG> музыкальный материал "<STRONG>Erebos</STRONG>" на сегодняшний день является самой сильной, смелой и оригинальной работой польского квартета<STRONG> HATE</STRONG>. Альбом выпущен в формате digipack. Трэк-лист:</P>
+<P>1. <STRONG>Genesis <BR></STRONG>2. <STRONG>Lux Aeterna</STRONG> <BR>3. <STRONG>Erebos <BR></STRONG>4. <STRONG>Quintessence of Higher Suffering <BR></STRONG>5. <STRONG>Trinity Moons</STRONG> <BR>6. <STRONG>Hero Cults</STRONG> <BR>7. <STRONG>Transsubstance </STRONG><BR>8. <STRONG>Hexagony </STRONG><BR>9. <STRONG>Wrists </STRONG><BR>10. <STRONG>Luminous Horizon</STRONG></P>
+<P>Композицию "<STRONG>Erebos</STRONG>" можно скачать отсюда: <A href="http://www.sendspace.com/file/vlctem">http://www.sendspace.com/file/vlctem</A></P>
+<P>Студийные репортажи с записи нового альбома "<STRONG>EREBOS</STRONG>":<BR><A href="http://www.youtube.com/watch?v=_1R-2pBrhzc">http://www.youtube.com/watch?v=_1R-2pBrhzc</A><BR><A href="http://www.youtube.com/watch?v=k6eBK4w314M">http://www.youtube.com/watch?v=k6eBK4w314M</A></P>
+<P>Видеотрэйлер альбома <STRONG>"EREBOS</STRONG>":<BR><A href="http://www.youtube.com/watch?v=DLYBpc5WqMw">http://www.youtube.com/watch?v=DLYBpc5WqMw</A></P>
+<P>Официальные ресурсы: <BR><A href="http://www.hate-metal.com/">http://www.hate-metal.com</A><BR><A href="http://www.myspace.com/hatepoland">http://www.myspace.com/hatepoland</A> <BR><A href="http://www.youtube.com/hatepoland">http://www.youtube.com/hatepoland</A></P>
+<P><STRONG><IMG height=273 alt="" hspace=0 src="/images/news_rus/2010.12/17879.jpg" width=300 align=right border=0>CRIONICS "N.O.I.R"</STRONG></P>
+<P>Этот split-EP стал первым западным релизом для<STRONG> MSR Productions</STRONG>. Новаторский, экспериментальный, оригинальный и атмосферный - вот только несколько слагаемых, которые можно смело отнести к работе под названием "<STRONG>N.O.I.R</STRONG>"! Музыкальный материал&nbsp; представляет собой сплав black, death и industrial metal, берущий своё развитие от идей,&nbsp; заложенных на предыдущем альбоме "<STRONG>Neuthrone</STRONG>". И на сей раз братья Виеславски из студии "<STRONG>Hertz</STRONG>" безупречно справились со своей задачей! На этом CD представлено 9 треков. Первые три - это абсолютно новые боевики! Далее идут два кавера на: <STRONG>Immortal "Blashyrk"</STRONG> и <STRONG>Rammstein "Moscow"</STRONG>, во втором из которых&nbsp; приняли участие легенды польской метал-сцены! <STRONG>Peter</STRONG> - лидер <STRONG>Vader&nbsp;</STRONG> исполнил главную вокальную партию, а гитарист <STRONG>Decapitated</STRONG> <STRONG>Vogg</STRONG> - партию аккордеона! Припев же этой композиции, как и в оригинале, исполнен всей группой на русском языке!! Последующие 4 трека вернут слушателя к истокам творческого пути Crionics. Первое и нигде нереализованное ремастирингованное EP "<STRONG>The First Noise</STRONG>" с поистине нордической атмосферой и запоминающейся мелодикой перенесут вас в царство льда и зимних пейзажей...Финальный трек - это подарок всем поклонников Emperor - кавер на шедевр "I am the black <STRONG>Wizard</STRONG>"! Но и это ещё не всё! Также вас ждёт бонусный видеоклип с кадрами процесса записи <STRONG>N.O.I.R</STRONG>! Диск выпущен в формате digipack, дизайн которого выполнил маэстро <STRONG>Xaay</STRONG>, известного по работе с <STRONG>Behemoth</STRONG> и <STRONG>Nile</STRONG>. Трэк-лист:</P>
+<P>EP <STRONG>«N.O.I.R»</STRONG><BR>1. <STRONG>NarcotiQue<BR></STRONG>2. <STRONG>Scapegoat<BR></STRONG>3. <STRONG>Perdition<BR></STRONG>4. <STRONG>Blashyrk (Mighty Ravendark)</STRONG> – Immortal Cover<BR>5. <STRONG>Moskau</STRONG> – Rammstein Cover</P>
+<P>EP «<STRONG>THE FIRST NOISE</STRONG>»<BR>6. <STRONG>Mystic Past<BR></STRONG>7. <STRONG>Pagan Strength<BR></STRONG>8. <STRONG>The Black Warriors</STRONG><BR>9. <STRONG>I Am The Black Wizards</STRONG> – Emperor Cover</P>
+<P>Bonus video: The Making of N.O.I.R.</P>
+<P>Композицию “<STRONG>NarcotiQue</STRONG>” можно скачать отсюда: <A href="http://ifolder.ru/19942643">http://ifolder.ru/19942643</A></P>
+<P>Официальные ресурсы:<BR><A href="http://www.crionics.rockmetal.pl/">www.crionics.rockmetal.pl</A><BR><A href="http://www.myspace.com/crionics">www.myspace.com/crionics</A><BR><A href="http://www.youtube.com/crionicsofficial">www.youtube.com/crionicsofficial</A></P>
+<P><STRONG><IMG height=289 alt="" hspace=0 src="/images/news_rus/2010.12/17881.jpg" width=300 align=right border=0>LITTLE DEAD BERTHA «Angel & Pain»</STRONG></P>
+<P>Воронежская melodic death/extreme gothic бригада <STRONG>LITTLE DEAD BERTHA</STRONG> выпускает свой пятый альбом! «Angel & Pain» - это 10 треков экстремального мелодичного металла в лучших традициях жанра. Скоростные ритмы, симфоничные аранжировки, жёсткий гроул, хоровые распевки, запоминающиеся мелодии и драйв – все это есть на новом альбоме одной из самых оригинальных групп российской метал-сцены!&nbsp;Альбом вышел в свет в формате digipack. Трэк-лист:</P>
+<P>01. <STRONG>Intro <BR></STRONG>02. <STRONG>Mistake </STRONG><BR>03. <STRONG>Angel & Pain <BR></STRONG>04. <STRONG>Reign Of Eternal Night <BR></STRONG>05. <STRONG>Wind Of Other Side <BR></STRONG>06. <STRONG>Blood On The Blade <BR></STRONG>07. <STRONG>Creeping In The Mist</STRONG> <BR>08. <STRONG>Truth Of This World</STRONG> <BR>09. <STRONG>If You Try <BR></STRONG>10. <STRONG>Let Me Roust Your Soul</STRONG> <BR>11. <STRONG>Slave Of Bloody Rain</STRONG> <BR>12. <STRONG>The Ocean</STRONG> (Forgive-Me-Not Cover)<BR>&nbsp;<BR>Скачать трек "<STRONG>If You Try</STRONG>" можно здесь:&nbsp; <A href="http://www.sendspace.com/file/xb6wet">http://www.sendspace.com/file/xb6wet</A></P>
+<P>Официальные ресурсы:<BR><A href="http://bertha-music.narod.ru/">http://bertha-music.narod.ru</A><BR><A href="http://www.myspace.com/ldbertha">http://www.myspace.com/ldbertha</A><BR><A href="http://vkontakte.ru/club1741068">http://vkontakte.ru/club1741068</A></P>
+<P>По всем интересующим вопросам пишите на <A href="mailto:msrprod@mail.ru">msrprod@mail.ru</A></P>
+Автор: Vit Belov
+
+### 03.02.2012 news Музыканты HATE в составе SINFUL!!!
+
+<P><IMG height=566 alt="" hspace=0 src="/images/news_rus/2012.02/22945.jpg" width=400 align=right border=0>Участники польской death/black-metal формации <STRONG>HATE</STRONG> - драммер “<STRONG>Hexen</STRONG>” и бас-гитарсит “<STRONG>Mortifer</STRONG>” выступят в составе столичной sympho-black metal группы <STRONG>SINFUL </STRONG>в рамках тура <STRONG>METAL SPIRIT RESURRECTION vol.8</STRONG> !!! «Восьмое воскрешение» на этот раз проколесит через восемь городов Польши и один Украины:</P>
+<P>10.02 Lviv “Rock Garage” (UKR)<BR>11.02 Bilgoraj CKN "Pogotowie" (PL) <BR>12.02 Zamosc “Owca Cala” (PL)<BR>13.02 Sandomierz Bar “Lapidarium” (PL)<BR>14.02 Sanok “Rudera” (PL)<BR>15.02 Bielsko-Biala “Rude Boy” (PL)<BR>17.02 Poznan “Underground Music pub” (PL) <BR>18.02 Rzeszow “Od Zmierzchu do Switu” (PL) <BR>19.02 Przemysl “Fort XXII” (PL)</P>
+Автор: Vit Belov
+
+### 24.11.2012 news Новый альбом HATE
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.11/25068.jpg" width=382 height=382>Поляки<STRONG> HATE</STRONG> выпускают новый альбом <STRONG>"Solarflesh" </STRONG>на Napalm Records в начале следующего года. Работа была записана в <STRONG>Sound Division Studio </STRONG>с продюсером <STRONG>Filip "Heinrich" Halucha</STRONG> (<B itxtHarvested="0" itxtNodeId="67">VESANIA</B>, <B itxtHarvested="0" itxtNodeId="66">DECAPITATED</B>). Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="53">Watchful Eye Of Doom</B><BR itxtNodeId="52">02. <B itxtHarvested="0" itxtNodeId="51">Eternal Might</B><BR itxtNodeId="50">03. <B itxtHarvested="0" itxtNodeId="49">Alchemy Of Blood</B><BR itxtNodeId="48">04. <B itxtHarvested="0" itxtNodeId="47">Timeless Kingdom</B><BR itxtNodeId="46">05. <B itxtHarvested="0" itxtNodeId="45">Festival Of Slaves</B><BR itxtNodeId="44">06. <B itxtHarvested="0" itxtNodeId="43">Sadness Will Last Forever</B><BR itxtNodeId="42">07. <B itxtHarvested="0" itxtNodeId="41">Solarflesh</B><BR itxtNodeId="40">08. <B itxtHarvested="0" itxtNodeId="39">Endless Purity</B><BR itxtNodeId="38">09. <B itxtHarvested="0" itxtNodeId="37">Mesmerized</B><BR itxtNodeId="36">10. <B itxtHarvested="0" itxtNodeId="35">Hatehammer</B> (limited-edition bonus track)<BR itxtNodeId="34">11. <B itxtHarvested="0" itxtNodeId="33">Venom</B> (limited-edition bonus track)<BR itxtNodeId="32">12. <B itxtHarvested="0" itxtNodeId="31">Fall Of All Icons</B> (limited-edition bonus track)</P>
+Автор: Vit Belov
+
+### 08.04.2013 news Умер басист HATE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В ночь с 5 на 6 апреля после шоу <STRONG>HATE</STRONG> в Штутгарте, Германия в номере отеля скончался басист <STRONG>Slawomir 'Mortifer' Archangielskij. </STRONG>Причина смерти пока не известна.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>С группой <STRONG>Slawek</STRONG> записал два альбома "<STRONG>Erebos</STRONG>" и "<STRONG>Solarflesh</STRONG>". Кроме этого музыкант участвовал в<STRONG> SALTUS, NAUMACHIA</STRONG> и давал концерты с российской группой<STRONG> SINFUL</STRONG>.</FONT></P>
+<P><STRONG>Slawomir 'Mortifer' Archangielskij </STRONG>не дожил четырёх дней до своего 28-го дня рождения.</P>
+<P><center><IMG border=0 src="/images/news_rus/2013.04/25601.jpg" width=475 height=493></P>
+Автор: Vit Belov
+
+### 09.01.2015 news Новое видео HATE
+
+<P>Новый клип <STRONG>HATE</STRONG> на песню "<STRONG>Valley Of Darkness</STRONG>" можно посмотреть ниже. Трек войдёт в новый альбом поляков "<STRONG>Crusade: Zero</STRONG>", который выйдет в начале февраля на <STRONG>Napalm Records</STRONG>.</P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/WNMFnW34F-0" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 29.08.2016 news HATE собираются в студию
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Поляки<strong> HATE</strong> на этой неделе войдут в студию <strong>Custom 34</strong>, где с продюсером <strong>Arek „Malta” Malczewski</strong> запишут новый альбом с рабочим названием <strong>"Tremendum"</strong>. Запись продлится до ноября, будет записано 10 песен, а дата релиза назначена на апрель 2017 года на <strong>Napalm Records</strong>.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Подробности последуют.</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="600" height="400" src="/images/news_rus/2016.08/29875.jpg" border="0"></p>
+Автор: Vit Belov
+
+### 29.08.2016 news HATE to enter the studio
+
+<p>Unholy metal commando, <strong>HATE</strong> is going to enter <strong>Custom 34 Studio</strong> in Gdaсsk, Poland on the 4th September 2016! The band has tapped <strong>Arek „Malta” Malczewski</strong> to produce their new album, under the working title „<strong>Tremendum</strong>”. The recording process will reach out till November and the band will be also using <strong>Sound Division Studio</strong> in Warsaw, Poland. The material, which contains 10 new songs, is planned to be released in April 2017 via <strong>Napalm Records</strong>. More info to come soon!</p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font>&nbsp;<center><img width="600" height="400" src="/images/news_rus/2016.08/29875.jpg" border="0"><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Fleshgod Apocalypse (Италия) + Hate (Польша): Москва, 21 мая 2016

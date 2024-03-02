@@ -37,6 +37,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 30.01.2010 news Новый альбом SHOCK TROOPERS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Лейбл <STRONG>PUNISHMENT 18</STRONG> подготовил к выпуску второй альбом сицилийцев <STRONG>SHOCK TROOPERS</STRONG>, названный <STRONG>"Blades And Rods"</STRONG>. Группа является приверженцем старой школы и выдаёт материал в духе <STRONG>D.R.I.</STRONG> и <STRONG>RATOS DE PORAO</STRONG>. Несколько новых композиций, доступно на Myspace-странице <STRONG>SHOCK TROOPES</STRONG>: <A href="http://www.myspace.com/shocktroopers">http://www.myspace.com/shocktroopers</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=5 src="/images/news_rus/2010.01/16098.jpg" width=400 align=right vspace=5 border=0>Трек-лист:</FONT></P>
+<P>01. <STRONG>Intro (Metal Slug)</STRONG><BR>02. <STRONG>Competition</STRONG><BR>03. <STRONG>Take Your Eyes Off Me<BR></STRONG>04. <STRONG>Blades And Rods</STRONG><BR>05. <STRONG>Vice</STRONG><BR>06. <STRONG>Road Thrash<BR></STRONG>07. <STRONG>Toilet Show</STRONG><BR>08. <STRONG>Protection Money<BR></STRONG>09. <STRONG>Jail World<BR></STRONG>10. <STRONG>Waterboarding</STRONG><BR>11. <STRONG>The Rape</STRONG></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

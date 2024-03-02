@@ -24,6 +24,30 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 04.07.2007 reviews Неплохое демо с известными недостатками
+
+<P>Молодая группа из Подольска утверждает, что играет в необычном стиле sympho-death-metal. Прослушав четыре песни их первой квалифицированной демки, я ничего необычного не обнаружил.</P>
+<P>Первый трэк представляет из себя попытки сыграть в CHILDREN OF BODOM без неоклассики и thrash-metal их современных работ. Прямолинейная, несколько однообразная мелодия, и клавиши, настойчиво дублирующие гитару. Также здесь можно обнаружить элементы sympho-black – акустические проигрыши и помпезные припевы, которые довольно быстро сменяются скачущим ритмом melodic-death. </P>
+<P>В общем-то, композиции Grey Heaven Fall звучат довольно мило. Есть некоторые недоработки в композиции, трэки зачастую звучат несколько сумбурно, но это дело наживное. Работа гитариста и клавишника вызывает одобрение. Есть один большой минус, часто свойственный демо – нехорошая реализация, даже по отечественным меркам. Разнообразности же материала должно хватить на создание нескучного полноформатного альбома. Надо только увеличить бюджет. </P>
+Автор: Vit Belov
+
+### 20.09.2011 news Дебютник GREY HEAVEN FALL
+
+<P><IMG height=383 alt="" hspace=0 src="/images/news_rus/2011.09/21153.jpg" width=400 align=right border=0>6 сентября 2011 года на <STRONG>Grailight Productions</STRONG>, наконец-то, вышел в свет дебютник подольской Atmospheric Black/Death Metal формации <STRONG>GREY HEAVEN FALL</STRONG>. Одноимённый альбом, состоящий из девяти треков с русскоязычной лирикой, являет собой мощнейший сплав из таких жанров тяжёлого метала как Death, Black и Doom. Уверенный саунд, выполненный на студии <STRONG>Anthropocide Prod</STRONG>., не оставит равнодушным любителей качественного звука. Оформление диска с 16-страничным буклетом профессионально выполнено художником <STRONG>DartGarry</STRONG>. </P>
+<P>Трек-лист:</P>
+<P>1. <STRONG>Возрождённый…<BR></STRONG>2. <STRONG>Последняя Песнь Твоей Мечты</STRONG><BR>3. <STRONG>Изгой Лживых Образов Икон<BR></STRONG>4. <STRONG>Серые Небеса Осени</STRONG><BR>5. <STRONG>Стихи Падших Судеб</STRONG><BR>6. <STRONG>Бесконечный Зов Смерти</STRONG><BR>7. <STRONG>Скорбящие Души в Замке Тирана</STRONG><BR>8. <STRONG>Проклятие Памяти</STRONG><BR>9. <STRONG>Бессмертное Пламя</STRONG></P>
+<P><A href="http://www.myspace.com/greyheavenfall">http://www.myspace.com/greyheavenfall</A> <BR><A href="http://vkontakte.ru/greyheavenfall">http://vkontakte.ru/greyheavenfall</A></P>
+Автор: Vit Belov
+
+### 26.09.2011 news Дебютный клип GREY HEAVEN FALL
+
+<P>Atmospheric Black/Death Metal группа <STRONG>GREY HEAVEN FALL</STRONG> опубликовала свой дебютный клип на песню "<STRONG>Серые Небеса Осени</STRONG>". Трек взят с дебютного альбома коллектива <STRONG>"...grey heaven fall</STRONG>", который вышел в этом месяце на <STRONG>Grailight Productions</STRONG>.</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/OUBktpbJ7GE?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/OUBktpbJ7GE?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

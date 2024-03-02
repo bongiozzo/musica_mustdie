@@ -86,6 +86,16 @@ Soul of The Black Forest
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.09.2011 news Дебют ASTROFAES переиздан
+
+<P><IMG height=321 alt="" hspace=0 src="/images/news_rus/2011.09/21144.jpg" width=357 align=right border=0>Первый альбом харьквской black-metal группы <STRONG>ASTROFAES "Dying Enotions Domain"</STRONG> переиздан в формате digi-pack на американском лэйбле <STRONG>Negative Existence</STRONG>. Альбом, в оригинале вышедший в 1998 году, прошёл ремастеринг. Трек-лист:</P>
+<P>1. <STRONG>The Black Woods Theory</STRONG> 01:36<BR>2. <STRONG>Fiery Mysticism</STRONG> 09:10<BR>3. <STRONG>At Nightfall</STRONG> 04:34<BR>4. <STRONG>Path To Burning Space</STRONG> 05:02<BR>5. <STRONG>Necromantical Screams</STRONG> 04:54<BR>6. <STRONG>Ad Infinitum (Dark II)</STRONG> 08:10<BR>7. <STRONG>Dying Emotions Domain</STRONG> 06:32<BR>8. <STRONG>A Song of the Night Birds</STRONG> 01:18</P>
+<P>Total playing time: 41:16</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

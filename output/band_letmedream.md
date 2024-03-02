@@ -35,6 +35,33 @@ Recorded At Soundwall Studio, Seinajoki, Dec. 1994
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 02.05.2001 news Banzai Metal Fest
+
+<p> Финская gothic/dark metal группа LET ME DREAM выступит живьем в России, в Санкт-Петербурге в рамках Banzai Metal Fest в клубе Полигон. Фестиваль состоится в пятницу 25 мая 2001 года. В нем принимают участие LET ME DREAM (gothic-dark metal), еще одна финская группа DEEP RED(death metal), а также российские команды AZEROTH, СЕВЕРНЫЕ ВРАТА и PSYLOCIBE LARVAE. Также планируется участие еще нескольких российских команд.</p>
+<p></p>
+
+Автор: Dimas
+
+### 02.05.2001 news И еще немного об Let Me Dream
+
+<p> После того как в конце прошлого года Let Me Dream покинул оригинальный ударник, группа занялась поисками нового. Им оказался Marko Jokinen. Вместе с ним группа в сентябре этого года засядет в Astia studio, где также записывались Children Of Bodom, Unholy, Impaled Nazarene, Candalf и другие финские команды. Новый альбом группы ожидается в начале 2002 года.</p>
+<p></p>
+
+Автор: Dimas
+
+### 19.09.2003 news LET ME DREAM в Санкт-Петербурге
+
+<IMG height=283 alt="" hspace=0 src="/images/shows_rus/2003.10/5031.jpg" width=200 align="right" border=0>Финская gothic/dark metal группа LET ME DREAM выступит с единственным концертом в Санкт-Петербурге 18 октября 2003 года в <A href="http://www.caravanrecords.spb.ru/orlandina">клубе "Орландина"</A>. Из других новостей: группа закончила запись третьего альбома 'Soulhine', правда выход его задерживается.
+Автор: Vit Belov
+
+### 30.09.2003 news LET ME DREAM NEWS
+
+<SPAN>Finnish gothic/dark metal band Let Me Dream will perform live 18.10.2003 at Orlandina Club, St. Petersburg, Russia. This will Let Me Dream's second visit St. Petersburg. Other News: the release of the Let Me Dream's 3rd album "Soulhine" has been delayed for several reasons. The band wishes to release "Soulshine" before the end of the year 2003, in January the band will perform Central-European dates.<BR></SPAN>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

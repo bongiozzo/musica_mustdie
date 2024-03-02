@@ -43,6 +43,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 16.04.2009 news TRANSATLANTIC вернулись
+
+<P>Progressive супергруппа <STRONG>TRANSATLANTIC</STRONG>, состоящая из <STRONG>Mike Portnoy</STRONG> (<B>DREAM THEATER</B>), <B>Pete Trewavas</B> (<B>MARILLION</B>), <B>Roine Stolt</B> (<B>THE FLOWER KINGS</B>)&nbsp;и <B>Neal Morse</B> (ex-<B>SPOCK'S BEARD</B>), возродилась после семилетнего перерыва для записи нового альбома. С начала апреля работа идёт в студии в Нэшвилле, штат Тенесси.</P>
+Автор: Vit Belov
+
+### 27.08.2009 news Новый альбом TRANSATLANTIC
+
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.08/14938.jpg" width=400 align=left border=5>Новый альбом progressive супергруппы<STRONG> TRANSATLANTIC</STRONG> <STRONG>"The Whirlwind"</STRONG>&nbsp;выйдет в октябре. В составе коллектива сейчас <B>Mike Portnoy (DREAM THEATER)</B>, <B>Pete Trewavas (MARILLION)</B>,&nbsp; <B>Roine Stolt (THE FLOWER KINGS)</B>&nbsp;и <B>Neal Morse</B> (ex-<B>SPOCK'S BEARD</B>). Сам альбом будет состоять из одной 77-минутной одноимённой вещи. На специальное издание попадёт и второй диск, на котоом будут кавера на песни <STRONG>GENESIS, PROCOL HARUM, THE BEATLES</STRONG> и <STRONG>SANATANA</STRONG>.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

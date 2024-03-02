@@ -76,6 +76,90 @@ The digipak edition of the album will come with the following bonus tracks:
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 22.09.2005 reviews Дэт -дуэт
+
+<P>Довольно таки своеобразная разновидность дэта. Слишком брутально для мелодичного дэта шведской школы, слишком мелодично для брутального дэта флоридского разлива. И все же музыка Arsis ближе к СМДМ-у. Очень уж сильно мелодичные решения напоминают ранние работы In Flames, Arch Enemy. </P>
+<P>Интересно, существует ли группа, как концертный коллектив? Ведь данную пластинку записали два человека: один из которых барабанщик, а второй, как не трудно догадаться, все остальное. Занимательно было бы послушать данную формацию живьем – такой напор агрессии наверняка не оставит толпу в зале равнодушной. Очень мощная подача, сдобренная сверхскоростными барабанными партиями, злобный скриминговый вокал. Единственный минус альбома, на мой взгляд, очень сильно перегруженные гитары. Вкупе с пониженным строем это делает навороченные риффы не слишком читабельными.Впрочем, любителей музыкального мяса сей факт не сильно обломает, ибо того угара, который привлекает их в данном жанре, здесь более, чем достаточно.</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 17.07.2008 reviews Гармоничное сочетание мелодики и техники на высочайших скоростях
+
+<P>С ума сойти! Американцы продолжают удивлять. Скоро только ретрограды смогут утверждать, что музыка в США тупая за редким исключением. Группа ARSIS начала выпускать альбомы в 2004 году. Обозреваемая пластинка “We Are The Nightmare”, вышедшая на Nuclear Blast/Irond в этом году, уже четвёртая их работа. Я об ARSIS читал только в новостных лентах, и не придавал их существованию никакого значения.</P>
+<P>Как вы легко могли догадаться, теперь я присмотрюсь к ARSIS внимательнее. Никакой сопутствующей информации, чтобы описать свой восторг я не имею. Так, ерунда всякая… Ездили в тур с DEATH ANGEL, THE BLACK DAHLIA MURDER… Главное это музыка!!! Nuclear Blast, наконец-то, удалось отыскать для нас жемчужину. Представьте себе melodic-death-metal, сыгранный настолько хаотично и быстро, что его запросто можно сравнивать с какими-нибудь CEPHALIC CARNAGE, но при этом внятная мелодия ни на секунду не теряется, и по мелодичности эту музыку можно сравнивать с CHILDREN OF BODOM. Или другой пример, AT THE GATES времён “Slaughter Of The Soul”, но убыстренный раза в полтора, более техничный, и даже более мелодичный. Во всей этой вакханалии гитарные соло нанизываются одно на другое, а музыкальная линия, каждый раз делает такой неожиданный поворот, что вас будет обуревать восторг, в те моменты, когда вы будете понимать, к чему клонят ARSIS.</P>
+<P>Честно говоря, я не могу пока отыскать для этой группы американцев нишу в истории металла в целом. Последнее время мне приходиться слушать столько неординарных групп из за океана, что я уже не берусь утверждать, что знаю о тяжёлой музыке всё. Подумать только, а ведь я думал, что ARSIS – это какой-то заштатный modern-metal. Очень приятное заблуждение. Советую попробовать всем. Особенно было заскучавшим любителям DARK TRANQUILLITY и IN FLAMES. Почти шедевр.</P>
+Автор: Vit Belov
+
+### 31.03.2009 news В ARSIS вернулся барабанщик
+
+<P>В<STRONG> ARSIS</STRONG> вернулся оригинальный барабанщик <STRONG>Michael Van Dyne</STRONG>. Между тем предыдущий музыкант группы <STRONG>David Kinkade</STRONG> продолжит иногда давать концерты с группой.</P>
+Автор: Vit Belov
+
+### 30.07.2009 news ARSIS в 2010
+
+<P><STRONG>ARSIS</STRONG> назвали новый альбом <STRONG>"Starve For The Devil". </STRONG>Пластинка будет записываться с продюсером <STRONG>Chris "Zeuss" Harris</STRONG> (<B>MUNICIPAL WASTE</B>, <B>AGNOSTIC FRONT</B>, <B>HATEBREED</B>) и выйдет в 2010 году на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 08.10.2009 news Новый альбом ARSIS
+
+<P>15 января на <STRONG>Nuclear Blast</STRONG> выйдет новый альбом <STRONG>ARSIS "Starve For The Devil". </STRONG>Трэк-лист:</P>
+<P>01. <B itxtvisited="1">Forced to Rock</B><BR itxtvisited="1">02. <B itxtvisited="1">A March for the Sick</B><BR itxtvisited="1">03. <B itxtvisited="1">From Soulless to Shattered (Art in Dying)</B><BR itxtvisited="1">04. <B itxtvisited="1">Beyond Forlorn</B><BR itxtvisited="1">05. <B itxtvisited="1">The Ten of Swords</B><BR itxtvisited="1">06. <B itxtvisited="1">Closer to Cold</B><BR itxtvisited="1">07. <B itxtvisited="1">Sick Perfection</B><BR itxtvisited="1">08. <B itxtvisited="1">Half Past Corpse O'Clock</B><BR itxtvisited="1">09. <B itxtvisited="1">Escape Artist</B><BR itxtvisited="1">10. <B itxtvisited="1">Sable Rising</B></P>
+Автор: Vit Belov
+
+### 30.10.2009 news Обложка нового ARSIS
+
+<P>В следующем году на <STRONG>Nuclear Blast</STRONG> выходит новый альбом <STRONG>ARSIS</STRONG> <STRONG>"Starve For The Devil". </STRONG>Группа опубликовала обложку.</P>
+<P><center><IMG height=450 src="/images/news_rus/2009.10/15403.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 08.11.2009 news Лимитированный ARSIS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Nuclear Blast</STRONG> опубликовали обложку лимитированного издания нового альбома <STRONG>ARSIS</STRONG> <STRONG>"Starve For The Devil". </STRONG>На него попадут два бонус-трэка, среди которых кавер-версия песни <STRONG>KING DIAMOND "The Lake"</STRONG>.</FONT></P>
+<P><center><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 src="/images/news_rus/2009.11/15467.jpg" width=400 border=0></FONT></P>
+Автор: Vit Belov
+
+### 03.12.2009 news Новая песня ARSIS
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Песню <STRONG>"Beyond Forlorn" </STRONG>с нового альбома <STRONG>ARSIS</STRONG> можно послушать на <STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/arsis">http://www.myspace.com/arsis</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новая пластинка группы <STRONG>"Starve For The Devil" </STRONG>выйдет 9 февраля на <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+### 23.01.2010 news Новое видео ARSIS
+
+<P>Клип на песню <STRONG>ARSIS</STRONG> <STRONG>"Forced To Rock" </STRONG>можно посмотреть ниже.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/8jYnXBwjG7k&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/8jYnXBwjG7k&color1=0xb1b1b1&color2=0xcfcfcf&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 10.03.2010 reviews Курс на мелодичность
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Предыдущий альбом ARSIS “We Are The Nightmare” произвёл на меня очень сильное впечатление, поэтому новая пластинка этой американской группы ожидалась мною с большим нетерпением. Тот неожиданно мощный штурм, который ARSIS обрушивали на мозг слушателя, впечатлял своей нечеловеческой энергичностью.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Краткое содержание предыдущей серии: “We Are The Nightmare” представлял собой очень техничный и гипермелодичный death-metal на высоких скоростях при отличной технике исполнения. Новая работа выполнена в том же ключе, но с некоторыми допущениями. К сожалению, выдержать такую же упёртость, в хорошем смысле, ARSIS не удалось. На “Starve For The Devil” американцы, безусловно, узнаваемы, но выполнен альбом на других «скоростях». Он менее заумен, менее техничен, менее неожидан… Единственное «более», он более мелодичен, но это не то, за что мы полюбили группу на прошлом альбоме. Музыка коллектива движется в сторону melodic death-metal, настоящего породистого melodic death-metal, который не часто сейчас встретишь. Без чистых вокалов, без простых мелодий, с хорошим качеством, но… Вывод делайте сами.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Отличный альбом для любителей тяжёлой, но мелодичной музыки. Скорее всего, поклонники предыдущих работ ARSIS будут немного разочарованы, но это вовсе не значит, что их новейшая работа никуда не годится. Очень даже годится.</FONT></P>
+Автор: Vit Belov
+
+### 06.03.2012 news Christopher Amott покинул ARCH ENEMY
+
+<P>Гитарист <STRONG>Christopher Amott</STRONG> покинул <STRONG>ARCH ENEMY</STRONG>, чтобы сконцентрироваться на собственных проектах. Музыкант является братом лидера группы<STRONG> Mike Amott</STRONG>.</P>
+<P>Новым музыкантом "шведского" коллектива стал&nbsp;гитарист<STRONG> ARSIS Nick Cordle</STRONG>.</P>
+<P><center><IMG height=519 src="/images/news_rus/2012.03/23233.jpg" width=345 border=0></P>
+Автор: Vit Belov
+
+### 20.03.2013 news ARSIS: пятый альбом &quot;Unwelcome&quot; в апреле
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25554.jpg" width=400 height=400>Американская&nbsp;melodic death metal&nbsp;группа <STRONG>ARSIS</STRONG>, приготовила к выпуску свой пятый студийный альбом, названный <STRONG>"Unwelcome"</STRONG>. Выйдет он&nbsp;30 апреля (Северная Америка) на лейбле <STRONG>Nuclear Blast</STRONG>. </P>
+<P><STRONG>"Unwelcome"</STRONG> был записан в студии <STRONG>Audiohammer</STRONG> в городе Сэнфорд (штат Флорида), с продюсером Марком Льюисом (<STRONG>Mark Lewis</STRONG>, <STRONG>THE BLACK DAHLIA MURDER</STRONG>, <STRONG>WHITECHAPEL</STRONG>, <STRONG>DEVILDRIVER</STRONG>, <STRONG>DEICIDE</STRONG>, <STRONG>SIX FEET UNDER</STRONG>). </P>
+<P>Обложку нарисовал Марк Риддик (<STRONG>Mark Riddick</STRONG>), который и прежде сотрудничал с <STRONG>ARSIS</STRONG>.</P>
+<P>Трек-лист альбома:</P>
+<P>01. <STRONG>Unwelcome</STRONG><BR>02. <STRONG>Carve My Cross<BR></STRONG>03. <STRONG>Handbook For The Recently Deceased<BR></STRONG>04. <STRONG>Choking On Sand<BR></STRONG>05. <STRONG>Let Me Be The One<BR></STRONG>06. <STRONG>Sunglasses At Night<BR></STRONG>07. <STRONG>Martyred Or Mourning<BR></STRONG>08. <STRONG>No One Lies To The Dead<BR></STRONG>09. <STRONG>I Share In Shame<BR></STRONG>10. <STRONG>Scornstar</STRONG></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 

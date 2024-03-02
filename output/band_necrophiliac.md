@@ -88,6 +88,24 @@ Recorded At Central Studios (Sevilla) On March 1992.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 10.08.2016 news Единственный альбом NECROPHILIAC
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">1 сентября на <strong>Xtreem</strong> выйдет переиздание альбома death metal команды из Испании <strong>NECROPHILIAC "Chaopula - Citadel Of Mirrors"</strong>. Издание будет содержать второй диск с бонусами и получило название "<strong>Maze of Forking Paths</strong>". Ниже можно услышать трек с этого альбома "<strong>Cyclic Pathology Of Natura</strong>".</font></p><p><font color="#ffffff" style="background-color: rgb(0, 0, 0);"></font><center><iframe width="560" height="315" src="https://www.youtube.com/embed/-ur4mcSFAMM" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 10.08.2016 news Re-issue of debut album of NECROPHILIAC
+
+<p>1st of September reissue of death metal band from Spain <strong>NECROPHILIAC "Chaopula - Citadel Of Mirrors"</strong> will be released on <strong>Xtreem</strong>. The edition will contain a second disc with bonuses and is called "<strong>Maze of Forking Paths</strong>". Below you can hear a track from the album "<strong>Cyclic Pathology Of Natura</strong>". </p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/-ur4mcSFAMM" frameborder="0" allowfullscreen></iframe>&nbsp;</p>
+Автор: Vit Belov
+
+### 20.10.2016 reviews Дэт для коллекционеров
+
+<p>Испанская death metal группа NECROPHILIAC является одной из старейших команд в стиле в своей стране. Годом основания коллектива считается 1988. Первый этап существования продлился до 1993 года. За этот период NECROPHILIAC выпустили один полноформатный альбом «Chaopula – Citadel Of Mirrors” и, как водится, некоторое количество демок, миньонов и концертных записей. В этом году испанцы вернулись к жизни, и неслучайно ещё один ветеран death metal сцены Испании Dave Rotten (AVULSED) издал на своём лэйбле Xtreem Music обозреваемую компиляцию.</p><p>На сборник попал единственный полноформатный альбом NECROPHILIAC и все демо и концерты группы. Песни повторяются, что естественно, но звучат очень по-разному, ведь были они записаны во времена, когда чётких студийных форматов не существовало. Музыка испанцев может быть отнесена к death doom metal. В те времена существовало множество групп, которые экспериментировали на стыке стилей. Брутальности этому материалу явно не хватает, но зато он разнообразен и насыщен различными особенностями. Качество реализации на хорошем уровне для UG начала 90-х, материал также прошёл дополнительную обработку в наше время. Демки и концертный материал также позволяют прочувствовать атмосферу того времени.</p><p>Безусловно, этот диск можно рекомендовать коллекционерам. С точки зрения музыкальной составляющей он тоже не плох, но для того, чтобы насладиться материалом в полной мере нужно отмотать собственные часы на несколько десятилетий назад.</p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

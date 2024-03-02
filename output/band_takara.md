@@ -55,6 +55,305 @@ Cover artwork by Michael Kneppert.
 
 * C группой "Vox Tempus" Eric Ragno
 
+## Публикации
+
+### 27.03.2001 news Новый альбом TAKARA...
+
+<p>Калифорнийские хард-рокеры TAKARA в прямом и переносном смысле потеют в студии над своим четвертым творением. По сообщению нового вокалиста Майкла Джэймса, практически все вокальные партии уже готовы. Трек-лист: ‘Miles Away’, ‘Tell Me’, ‘Believe’, ‘L.I.E.S’, ‘Simple Man’, и ‘Shadows In The Night’. Лирику писали и Майкл и гитарист Neil Grusky, также приложил руку и продюссер David Anthony.</p>
+
+Автор: Yermola
+
+### 27.03.2001 news TAKARA new album...
+
+<p>California hard rockers TAKARA, who once featured in their ranks TALISMAN / ex-YNGWIE vocalist Jeff Scott Soto, are reportedly still hard at work on their fourth studio album, the first to include new vocalist Michael James. According to James, “about all I can tell you at this point is that we're almost done with the vocals. I'm afraid it's my fault that this record is taking so long. You see, I live in Portland, Oregon; which puts me just under 1.000 miles away from the studio! However, I'm totally happy with the six of nine we've finished to this point. The song titles so far (and this could possibly change) are: ‘Miles Away’, ‘Tell Me’, ‘Believe’, ‘L.I.E.S’, ‘Simple Man’, and ‘Shadows In The Night’. Both, [guitarist] Neil [Grusky] and I are writing lyrics for the album, and David Anthony, our producer and engineer, has also been throwing his two cents in. Actually, he's probably up to about $1.50 by now..."</p>
+
+Автор: Yermola
+
+### 22.07.2002 news Takara is has now officially found their new Drummer and Bassist....
+
+<p>Takara is has now officially found their new Drummer and Bassist. Bassist Bjorn Englen, and Drummer Jerry Summers have now officially joined Takara. Along with Bjorn and Jerry, Eric Ragno long time friend and keyboardist will again playing keyboards for us. We are very proud to have all of these very talented and dedicated musicians in the band. Both Bjorn and Jerry provide a chemistry and cohesiveness that will be the neccessary backbone to Takara's future musical success. Both Bjorn, Jerry, and Eric in the next few weeks will add their own personel page to the Takara site greeting everyone, and providing a brief history of their past endeavors. We can only say now, "that these guys really rock hard" ! We are really excited about the future of the band. <BR><BR> Next, as some of you already know, our European label Lion Music has been in the process of rereleasing the entire Takara catalogue. So far, Takara's first 2 CD's "ETERNAL FAITH" and "TASTE OF HEAVEN" have been rereleased. Lion Music is rereleasing these CD's every 2 months. September will mark the rerelease of "BLIND IN PARADISE", then shortly thereafter will be "ETERNITY" BEST OF will be rereleased.<BR><BR> Takara is currently planning a Live CD for later this year. There are no dates for this CD yet. Please make sure you visit the Takara site, and vote on the songs you'd like to hear on the Live CD. <BR><BR> Next, with the addition of our new drummer and bassist(Jerry and Bjorn) Takara will be planning live shows here in Southern California. We hope to be ready to perform our first shows within the next month or so. More news on this as it developes. <BR><BR> We (Takara) have been in the process of putting together the first "Melodic Hard Rock Fest" ever here in Southern California. We hope to make these shows a regular occurence. Only bands that play top notch melodic hard rock will be included in these shows. The "Melodic Hard Rock Fest" is still on it's planning stages, but hopes to be set up and fully functional very soon . More on this "Fest" coming VERY SOON!<BR><BR> Takara has also been asked to contribute a track to a "Journey" Tribute CD. Their are no details to this yet on this CD, we will update everyone as the details develope. <BR><BR> Meanwhile, Guitarist Neal Grusky will play on a Uli Roth Tribute CD that Lion Music is currently putting together. Neal will play on the song "Pictured Life" an old Scorpions song from one of their early albums. Many very well known musicians will be taking part on this CD project. More on this later. <BR><BR> Finally, Takara has enlisted long time friend and marketing consultant Steve Brownlee to help with distribution, and other strategic needs that need to be addressed. Takara feels with Steve's hard work and dedication that we will reach the next level that is so important to making Takara music more accessible.</p>
+
+Автор: Yermola
+
+### 16.12.2003 news Takara news
+
+<P>On MARCH 26, 2004&nbsp; <B>TAKARA</B> BEST OF CD "<B>ETERNITY</B>" will be rereleased! This rerelease will have unreleased band pictures never seen before from the photo archives.Also, the CD will feature a "<B>Letter to the fans</B>" from guitarist and founder <B>Neal Grusky</B>.</p> <p>Also, <B>Takara</B> has been working on material for their upcoming next studio CD (yet untitled).&nbsp;Band hope to be ready to begin recording early 2004. </P>
+<P><B>Takara</B> is also preparing plans for a short European tour in the summer of 2004. Along with these shows <B>Takara</B> will record a live CD/DVD for release shortly thereafter. </P>
+Автор: Vit Belov
+
+### 07.07.2004 articles TOP-50 лицензионных дисков за июнь
+
+<TABLE cellSpacing=0 cellPadding=0 width=597 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 174pt" width=232>
+<COL style="WIDTH: 178pt" width=237>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=232><B>NIGHTWISH</B></TD>
+<TD width=237><B>ONCE</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>LEMURIA</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THERION</B></TD>
+<TD><B>SIRIUS B</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>LEAVES' EYES</B></TD>
+<TD><B>LOVELORN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>5 (8)</B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>AYREON</B></TD>
+<TD><B>THE HUMAN EQUATION (2 CD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>KOTIPELTO</B></TD>
+<TD><B>COLDNESS</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>ATROCITY</B></TD>
+<TD><B>ATLANTIS</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=232><B>MOTORHEAD</B></TD>
+<TD><B>INFERNO</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>THEATRES DES VAMPIRES</B></TD>
+<TD><B>NIGHTBREED OF MACABRIA</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>11 (2)</TD>
+<TD>FINNTROLL</TD>
+<TD>NATTFODD</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>IMPERANON</TD>
+<TD>STAINED</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (10)</TD>
+<TD>SIRENIA (ex-TRISTANIA)</TD>
+<TD>AN ELIXIR FOR EXISTENCE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>RHAPSODY</TD>
+<TD>THE DARK SECRET EP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>15 (3)</TD>
+<TD>CREMATORY</TD>
+<TD>REVOLUTION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ES REITEN DIE TOTEN SO SCHNELL</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>projectNENIA CALLADHAR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>18 (14)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>MADMEN AND SINNERS</TD>
+<TD width=237>MADMEN AND SINNERS</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAGGARD</TD>
+<TD>AWAKING THE CENTURIES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AETERNITAS</TD>
+<TD>LA DANSE MACABRE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS II</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>ICH TOETE MICH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>SONGS FROM THE INVERTED WOMB</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>THE INEXPERIENCED SPIRAL TRAVELLER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>26 (9)</TD>
+<TD>MONSTERS OF METAL - 2</TD>
+<TD>THE ULTIMATE METAL COMPILATION (2 DVD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>DEAD LOVERS I</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEICIDE</TD>
+<TD>SCAR OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (36)</TD>
+<TD width=232>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (13)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SARCOMA</TD>
+<TD>TORMENT RIDES FOREVER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (19)</TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (21)</TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (20)</TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>35 (1)</TD>
+<TD>NIGHTWISH</TD>
+<TD>NEMO (single)</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>SOPOR AETERNUS</TD>
+<TD>TODESWUNSCH…</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (26)</TD>
+<TD width=232>НАТИСК</TD>
+<TD width=237>НЕБО В ОГНЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>TNT</TD>
+<TD>MY RELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (42)</TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>40 (5)</TD>
+<TD width=232>EVERGREY</TD>
+<TD>THE INNER CIRCLE</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>41 (44)</TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (45)</TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=232>WASP</TD>
+<TD>WASP</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>ETERNAL FAITH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>BLIND IN PARADISE</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TAKARA</TD>
+<TD>TASTE OF HEAVEN</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>47 (18)</TD>
+<TD>THE 69 EYES</TD>
+<TD>WASTING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ANVIL</TD>
+<TD>BACK TO BASICS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (4)</TD>
+<TD>SCORPIONS</TD>
+<TD>UNBREAKABLE</TD>
+<TD>BMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>50 (7)</TD>
+<TD width=232>MAYHEM</TD>
+<TD width=237>CHIMERA</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+<P>* Продажи на точке "Metal & Progressive" №100 в Рубине</P>
+Автор: Vit Belov
+
+### 15.02.2005 news TAKARA покинул вокалист
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>TAKARA</STRONG> покинул вокалист <STRONG>Michael J. Flatters</STRONG> по личным причинам. Группа ищет нового певца и продолжает работу над новым альбомом.</FONT></P>
+Автор: Vit Belov
+
+### 28.02.2009 news TAKARA ищут басиста и барабанщика
+
+<P>Американцы <STRONG>TAKARA</STRONG> ищут нового басиста и барабанщика для тура и записи нового альбома.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

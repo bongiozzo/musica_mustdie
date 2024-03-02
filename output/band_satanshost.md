@@ -106,6 +106,20 @@
 
 * C группой "Jag Panzer" Harry Conklin (vocal)
 
+## Публикации
+
+### 01.07.2011 news SATAN&#39;S HOST перезапишут песни
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сатанисты <STRONG>SATAN'S HOST</STRONG> войдут в <STRONG>Flatline Studios </STRONG>18 июля с продюсером <STRONG>Dave Otero</STRONG> (<B>CEPHALIC CARNAGE</B>, <B>COBALT</B>) для записи юбилейного альбома, посвящённого 25-летию их дебюта <STRONG>"Metal From Hell"</STRONG>. Пока не названная компиляция будет содержать перезаписанные треки из творческого наследия коллектива, а также несколько новых песен. Вот названия композиций, которые войдут в альбом: <STRONG>"For The Love Of Satan"</STRONG>, <B>"Conviction"</B>,&nbsp;<B>"Metal From Hell"</B>, <B>"Witches Return"</B>, <B>"Nightside Of Eden"</B>, <B>"H.E.L.L."</B>, <STRONG>"Dark Priest (Lord Ahriman)"&nbsp;</STRONG>и&nbsp;<B>"Satanic Grimoire"</B>. Пластинка ожидается в ноябре на <STRONG>Moribund Cult</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В группе <STRONG>SATAN'S HOST</STRONG> принимает участие вокалист <STRONG>JAG PANZER</STRONG> <STRONG>Leviathan Thisiren</STRONG> (a.k.a. <STRONG>Harry Conklin). </STRONG>Студийный репортаж о создании новейшего альбома коллектива <STRONG>"By The Hands Of The Devil" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/2Ts-cz0CTzc?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/2Ts-cz0CTzc?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

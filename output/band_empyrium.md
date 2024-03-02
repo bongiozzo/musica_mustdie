@@ -93,6 +93,81 @@ Recorded, mixed & mastered at Klangschmiede Studio E during several occasions be
 * C группой "The Vision Bleak" 
 * C группой "Noekk" EMPYRIUM Successor
 
+## Публикации
+
+### 08.06.1999 news 
+
+<p>"После некоторой задержки EMPYRIUM приступил к записи своего нового материала. Следует отметить, что Markus и Andreas решили записать полнометражный альбом вместо объявленного ранее MCD. Третий шедевр EMPYRIUM будет озаглавлен "Where At Night The Wood Grouse Plays" ("Где по ночам резвится тетерев") и преподнесет слушателям немало сюрпризов в виде новых песен - полностью акустических, но в то же время весьма напыщенных. Еще никогда до этого музыкантам не удавалось создать столь мрачную и пасторальную атмосферу. Нам действительно следует ожидать чего-то величественного..." Новость перевёл и прислал Женя "Price" из Metalagen Records. Cпасибо.</p>
+
+Автор: Vit Belov
+
+### 16.11.1999 reviews 
+
+<p>Со времен "Wintersunset" 1996 года немецкие gothic-doom'стеры EMPYRIUM являются одной из моих любимейших групп. Их третий альбом, как обычно, воспевает красоты Природы. Безусловно лучший альбом за всю историю группы, соединяющий в себе элементы "Wintersunset" и "Songs of Moors and Misty Fields". Альбом полностью акустический, что придает ему дополнительную меланхолично- грустную красотую. Очень красиво звучат флейты и виолончели. Как всегда на высоте мужской вокал, помогает ему женский шепот и подпевки.Барабанов на альбоме можно сказать нет (присутствуют только на 1 вещи). Потрясающе красиво записаны всякие природные звуки, типа завывания холодного ветра в Зимнем Лесу. Полное ощущение соприкосновения с природой и отрешения от мира сего. Рекомендую всем фанатам EMPYRIUM, любителям и ценителям акустической музыки, и тем, кому нравится соединение с первородной Матушкой-Природой. Чистая 10.</p>
+
+Автор: Vit Belov
+
+### 05.07.2000 news Новости от Empyrium
+
+<p> Empyrium расстались с прежним участником Андреасом Бахом из-за музыкальных разногласий. Томас Хелм, с другой стороны, подтвердил своё участие в будущих релизах. Уже готова концепция и большая часть материала для следующего альбома. Первая сессия записи нового альбома c рабочим названием "Weiland" ("In Times Of Yore") состоится в ноябре этого года в Klangschmiede Studio E.</p>
+
+Автор: Morsus
+
+### 05.07.2000 news News from Empyrium.
+
+<p> Empyrium have parted ways with former member Andreas Bach. Musical differences made it inevitable. Thomas Helm, on the other hand, is confirmed to be a part of future releases. Concept and huge parts of the music for next album are settled. The first recording-session of album, working-title "Weiland" ("In Times Of Yore") will take part in this year’s November at Klangschmiede Studio E.</p>
+
+Автор: Morsus
+
+### 25.07.2001 news Группа участников Empyrium
+
+<p>The Vision Bleak - так называется новый проект Markus Stock / Schwadorf из группы Empyrium. Первые композиции можно послушать на www.mp3.com/tvb</p>
+
+Автор: Vit Belov
+
+### 08.08.2001 news Empyrium заканчивают запись нового альбома
+
+<p>EMPYRIUM наконец-то записали весь музыкальный материал к своему новому творению "Weiland". В настоящее время группа работает над расположением вещей на альбоме, стремясь получить в итоге атмосфернейший и живописнейший альбом из всех когда-либо выпущенных. Окончание работ предполагается только в начале 2002 года.</p>
+
+Автор: Dimas
+
+### 08.08.2001 news EMPYRIUM have finished all musical works
+
+<p>EMPYRIUM have finished all musical works to "Weiland". Currently the band is working on the layout to pay tribute to one of the most atmospheric and picturesque albums ever released. Available in Spring 2002.</p>
+
+Автор: Dimas
+
+### 30.08.2002 reviews Симфония из трех частей
+
+<p>Своим четвертым альбомом немецкий дуэт подтвердил полную смену курса своей музыки. Это уже далеко не metal. Альбом содержит мрачную оркестровую музыку создаваемую с помощью классических инструментов, таких как пианино, флейта и скрипки с виолончелями, а также акустической гитары. Все эти инструменты в совокупности с вокалом создают особую мрачнейшую тягучую атмосферу холода и страха. Это музыка вдохновленная природой-матерью. Она несет в себе романтические чувства, любовь, грусть и трагедию человеческой жизни. Чудесные печально-меланхоличные мелодии, иногда звучит оперный мужской вокал и даже скриминг. Должен признаться, что в целом, подобная музыка меня мало радует, вообще не люблю музыку со скудным набором инструментов, тем более если отсутствует гитара. Но этот альбом из числа тех, что мне нравятся в подобной стилистике. А их немного... Из того, что вспоминается, это предыдущий EMPYRIUM "Where At Night The Wood Grouse Plays", ULVER "Kveldszanger", ROMOWE RIKOITO "L'automne Eternel".<BR> Напряженная симфония мрака и безысходности. Красивая музыка для музыкальных эстетов. Настоящее классическое произведение на современном уровне.</p>
+<p> Диск выпущен по лицензии компанией <A HREF="http://www.cd-maximum.ru">CD-MAXIMUM</A></p>
+
+Автор: Dimas
+
+### 22.09.2011 news WAVE GOTIK TREFFEN &#39;2011: фото-репортаж
+
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1">
+<CENTER><IMG border=0 hspace=5 alt="" src="/images/news_rus/2011.09/21131.jpg" width=468 height=60></SPAN> 
+<P></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1">С 10 по 13 июня в городе Лейпциге (Германия)&nbsp;прошёл очередной, двадцатый по счёту, фестиваль <STRONG>Wave Gotik Treffen</STRONG>. Являясь самым большим и<SPAN style="mso-spacerun: yes">&nbsp;</SPAN>знаменитым фестивалем<SPAN style="mso-spacerun: yes">&nbsp;"</SPAN>Тёмной<SPAN style="mso-spacerun: yes">&nbsp; </SPAN>Сцены"<SPAN style="mso-spacerun: yes"> </SPAN>не только в Европе, но и в Мире,<SPAN style="mso-spacerun: yes"><STRONG> </STRONG></SPAN><STRONG>WGT</STRONG> ежегодно собирает от 15.000 до 25.000 зрителей. На фестивале выступило огромное количество разноплановых музыкальных коллективов. Вашему вниманию предлагается фото-репортаж с этого грандиозного мероприятия.</SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"></SPAN>&nbsp;</P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>DAS ICH</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>SWEET WILLIAM</STRONG></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>OSWALD HENKE</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/757">http://musica.mustdie.ru/ru/galleries/21/757</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>SARAH JEZEBEL DEVA</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>CHTHONIC</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/758">http://musica.mustdie.ru/ru/galleries/21/758</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>GOTHMINISTER</STRONG> </FONT></SPAN></SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>UMBRA ET IMAGO</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>DIORAMA</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/759">http://musica.mustdie.ru/ru/galleries/21/759</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #0099ff"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #0099ff"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="COLOR: #ff0033"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>ANATHEMA</STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG></FONT></SPAN></SPAN></STRONG>: <A href="/ru/galleries/21/760">http://musica.mustdie.ru/ru/galleries/21/760</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>EMPYRIUM</STRONG> </FONT></SPAN></SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>HELHEIM</STRONG></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>DORNENREICH</STRONG></SPAN></STRONG>: <A href="/ru/galleries/21/762">http://musica.mustdie.ru/ru/galleries/21/762</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>LAKE OF TEARS</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>TIAMAT</STRONG></SPAN></STRONG>: <A href="/ru/galleries/1/763">http://musica.mustdie.ru/ru/galleries/1/763</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>WAVES UNDER WATER</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>TROBAR DE MORTE</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>BEATI MORTUI</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>KILLING JOKE</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>FIELDS OF NEPHILIM</STRONG></SPAN></STRONG>:</FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><A href="/ru/galleries/1/768">http://musica.mustdie.ru/ru/galleries/1/768</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>NORTHLAND</STRONG> </FONT></SPAN></SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>COPPELIUS</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>CRIMFALL</STRONG></SPAN></STRONG>: <A href="/ru/galleries/1/769">http://musica.mustdie.ru/ru/galleries/1/769</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>MEDIAEVAL BAEBES</STRONG></FONT></SPAN></SPAN></STRONG> / <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>ELUVEITIE</STRONG> </SPAN></STRONG>/ <STRONG><SPAN style="BACKGROUND: #009966"><STRONG>MISFITS</STRONG></SPAN></STRONG>: <A href="/ru/galleries/1/770">http://musica.mustdie.ru/ru/galleries/1/770</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>Посетители фестиваля</STRONG></FONT></SPAN></SPAN>: <A href="/ru/galleries/1/772">http://musica.mustdie.ru/ru/galleries/1/772</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><SPAN style="BACKGROUND: #009966"><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0><STRONG>Посетители фестиваля</STRONG></FONT></SPAN></SPAN> <STRONG><SPAN style="BACKGROUND: #009966">(часть 2)</SPAN>:</STRONG> <A href="/ru/galleries/1/773">http://musica.mustdie.ru/ru/galleries/1/773</A></FONT></SPAN></P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0></FONT></SPAN>&nbsp;</P>
+<P style="MARGIN: 0cm 0cm 0pt" class=MsoNormal><SPAN style="FONT-FAMILY: 'Verdana', 'sans-serif'; COLOR: white; FONT-SIZE: 8.5pt; mso-themecolor: background1"><FONT color=#ddd9d0>Автор всех фотографий - <STRONG>Юлия Бучацкая</STRONG> (кроме <STRONG>MISFITS</STRONG> - <STRONG>Альберт Бучацкий</STRONG>).</FONT></SPAN></P></CENTER>
+Автор: Tess
+
+
 ## Обсуждения
 
 

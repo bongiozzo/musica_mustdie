@@ -22,6 +22,15 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 12.05.2012 news Видео-клип DISINTEGRATE
+
+<P>Видео голландской melodic-death/thrash-metal команды<STRONG> DISINTEGRATE</STRONG> на песню <STRONG>"Shatter Them" </STRONG>можно посмотреть ниже. Трек вышел в 2010 году на дебютном альбоме коллектива <STRONG>"Parasites Of A Shifting Future"</STRONG>, который в июле получит болею широкую дистрибуцию посредством <STRONG>Massacre Records</STRONG>.</P>
+<P><center><iframe width="640" height="360" src="http://www.youtube.com/embed/Y7vKX07-ZI4?feature=player_embedded" frameborder="0" allowfullscreen></iframe></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

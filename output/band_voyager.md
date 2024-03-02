@@ -86,6 +86,21 @@ Alex Canon - Bass
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 19.02.2009 news Запись нового VOYAGER
+
+<P>Австралийцы <STRONG>VOYAGER</STRONG> войдут в <STRONG>Kingdom Studios </STRONG>с продюсером <STRONG>Adam Round </STRONG>в мае. Пластинка выйдет на <STRONG>Dockyard 1</STRONG> в конце года.</P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Из других новостей, новым гитаристом группы стал 17-летний <STRONG>Chris Hanssen.</STRONG></FONT></P>
+Автор: Vit Belov
+
+### 30.07.2011 news Четвёртый альбом VOYAGER
+
+<P>Новый альбом австралийцев <STRONG>VOYAGER</STRONG> <STRONG>"The Meaning Of I" </STRONG>выйдет в широкую продажу на <STRONG>Sensory Records </STRONG>11 октября<STRONG>. </STRONG>Фэны группы смогут приобрести альбом уже 16 сентября на фестивале<STRONG> ProgPower USA,</STRONG> где группа выступит в певый раз.</P>
+<P><center><STRONG><IMG height=315 src="/images/news_rus/2011.07/20355.jpg" width=475 border=0></STRONG></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

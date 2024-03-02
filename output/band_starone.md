@@ -74,6 +74,58 @@ Limited edition contains a bonus CD with following tracklist.
 * C группой "Wilson, Damian" Damien Wilson (vocal)
 * C группой "Ayreon" Damien Wilson (vocal)
 
+## Публикации
+
+### 16.04.2002 news Космический проект Арьена Лукассена
+
+<p><IMG SRC="/images/news_rus/2002.04/2622.jpg" ALT="Space Metal" width="204" height="199" vspace="5" align="left">Inside Out Music объявили дату официального европейского релиза нового all-star проекта Арьена "Ayreon" Лукассена - Star One "Space Metal". Альбом выйдет 29 апреля 2002 года. Арьен Лукассен представляет прямолинейный необузданный heavy metal альбом, в котором участвует ряд известных музыкантов. Дэн Свано (ex-Edge of Sanity, Nightingale) поёт низкие вокальные партии, Рассел Аллен (Symphony X) отвечает за мощный грубый вокал, чистым высоким голосом поёт Дэмиен Уилсон (ex-Threshold) и в припевах ещё более высоко - Флур Йенсен (After Forever). Роберт Сотербоек (Ayreon) исполняет хриплый прокуренный бэк-вокал. Эд Уорби - ударные, Эрик Норландер - аналоговый синтезатор. Арьен также сумел заполучить Йенса Йоханссона (Yngwie Malmsteen, Dio, Stratovarius), он сыграл изумительные скоростные партии на синтезаторе. Гэри Веркамп (Shadow Gallery) исполнил два мощных и быстрых соляка. Ко всему прочему, Дейв Брок, легендарный фронтмен Hawkwind, сам спел в поппури из песен Hawkwind. "Space Metal" выйдет в обычном издании и в виде digibook c дополнительным компактом, включающим "Hawkwind Medley".</p>
+
+Автор: Morsus
+
+### 16.04.2002 news Space project of Arjen Lucassen
+
+<p><IMG SRC="/images/news_rus/2002.04/2622.jpg" ALT="Space Metal" width="204" height="199" vspace="5" align="left">Inside Out Music has announced the European release of Star One "Space Metal". Album will be on April 29, 2002. Arjen "Ayreon" Lucassen release new heavy metal album with various guest musicians. Dan Swano (ex-Edge of Sanity, Nightingale) sings the low parts, Russell Allen (Symphony X) sings the powerful rough parts, Damian Wilson (ex-Threshold) sings the high clear parts, and to top it off, Floor Jansen (After Forever) sings the really high choruses. Robert Soeterboek (Ayreon) sang the backing vocals with his huge smoky voice. Of course Ed Warby played the powerful drums, and Erik Norlander once again added his huge analog synth leads. Arjen also managed to get Jens Johansson (Yngwie Malmsteen, Dio, Stratovarius) who played some incredibly fast synth leads as well. Gary Wehrkamp (Shadow Gallery) played two powerful and speedy guitar solos. Dave Brock, the legendary Hawkwind frontman, will sing a medley of Hawkwind songs as well.</p>
+
+Автор: Morsus
+
+### 12.08.2002 reviews Космический металл
+
+<p>Хэви, говорите, ждали? Самого настоящего хэви? Ну-ну. А ведь товарищ Лукассен вполне ясно дал понять, что хоть музыка STAR ONE и прямолинейнее будет, и акцент делается в первую очередь на гитарные партии, это всё-таки т.н. "прогрессив". Впрочем, такое определение как "heavy progressive metal" не менее верно отразит сущность "Space Metal". Альбом, кстати говоря, вышел достойный всяческих похвал. И если бы я вдруг запамятовал, что ни одна из работ авторства Лукассена – будь то в рамках AYREON, AMBEON или STAR ONE – не похожа на другие, то определённо назвал бы "Space Metal" лучшим из всего того, что создал Арьен. Однако сравнивать несравнимое, мягко говоря, неблагодарная задачка. Так что – не будем. Единственное, что можно сказать на сей счёт: не взирая на "космическое" название и "космическую" же тему, красной нитью проходящую через весь альбом, "Space Metal" – альбом несравненно менее "космический", чем, скажем, известная сага "Universal Migrator". Что, как бы странно это ни звучало, не мешает ему прекрасно передавать неземную атмосферу – "Space Metal" ею пропитан, что называется, "от и до". Может, дело в том, что причудливая смесь хэви и прога – музыка в большей степени земная? ;-) Земная по настроению, но… космическая по атмосфере. Парадокс какой-то, чтоб его… Ладно, скажем так: слушая этот альбом, прекрасно представляешь себе те далёкие звёзды и галактики, о которых идёт речь (а "Space Metal", кстати говоря, целиком и полностью основан на фильмах, действие которых, опять же – целиком и полностью, разворачивается в космосе), но одновременно не менее прекрасно понимаешь, что находишься-то ты на Земле. Это что касается стихов и общей атмосферы. Касательно же музыки… да, причудливая смесь, да, хэви и прога. К которым, пожалуй, можно было бы приплюсовать эдакий симфонический подвид хард-рока (не верите? Послушайте "Intergalactic Space Crusaders" или "Songs Of The Ocean"). О всём многообразии мелодий, аранжировок, вокальных партий можно было бы говорить целую вечность… но зачем? Отмечу лишь, что на альбоме невозможно найти не то, что две одинаковые, а даже две похожие вещи – однако ощущение разнородности (раздробленности, разобщенности – нужное подчеркнуть) почему-то не даёт о себе знать. Как и в случае с "The Hound Of The Baskervilles" Клайва Нолана и Оливера Уэйкмана, какие-то отдельные песни выделить крайне сложно. Потому как все они до безобразия хороши. Говорить что-либо об уровне исполнения, смею надеяться, не стоит. Равно как и об уровне вокальных партий – ведь за них ответственны Dan Swano (NIGHTINGALE, ex-EDGE OF SANITY), Russell Allen (SYMPHONY X), Damian Wilson (ex-THRESHOLD), Floor Jansen (AFTER FOREVER), а также сам Арьен и Robert Soeterboek (AYREON). Напоследок замечу, что лучшим выбором будет покупка лимитированного издания. Мало того, что оно шикарно издано, так ещё и включает в себя некое подобие бонус-диска. Который, уверяю вас, стоит того, чтобы сделать выбор в пользу именно такого варианта. Интересуетесь тем, что на нём представлено? Что ж, извольте: попурри из девяти песен HAWKWIND, спетые… самим HAWKWIND'овцем Дэйвом Броком; две новые песни – ничуть не уступающие тем, что оказались на первом диске; "Space Oddity" – абсолютно неузнаваемый кавер Дэвида Боуи, сыгранный и спетый Арьеном в гордом одиночестве; и, наконец, два замечательных ремикса. В общем и целом: без этого альбома ваша коллекция определённо будет неполной.</p>
+
+Автор: Kai Mathias Stalhammar
+
+### 22.11.2002 articles Новинки лицензионного рынка (15.11 - 22.11)
+
+<p>Эта неделя очень бедна на новинки. Особых хитов тоже незаметно, но читайте, может, что для себя и найдёте.</p>
+<p> AMG на этой неделе отдыхает, единственной новостью стало появление в продаже двух первых альбомов MESSIAH, которые были анонсированы ещё на прошлой.</p>
+<p> CD-MAXIMUM выступили на редкость слабо, разве что Tribute To Helloween, Part 2 может потянуть некоторые продажи, да и то, сказать по правде, увлечение Arise Records трибьютами ещё живой группе очень удивляет. Скоро они будут новые альбомы немцев переиздавать в своих версиях. Ну, и две новинки от Lucretia Records – Mantra и Wuthering Heights. Mantra исполняют традиционный hard rock, а Wuthering Heights speed-progressive (???), который контора очень хвалит, вот только так они хвалят практически всё.</p>
+<p> Fono продолжает удивлять нас отсутствием хронологических новинок. К таким можно отнести только Grave “Back From the Grave” – возвращение классиков death-metal. Первый же альбом Thyrfing и Notre Dame “Coming Soon To A Theatre Near You, The 2nd» сложно отнести к новинкам. Заявлено, что Notre Dame будет в формате DG-pack, надеюсь хотя бы с книжкой.</p>
+<p> Irond Records также представил нашему вниманию DG-pack - концертник THERION “Live In Midgard”. Чудесное оформление двойного диска, 12-страничный буклет и диски с золотым напылением. Переиздание дебютного диска группы Butterfly Temple «Велес» должно порадовать уже довольно большую армию поклонников этой российской группы. Первые диски легендарной польской группы Behemoth собраны на CD 'Storms To Unleash'. Также следует обратить внимание на диск OTYG 'Sagovindars Boning', одна из групп Vintersorg’a. The Gallery с лэйбла Hall Of Sermon уже не требуют рекомендаций. «Слабой» же новинкой следует признать Autumn Clan, gothic rock в духе HIM, ничего особенного.</p>
+<p> У Союза такие же проблемы, как и у Фоно. Выходят новинки, которые уже сделаны пиратами, и даже с книжками. Например, новый альбом Flower Kings только что вышел, а Союз издаёт StarOne Арьена Лукассена, при чём без бонус диска. Спрашивается зачем? Тоже относится к Impelitteri. А концертники Axel Rudi Pell и Blackmore’s Night должны заинтересовать покупателей.</p>
+
+Автор: Vit Belov
+
+### 25.03.2003 news Двойной концертник от STAR ONE
+
+<p>В начале мая 2003 года на Inside Out Music планируется к выходу двойной компакт-диск и DVD концертных записей проекта Arjen Lucassen'a - STAR ONE - сделанных в ходе прошлогоднего Intergalactic Space Crusaders European tour. Компанию Arjen Lucassen'у в ходе тура составили ударник Ed Warby (AYREON, STAR ONE, GOREFEST), басист Peter Vink (AYREON, FINCH, Q65), клавишник Joost van den Broek (SUN CAGED), вокалисты Russell Allen (AYREON, STAR ONE, SYMPHONY X), Damian Wilson (AYREON, STAR ONE, THRESHOLD), Robert Soeterboek (AYREON, STAR ONE, WICKED SENSATION) и Floor Jansen (AYREON, STAR ONE, AFTER FOREVER) со своей сестрой Irene. Вы сможете увидеть и услышать следующие вещи:</p>
+<p> CD1:<BR> 01. Intro/Lift-Off<BR> 02. Set Your Controls<BR> 03. High Moon<BR> 04. Dreamtime<BR> 05. Eyes of Time<BR> 06. Songs of the Ocean<BR> 07. Dawn of a Million Souls<BR> 08. The Dream Sequencer<BR> 09. Into the Black Hole<BR> 10. Actual Fantasy<BR> 11. Valley of the Queens</p>
+<p> CD2:<BR> 01. Isis and Osiris<BR> 02. Amazing Flight in Space<BR> 03. Intergalactic Space Crusaders<BR> 04. Castle Hall<BR> 05. The Eye of Ra<BR> 06. Starchild<BR> 07. The Two Gates</p>
+<p> DVD<BR> 01. Intro/Lift Off<BR> 02. Set Your Controls<BR> 03. High Moon<BR> 04. Dreamtime<BR> 05. Eyes of Time<BR> 06. Songs of the Ocean<BR> 07. Dawn of a Million Souls<BR> 08. The Dream Sequencer<BR> 09. Keyboard solo<BR> 10. Into the Black Hole<BR> 11. Actual Fantasy<BR> 12. Valley of the Queens<BR> 13. Isis and Osiris<BR> 14. Amazing Flight in Space<BR> 15. Bass solo<BR> 16. Intergalactic Space Crusaders<BR> 17. Castle Hall<BR> 18. The Eye of Ra<BR> 19. Starchild<BR> 20. The Two Gates</p>
+
+Автор: Dimas
+
+### 11.04.2010 news Lucassen выпустит STAR ONE
+
+<P>Мы уже соообщали, что знаменитый мультинструменталист <STRONG>Arjen Luc</STRONG>assen работает над новым материалом. Выяснилось, что он готовит новый альбом проекта <STRONG>STAR ONE</STRONG>. Инструментальные демо уже готовы, и музыкант начинает работу над мелодиями и лирикой.</P>
+Автор: Vit Belov
+
+### 09.08.2010 news Arjen Lucassen назвал альбом STAR ONE
+
+<P>Лидер <STRONG>AYREON Arjen Lucassen</STRONG> подготовил новый альбом своего проекта<STRONG> STAR ONE</STRONG>, который назван <STRONG>"Victims Of The Modern Age". </STRONG>Пластинка должна выйти в октябре. </P>
+<P><center><IMG height=399 src="/images/news_rus/2010.08/17001.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

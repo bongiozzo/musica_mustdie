@@ -20,6 +20,26 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.02.2010 reviews Никакого металкора
+
+<P>По сообщениям просвещённых фанатов тяжёлой музыки, британская формация со сложнопроизносимым названием ANNOTATIONS OF AN AUTOPSY на своём дебютном альбоме “Before The Throne Of Infection” склонялась к deathcore/metalcore звучанию. Не знаю, что или кто надоумили AOAA играть это, но музыканты быстро одумались. Их новейший хук “The Reign Of Darkness”, вышедший на Nuclear Blast, представляет отличный brutal death-metal старой школы с новым звучанием.</P>
+<P>В общем-то, звучание у американских групп всегда было очень хорошим, поэтому британцы вряд ли кого-то им удивят, к тому же сведением занимался известнейший штатовский музыкант и продюсер Erik Rutan (HATE ETERNAL, ex-MORBID ANGEL). Мощные среднетемповые и техничные боевики порадуют всех поклонников стиля. Здорово, что по лицензии выходят подобные альбомы, они не дают угаснуть любви к death-metal у нашего непродвинутого слушателя. Мощные риффы, драйв и в тоже время отсутствие всякого примитива в музыке AOAA приятно удивляет. </P>
+<P>Надо слушать всем поклонникам стиля. Очень качественно и правильно записанная работа. Безусловно, к шедеврам обозреваемый альбом не относится, но они и выходят не каждый день, тем более в таком закостенелом стиле как death-metal.</P>
+Автор: Vit Belov
+
+### 08.05.2010 news Новое видео ANNOTATIONS OF AN AUTOPSY
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео англичан <STRONG>ANNOTATIONS OF AN AUTOPSY</STRONG> на песню <STRONG>"Bone Crown" </STRONG>можно посмотреть ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT height=385 width=640><PARAM NAME="movie" VALUE="http://www.youtube.com/v/aGhVI3VM4do&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/aGhVI3VM4do&color1=0xb1b1b1&color2=0xd0d0d0&hl=en_US&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="385"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

@@ -28,6 +28,19 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.06.2016 news FORTID выпускают сборник
+
+<p>Исландская viking metal команда<strong> FORTID</strong>&nbsp;выпускает сборник "<strong>The Demo Sessions</strong>" на <strong>Symbol Of Domination</strong>. На CD вошли демо-записи коллектива с 2008 по 2015 год, а так же одна новая вещь, специально написанная для этого издания. Ниже можно послушать альбом целиком.</p><p>Трек лист:</p><p>01. Illt skal med illu gjalda<br>02. Lifandi lifi undir hamri (Enslaved cover)<br>03. Nornir<br>04. Galdur<br>05. Hof<br>06. Pagan Prophecies<br>07. Electric Horizon<br>08. Sun Turns Black<br>09. Ad Handan<br>10. Heltekinn<br>11. Framtid</p><p><center><iframe style="border: 0; width: 400px; height: 472px;" src="https://bandcamp.com/EmbeddedPlayer/album=730103932/size=large/bgcol=ffffff/linkcol=0687f5/artwork=small/transparent=true/" seamless><a href="http://symbolofdomination.bandcamp.com/album/sodp064-fort-the-demo-sessions-compilation-2016">SODP064: Fort&#237;&#240; - The Demo Sessions [compilation] (2016) by Symbol Of Domination Prod.</a></iframe></p>
+Автор: Vit Belov
+
+### 28.06.2016 news FORTID release compilation
+
+<p>Icelandic viking metal band<strong> FORTID</strong> released a compilation, <strong>"The Demo Sessions</strong>" on<strong> Symbol Of Domination</strong>. CD includes demos of the band from 2008 to 2015, as well as one new song, specially written for this edition. Below you can listen to the album in its entirety.</p><p>Track list:</p><p>01. Illt skal med illu gjalda<br>02. Lifandi lifi undir hamri (Enslaved cover)<br>03. Nornir<br>04. Galdur<br>05. Hof<br>06. Pagan Prophecies<br>07. Electric Horizon<br>08. Sun Turns Black<br>09. Ad Handan<br>10. Heltekinn<br>11. Framtid</p><p><center><iframe src="https://bandcamp.com/EmbeddedPlayer/album=730103932/size=large/bgcol=ffffff/linkcol=0687f5/artwork=small/transparent=true/" style="border: 0px currentColor; width: 400px; height: 472px;" seamless="">&amp;amp;lt;a href="http://symbolofdomination.bandcamp.com/album/sodp064-fort-the-demo-sessions-compilation-2016"&amp;amp;gt;SODP064: Fort&amp;amp;amp;#237;&amp;amp;amp;#240; - The Demo Sessions [compilation] (2016) by Symbol Of Domination Prod.&amp;amp;lt;/a&amp;amp;gt;</iframe><p></p></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

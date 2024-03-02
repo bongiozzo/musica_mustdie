@@ -12,6 +12,30 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 26.02.2009 news Вокалистка TRISTANIA в клипе ARTIFACT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео новой группы бывшего гитариста<STRONG> TRISTANIA</STRONG>&nbsp;<STRONG>Bjornar Landa ARTIFACT </STRONG>на песню <STRONG>"New Messiah" </STRONG>можно посмотреть ниже. В клипе снялась нынешняя вокалистка <STRONG>TRISTANIA</STRONG> <STRONG>Mariangela Demurtas</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/2ouKhM_mPis&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/2ouKhM_mPis&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></FONT></CENTER>
+Автор: Vit Belov
+
+### 27.07.2011 news ARTFACT сводят второй альбом
+
+<P>Норвежцы <STRONG>ARTIFACT</STRONG> работают над своим вторым альбомом <STRONG>"Desolation". </STRONG>Вот названия песен:</P>
+<P>* <B itxtHarvested="0" itxtNodeId="51">Burn</B><BR itxtNodeId="50">* <B itxtHarvested="0" itxtNodeId="49">Nexus 6</B><BR itxtNodeId="48">* <B itxtHarvested="0" itxtNodeId="47">Close To You</B><BR itxtNodeId="46">* <B itxtHarvested="0" itxtNodeId="45">Never Failure</B><BR itxtNodeId="44">* <B itxtHarvested="0" itxtNodeId="43">Bound To Lose</B><BR itxtNodeId="42">* <B itxtHarvested="0" itxtNodeId="41">Headed For Breakdown</B><BR itxtNodeId="40">* <B itxtHarvested="0" itxtNodeId="39">A Home?</B><BR itxtNodeId="38">* <B itxtHarvested="0" itxtNodeId="37">My Happy Happy Pills</B><BR itxtNodeId="36">* <B itxtHarvested="0" itxtNodeId="35">The Devil's Road</B><BR itxtNodeId="34">* <B itxtHarvested="0" itxtNodeId="33">My Hate Is The Cure</B></P>
+<P>Ниже можно послушать демо-версию песни <STRONG>"Nexus 6".</STRONG></P>
+<P>
+<CENTER>
+<DIV><EMBED id=FlashDiv style="DISPLAY: inline" src=http://www.myspace.com/music/song-embed?songid=76132475&getSwf=true width=400 height=77 type=application/x-shockwave-flash quality="high" wmode="transparent" FlashVars="songId=76132475&pid=-4225979648361514276" AllowScriptAccess="always">&nbsp;</DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

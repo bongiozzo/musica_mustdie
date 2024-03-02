@@ -314,6 +314,423 @@ Disc 2 (DVD) - Australian Darkness
 * C группой "Houwitser" Mike
 * C группой "Death Squad" Mike
 
+## Публикации
+
+### 24.10.1999 news 
+
+<p>Sinister расстались со своим вокалисто Эриком и ищут нового "горлопана".</p>
+
+Автор: Vit Belov
+
+### 05.01.2000 news 
+
+<p>Sinister сменили вокалиста. Новым горлопаном стал парень по кличке Джуст.</p>
+
+Автор: Vit Belov
+
+### 26.01.2001 news У Sinister снова сменился вокалист.
+
+<p>К сожалению для группы, Джуст ушёл из Sinister. Новым вокалистом на этот раз будет женщина. После ряда прослушиваний лучше всего подошла на эту роль великолепная Рахиль из Occult. Она обладает таким убойным голосом, что любой мужик позавидует! Сейчас Sinister полностью концентрируются на своём новом альбоме с рабочим названием "Creative Killings". Запись будет проходить в течении всего января, а появиться в вашей музыкальной коллекции альбом сможет где-то в апреле. Пять песен уже завершены и получили следующие названия: "Moralistic Suffering", "Altering the beast", "Early gothic horror", "Creative Killings" и "Reviving the Dead".</p>
+
+Автор: Morsus
+
+### 26.01.2001 news Sinister&#39;s vocalist was changed again.
+
+<p>Unfortunately Joost have left Sinister. After a series of auditions, the gorgeous Rachel from Occult came out best and is going to be the new vocalist for Sinister. This woman has a death grunt... a male vocalists dream! Sinister are fully concentrating on the new album working title "Creative Killings". It will be recorded in January 2001 and should be at your recordstore around April 2001. 5 songs are finished, here are the titles "Moralistic Suffering", "Altering the beast", "Early gothic horror", "Creative Killings" end "Reviving the Dead".</p>
+
+Автор: Morsus
+
+### 17.08.2001 news Созидательные Убийства...
+
+<p>19-го ноября голландцы "SINISTER" выпускают на Hammerheart Records новое творение "Creative Killings" в которое войдут: 01. Moralistic Suffering 02. Altering The Beast 03. Early Gothic Horror 04. Creative Killings 05. Reviving The Dead 06. Season Of The Wicked 07. Judicious Murder 08. Bleeding Towards The Wendigo 09. Storm In My Mind (кавер POSSESSED).</p>
+
+Автор: Yermola
+
+### 17.08.2001 news Creative Killings...
+
+<p>Holland's SINISTER will be issuing their brand new studio album, entitled Creative Killings, through Hammerheart Records on November 19th. The full track listing for the CD is as follows: 01. Moralistic Suffering 02. Altering The Beast 03. Early Gothic Horror 04. Creative Killings 05. Reviving The Dead 06. Season Of The Wicked 07. Judicious Murder 08. Bleeding Towards The Wendigo 09. Storm In My Mind (POSSESSED cover). Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 03.01.2002 news DISMEMBER, SINISTER, Others To Blitz Europe During Summer...
+
+<p>Holland's SINISTER, Sweden's DISMEMBER, NECROPHOBIC, SATARIEL, Denmark's MERCENRARY and Norway's BLOOD RED THRONE will join forces in June for the Generation Armageddon Festival I European tour. The confirmed dates for the package are as follows:<BR><BR> Jun. 20 – Stockholm, SWE @ TBA<BR> Jun. 21 – Copenhagen, DEN @ TBA<BR> Jun. 22 – Berlin, GER @ TBA<BR> Jun. 23 – Leipzig, GER @ TBA<BR> Jun. 24 – Essen, GER @ TBA<BR> Jun. 25 – Stuttgart, GER @ TBA<BR> Jun. 26 – Milan, ITA @ TBA<BR> Jun. 27 – Strassbourg, FRA @ TBA<BR> Jun. 28 – Vosselaar, BEL @ TBA<BR> Jun. 29 – Hardenberg, NETH @ TBA<BR> Jun. 30 – Tilburg, NETH @ TBA<BR><BR> DISMEMBER, SINISTER & NECROPHOBIC only!<BR> Jul. 01 - Paris, FRA @ TBA<BR> Jul. 02 - Marseille, FRA @ TBA<BR> Jul. 03 – Barcelona, SPA @ TBA<BR> Jul. 04 – Lyon, FRA @ TBA<BR> Jul. 05 – Rotterdam, NETH @ TBA<BR> Jul. 06 – Graspop, BEL @ TBA<BR> Jul. 07 – GER @ With Full Force Festival <BR></p>
+
+Автор: Yermola
+
+### 05.02.2002 news Замена у Sinister ...
+
+<p>Заменой ушедшему гитаристу "Sinister" Bart van Wallenberg стал участник "Cantara" - Pascal Grevinga. Также Grevinga выступал как сессионный гитарист "God Dethroned". Сейчас команда собирается в тур в поддержку последнему диску "Creative Killings"...</p>
+
+Автор: Yermola
+
+### 15.02.2002 reviews Уничтожающее творчество от зловещих голландцев
+
+<p>Уничтожающее творчество от зловещих голландцев. За более, чем десять лет существования группы, она уже успела завоевать особый статус на death metal сцене. Мало найдется таких металлистов, которым незнакомо это название. После маленьких неурядиц с сотавом, группа все-таки собралась и записала новейший смертельный и достойный всеобщего внимания материал с новым вокалистом. Ею стала девушка, способная петь брутальнейшим нечеловеческим голосом. Похоже, в смертельном металле настает эра женщин. Есть уже несколько групп, в которых девушки пытаются петь гроулингом, причем, у некоторых это получается весьма неплохо. В целом, конечно же, ничего нового на альбоме вы не услышите. Альбом напоминает все предыдущее творчество SINISTER, а также CANNIBAL CORPSE с более яркой брутальной мелодикой, зверским мощным вокалом, сумасшедшими скоростями, тяжелейшим экстремальным звуком и потрясающей техникой. Ничего нового, но уровень работы очень высок, потому она не слушается как плагиат или повтор. Один из лучших альбомов группы начинается со спокойного полуакустического инструментального вступления сменяемого атакующим шквалом мясных зубодробительных риффов. Все песни - настоящие death metal бомбы высшего качества. Ну, а напоследок можно насладиться кавером POSSESSED "Storm In My Mind".</p>
+
+Автор: Dimas
+
+### 07.05.2002 news SINISTER plans
+
+<p>Dutch death metallers SINISTER will soon enter the studio to record Creators Of Brutality, an album's worth of classic death metal covers from the 80s and 90s. Included will be renditions of cuts from PUNGENT STENCH, INFERNAL MAJESTY, CELTIC FROST, KREATOR, DEATH, and others. Recordings will start this summer for a late 2002 release.</p>
+
+Автор: Dimas
+
+### 07.05.2002 news Планы SINISTER
+
+<p>Голландские death-металлеры SINISTER планируют засесть в студию в начале лета для записи своего нового альбома "Creators Of Brutality". Альбом будет содержать кавер-версии бессмертных классических произведений таких групп, как PUNGENT STENCH, INFERNAL MAJESTY, CELTIC FROST, KREATOR, DEATH и других. Выйдет альбом к концу 2002 года.</p>
+
+Автор: Dimas
+
+### 16.05.2002 news SINISTER with Nuclear Blast
+
+<p> Dutch female-fronted death metallers SINISTER have re-signed with Nuclear Blast Records after a one-album stint with Hammerheart Records and will enter the studio in December 2002 to record their new album, tentatively entitled Savage or Grace. An early 2003 release is expected.</p>
+
+Автор: Dimas
+
+### 16.05.2002 news SINISTER снова на Nuclear Blast
+
+<p>Голландская death metal группа SINISTER выпустив один альбом на Hammerheart Records, снова вернулась в пенаты Nuclear Blast Records. Группа войдет в студию в декабре 2002 года. Новый альбом группы "Savage or Grace" планируется к выходу весной 2003 года. Сейчас группа ведет активную концертную деятельность. В июле 2002 года, не исключен приезд группы в Россию.</p>
+
+Автор: Dimas
+
+### 20.06.2002 news Голландцы в России
+
+<p><SPAN STYLE="BACKGROUND:#660000;">2 июля 2002 года</SPAN> Brutal DJ Productions & Irond Records представляют в клубе "Свалка" единственный концерт культовой голландской brutal-death metal группы <A HREF="http://musica.mustdie.ru/ru/band/sinister/">SINISTER</A>. Специальные гости концерта - <A HREF="http://musica.mustdie.ru/ru/band/merlin/">MERLIN </A> и BLUT FORMICARIUM. <BR> Начало концерта в 19:00.<BR> Цена билета в предварительной продаже - 300 рублей, в день концерта - 400 рублей. Билеты продаются в рок-магазинах Москвы и в клубе "Свалка"<BR> Адрес клуба: ул. Профсоюзная, 27/1<BR> Информационная поддержка - <A HREF="http://musica.mustdie.ru">http://musica.mustdie.ru</A></p>
+
+Автор: Dimas
+
+### 27.06.2002 news Hammermusic Fest III
+
+<p>Fatal Ecstasy/ Chaotica представляют:</p>
+<P> 3-я часть Hammermusic Fest при участии голландских ветеранов овербрутального death metal SINISTER!<BR> <IMG SRC="/images/news_rus/2002.06/2891.jpg" ALT="pho" width=150 height=122 hspace="15" vspace="5" border="1" align="right"> 1 июля - Минск - клуб Реактор - 17:00<BR> + ASGUARD (Могилев, melodic death storm) <BR> + FESTERGUTS (Калуга, atmosperic death/black with female vocals)<BR> + RASTA (Гомель, hardcore) <BR> + PSYLOCYBE LARVAE (Выборг, sympho black/death) <BR> + support</>
+<P> Адрес: клуб Реактор, Минск, В.Хорузей, 29. <BR> Цена билетов: с 14.06 по 21.06 - 12.000 и 15.000, с 22.06 по 30.06 - 15.000 и 18.000, в день концерта - 20.000. <BR> Предварительная продажа: Минск - м-н D-Shop (Захарова, 27), муз. павильон на Фрунзенской (М.Танка, напротив Арт-галереи); Могилев - 8 (029) 2767886; Витебск - Железяка (Московский пр-т, напротив ВГУ); Речица - ст-я Paradise (Урицкого); Гомель - ст-я Audiobox (Первомайская, 23); Брест - Moral Insanity Prods.</>
+
+Автор: Dimas
+
+### 02.07.2002 news MassaBrutto Radioshow #86, 1-2 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. DECAPITATED - Mother War (Earache)<BR> 2. SINISTER - Moralistic Suffering (Hammerheart)<BR> 3. THYRANE - Satanist (Woodcut/Radiation/Legacy)<BR> 4. ARISE FROM THORNS - Time Alone (Dark Symphonies)<BR> 5. BRAVE - Spirit (band)<BR> 6. BRAVE - Trapped Inside (Dark Symphonies)<BR> 7. DANSE MACABRE - Danse Macabre [Lonely Puppet mix] (Hammerheart)<BR> 8. AEON - Hell Unleashed (Deathvomit/Necropolis)<BR> 9. LUNATIC GODS - Curse (Shindy Prods)<BR> 10. NECROPHOBIC - Dreams Shall Flesh (Hammerheart)<BR> 11. SUPPOSITORY - Surface (Forensick Music)<BR> 12. REGORGE - Inverted Throat Fuck (Dead Again Recs)<BR> 13. PRIMORDIAL - The Heretics Age (Hammerheart)<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 02.07.2002 news MassaBrutto Radioshow #86, 1-2 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. DECAPITATED - Mother War (Earache)<BR> 2. SINISTER - Moralistic Suffering (Hammerheart)<BR> 3. THYRANE - Satanist (Woodcut/Radiation/Legacy)<BR> 4. ARISE FROM THORNS - Time Alone (Dark Symphonies)<BR> 5. BRAVE - Spirit (band)<BR> 6. BRAVE - Trapped Inside (Dark Symphonies)<BR> 7. DANSE MACABRE - Danse Macabre [Lonely Puppet mix] (Hammerheart)<BR> 8. AEON - Hell Unleashed (Deathvomit/Necropolis)<BR> 9. LUNATIC GODS - Curse (Shindy Prods)<BR> 10. NECROPHOBIC - Dreams Shall Flesh (Hammerheart)<BR> 11. SUPPOSITORY - Surface (Forensick Music)<BR> 12. REGORGE - Inverted Throat Fuck (Dead Again Recs)<BR> 13. PRIMORDIAL - The Heretics Age (Hammerheart)<BR><BR> LABELS, if you want Belarusian metalheads to be acquainted with your releases we recommend you to put MassaBrutto Radioshow address in your promo and mailing lists. <BR><BR> All kinds of quiz actions featuring your products as prizes can be performed in MassaBrutto. You may discuss all conditions with us by using any way of connection.<BR><BR> Nevertheless we live in ex-Soviet state where music piracy dwells, MASSA BRUTTO RADIOSHOW DOESN'T SUPPORT ANY KIND OF MUSIC PIRACY ON PRINCIPLE !!! <BR> So, you may be sure that:<BR> - there wasn't and there won't any of illegal CDs broadcasted within MassaBrutto Radioshow;<BR> - any of official or licensed CDs sent to MassaBrutto will not become the property of music pirates.<BR><BR> If you or someone that you know is in a band that is interested in getting some guaranteed airplay on a radio station in Belarus then all you need to do is to get in contact with us. <BR><BR> If there are any questions - feel free to ask.<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> REQUIRED PROMOS FORMAT: CD, CD-R(for demos, MCs, etc.)<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> PHONES: (10 375) 17 2368450 (Alexander)<BR> (10 375) 17 2397214 (Mikhail) <BR> (10 375) 17 2366517 (Style Radio)<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 08.07.2002 articles О роли женщины в голландском death metal’е
+
+<p><B>SINISTER. Разогрев: BREAKWAR, BLUT FORMICARIUM, MERLIN. Клуб «Свалка», 2 июля 2002 года.</B></p>
+<P> А ведь недурственный был концерт... Казалось бы, что за фигня – будний день, да не просто будний день, а вторник! Организаторы сошли с ума? Возможно. Однако зал был на удивление неплохо заполнен, что для меня было ещё большим сюрпризом, чем сообщение о том, что именитые голландцы обрадуют нас своим появлением именно 2 июля. Речь конечно же о SINISTER. Великое прошлое тамошней сцены осталось в начале-середине девяностых, вместе с почившими в бозе или на неопределённое время впавшими в спячку PESTILENCE, ASPHYX, DEAD HEAD, GOREFEST и ALTAR. Мало кто нашёл в себе силы дожить до наших дней… И что в результате? Множество блэковых команд, пара-тройка достойных новичков (таких как, например, CALLENISH CIRCLE, NECROLOGY и VIRULENT)… а если говорить о ветеранах голландской дэтовой сцены, то на ум приходят одни только SINISTER. Команда, которую трудно назвать классиками жанра – и вместе с тем, команда, определённо заслуживающая уважения. «Честность» и «бескомпромиссность» на протяжении более чем десятка лет… Нечастое это явление в 21-м веке.</>
+<P> Но ближе к делу.</>
+<P>В лучших российских традициях, концерт начался на час позже, - привычное дело для всех московских любителей экстрима. Жаловаться бесполезно. Если что и изменится, то только к худшему. Так что стоим под палящим солнцем, жаримся на 40-градусном зное, пьём пиво и наконец-таки получаем возможность пройти в клуб. Сколько уже было сказано о «Свалке»? Сколько было написано… Владимиру Ильичу и не снилось. На мой чисто субъективный взгляд, место это вполне приемлемо для проведения подобных акций. Security особо не зверствуют, звук нормальный (уж во всяком случае получше, чем в печально знаменитом Р-Клубе), обстановка приятная, цены в баре не по карману разве что нищему студенту-первокурснику родом из Мухосранска. Пиво, кстати, тоже, в отличие в Р-Клубовского, пить можно.</>
+<P> Сказать, что я был удивлён, услышав, ЧТО играет первая команда, значит не сказать ничего. Я то ожидал увидеть и услышать презабавнейшую команду под названием BLUT FORMICARIUM… А услышал вполне техничную, ласкающую ухо, милую помесь angry и death metal’а. Честно говоря, не часто приходится услышать подобное (западные команды в пример приводить не буду – речь-то о России-матушке). Тем более, недурно сыгранное и спет… срычатое, если так можно выразиться. BREAKWAR играли недолго и вскоре уступили сцену блэковой реинкарнации КОРОЛЯ И ШУТА. Нет, ну ей-богу, при взгляде на фронтмена BLUT FORMICARIUM не могу отделаться от ассоциаций с небезызвестным Горшком. Хотел человек из себя выдать зловещего такого блэкаря, а получился неудачно накрасившийся панк. В общем, из разряда, «хотели как лучше…». Музыка, надо отметить, вполне слушатебельна. Нечто на пересечении heavy и gothic / black metal – по крайней мере, судя по тому, что мне удалось расслышать в тот июльский вечер, да на Coronach’овской компиляции. Попытки не просто нормально отыграть свой как бы блэковый сэт, а превратить его в black metal art, да не просто в ‘black metal art’, а в ‘theatrical black metal art’, к сожалению, как терпели крах ранее, так и терпят его сейчас.</>
+<P>MERLIN… А что, собственно, MERLIN? Достаточно старый и всеми уважаемый коллектив, который некоторые почему-то сравнивали с SINISTER. Видать, потому что обе команды нарезают death (даром, что абсолютно разный), да и место фронтменов занимают фронтвуменши. Маша, честно говоря, не впечатлила. Как потом обронил в нашем с ним разговоре Аад (барабанщик SINISTER), «группа неплоха, но мы брутальнее. Вокалистка неплоха, но Рэйчел брутальнее. Да и (рычит) осмысленнее» (sic!). Истинная правда. Если голландцы просто играли, то в поведении MERLIN’ов была какая-то доля наигранности.</>
+<P>Ну и вот, наконец-то, SINISTER. Команда, порядочно начадившая в начале и середине девяностых, и вернувшаяся с новыми силами (читай – с новой вокалисткой и новым гитаристом) уже в 21-ом веке. “Aggressive Measures” не считаем, потому как, несмотря на то, что альбом был очень и очень хорош, SINISTER тогда вели себя как-то уж слишком тихо. Как будто группы вообще не существовало… что, кстати, в 97-99 годах было весьма близко к правде.</>
+<P> Однако сейчас команда живее всех живых – и прошедший концерт тому наглядное подтверждение. Я ожидал услышать гроулинг значительно более слабый, нежели присутствующий на “Creative Killings”. Ан нет, Рэйчел и живьём ревёт так, что мало не покажется. Если представители большинства как российских, так и западных дэтовых формаций слышали ЭТО вживую… им должно быть стыдно за своих вокалистов. Другое дело, что иногда создавалось впечатление, будто без дополнительной техники здесь не обошлось… По сведениям из достоверных источников ;-), так оно и было. Однако Рэйчел в любом случае очень недурна. Как вокалистка, само собой. Что касается мужиков, то очень хочется сказать, что они-де молодцы и без всяких проблем оттрубили свой сет. Сказать-то хочется, да только вот не можется. Барабанщик не из лучших – впрочем, раздражала не столько его кривая игра, сколько звук барабанов… да и звук вообще. Я уж не знаю, кто в тот вечер сидел за пультом, но этому человеку определённо надо было надавать по шее за такое издевательство над бедными ушками присутствовавших в зале. На Metal Agen’овском фесте звук был значительно лучше, ей-богу. Возвращаясь непосредственно к выступлению голландцев, можно добавить лишь то, что: во-первых, были сыграны вещи с большинства альбомов. Во-вторых, старый добрый death metal ЭТО уже мало напоминало. Скорее, брутальнейший death / grind. Впрочем, для тех, кто до концерта успел ознакомиться с последним блинов SINISTER’ов, вряд ли это явилось неожиданностью. Скажу лишь, что даже вещи с “Creative Killings” на концерте звучали более брутально, нежели на диске. Плюс ли это или минус? Несомненно плюс. И, в-третьих, изрядно удивил, а затем порадовал Паскаль – новый гитарист группы, недавно сменивший «долгожителя» Барта. Задолго до начала выступления собственной команды этот молодец вышел на балкон клуба, где с удовольствием общался с простым народом… и пил. Пил, пил, и ещё раз пил. Через некоторое время начало казаться, что если он и появится на сцене, то разве что ползком и играть уж точно не будет. Но – появился, и на своих двоих. И не только появился, но играл. И неплохо, заметьте, играл. Вот уж кто удивил, так удивил. Хотя, сами понимаете, "неплохо" и "хорошо" – две большие разницы.</>
+<P> Но вот и всё. Концерт окончен, и усталые музыканты отправляются в гримёрку. Именно в ней и около неё мне удалось перекинуться парой слов с барабанщиком Аадом и басистом Алексом. Начали, естественно, с того, каким ветром в дэтовую группу занесло хрупкую девушку. Ответ оказался до безобразия прост. По словам Алекса, выбирали по принципу "лучшее – враг хорошего". Хотя ребята поначалу тоже сомневались в способностях Рэйчел – несмотря на достаточно успешную "карьеру" в дэтовой PATHOLOGY и блэковом OCCULT – и решили оставить её напоследок, предварительно дав шанс двенадцати парням. Однако жизнь в очередной раз показывает, что 13-й номер – счастливый. Двенадцати парням выдали по бутылке пива, дабы не повесились с горя, а Рэйчел стала вокалисткой SINISTER. К слову, на момент принятия в группу, она ещё оставалась членом (членшей?) OCCULT. На банальный вопрос, а не возникло ли проблем с коллегами по цеху, последовал банальный ответ, что SINISTER и OCCULT до сих пор частенько играют на одной сцене и никаких трений между группами и в помине нет. Странно лишь то, с какой легкостью голландские блэкари, с недавних пор ставшие трэшевиками, отпустили такое сокровище. Может потому, что, как сказал мне Аад, они знали как Рэйчел так и остальных "оккультистов" много-много лет?</>
+<P> Кстати, забавно, но факт: когда я осведомился у Аада, знает ли какие-либо другие дэтовые команды с женщиной-вокалисткой, барабанщик лишь помотал головой. Интересно, а как же MERLIN, PATHOLOGY и тот же OCCULT? Ну да ладно, проехали.</>
+<P> Может, тогда скажете мне, многоуважаемый Аад, сколько лет упорного труда надо рядовой девушке, дабы просто глотку превратить в глотку лужёную?</>
+<P>И тут Аад повергает меня в некоторый шок: "Насколько я знаю, она занимается этим уже около 15 лет". Чёрт возьми, а мадам чертовски хорошо сохранилась!</>
+<P>Но это всё ещё только цветочки… Ягодки пошли, когда я, продолжая пахать на ниве банальных вопросов, поинтересовался, правда ли, что Рэйчел обвенчана или даже жената на ком-то из музыкантов SINISTER?</>
+<P> "Верно", - бодренько отвечает Алекс. "Она бойфрэнд нашего барабанщика".</>
+<P>Батюшки мои, а я, дурья башка, всё думал, как женщина может так зверски реветь! Впрочем, Алекс, видя мою реакцию, быстренько поправляется: "Э-э, в смысле гёрлфрэнд".</>
+<P>Что ж, перейдём-ка мы на нейтральные темы. Был ли этот концерт частью европейского тура? Аад: "О нет. Вчера мы играли в Минске, а два дня назад отыграли в Польше. Так что это третий и последний наш концерт на данном промежутке времени. Завтра мы возвращаемся домой, а в европейский тур отправляемся лишь этой осенью, скорее всего в октябре – вместе с американцами из NILE. Колесить по Европе мы будем где-то четыре недели и, честно говоря, я с нетерпением жду этого момента! Кстати, это не значит, что до октября мы будем прохлаждаться дома, нет. В августе мы едём в Португалию, где примем участие в большом Лиссабонском metal-фесте".</>
+<P>А кто, после ухода Барта, ответственен за музыку, и что там слышно с новым альбомом? Видимо, Алекс уже не раз отвечал на такие вопросы, и поэтому не менее бодренько выдаёт заготовленные фразы: "Всё очень просто. Мы собираемся записывать новый диск в декабре, а над музыкой будем работать все вместе. В этом смысле мы очень рады тому, что Паскаль теперь один из нас, так как он полон идей, и вполне возможно львиная доза вещей на новом альбоме будет его авторства. В принципе, и мы с Аадом постоянно работаем над новым материалом, однако мне приходиться пахать сразу на два фронта – я ведь ещё играю и с HOUWITSER. Кстати, возможно ты будешь удивлён, но в процессе сочинительства также участвует и бывший член группы Рон. Если помнишь, он присутствовал на "Cross The Styx". Теперь он снова с нами, однако только лишь в студии. На сцене он вряд ли когда появится – по крайней мере, в составе SINISTER".</>
+<P> "Для нового альбома уже готово полно материала, но не ждите откровений. Это будет типичный SINISTER. Никаких новшеств, никаких отличий", - добавляет Аад.</>
+<P>Ага, понятно. Шаг влево, шаг вправо карается расстрелом.</>
+<P>А что же HOUWITSER? Так ли важна для тебя эта группа, интересуюсь я у Алекса.</>
+<P> "Обе группы для меня одинаковы важны. По крайней мере, если сравнивать время, которое я посвящаю HOUWITSER, и время, которое я посвящаю SINISTER. Другое дело, что SINISTER – команда значительно более известная и… раскрученная что ли. Так что если учитывать этот момент, то SINISTER, наверное, будет малость поважнее".</>
+<P>Закрывая тему сочинительства и распределения ролей в группе, намекаю Алексу на то, что неплохо было бы сказать пару слов о лирике. Ведь он и никто иной ответственен за текстовую часть. "В случае с "Hate" и "Diabolical Summoning" это было нечто оккульто-подобное, однако на данный момент для меня куда важнее более реалистичные тексты. Я беру жестокий мир людей, что называется, за основу, на которой в дальнейшем и строю свою лирику. Тексты, представленные на "Creative Killings" – тому наглядный пример. Моя лирика достаточно проста, но в то же время надо учесть, что я пишу её с некоторой долей абстракционизма. И как результат, люди интересуются: "Слушай, а в этой песне ты хотел рассказать о том, или об этом?" Когда я вижу, что разные люди по разному воспринимают и понимают мои тексты, я счастлив. Вот что для меня наиболее важно. К слову, я на дух не переношу хардкоровые команды, которые в своих песнях или дают чёткий призыв к действию, или прямо говорят, что, на их взгляд, хорошо, а что плохо, и blah-blah-blah. Соответственно, слушателю подаётся уже в некотором роде разжёванный продукт. Вот чем-чем, а этим я бы никогда не хотел заниматься". Но вернёмся к Ааду. Что ты думаешь насчёт достаточно распространённого в наши дни мнения, - говорю я, глядя на его измученное лицо и понимая, что это наверняка последний вопрос, - согласно которому с дэтовых групп, известных своей яркой антихристианской направленностью по умолчанию срывается ярлык "death metal", взамен которого наклеивается… "black metal"? Из разряда, "DIMMU BORGIR у нас будет попсой, а вот зато DEICIDE – тру-блэком"?!</>
+<P>Аад делает задумчивое лицо и с некоторым сомнением выдаёт: "Ну, я не знаю. Мы все занимаемся той музыкой, которая нам нравится, и на наш взгляд, это чистейшей воды death metal. Кто-то, конечно, может думать по-другому… То, что ты сказал, наверное, в первую очередь касается текстов, а никак не музыки. Мне, честно говоря, плевать на black metal. Наш бывший вокалист наверняка мог бы тебе много чего рассказать на эту тему, благо он был большим поклонником такой музыки, но на то он и бывший… Мне нравятся некоторые группы, такие как, например, DIMMU BORGIR и IMMORTAL, но это по-моему уже немного не black metal. А вообще, мне по душе лишь брутальный дэт – вот это действительно моя музыка. Музыка, которую я слушаю, и музыка, которую я играю".</>
+
+Автор: Kai Mathias Stalhammar
+
+### 09.07.2002 news MassaBrutto Radioshow #88, 8-9 Jul 2002.
+
+<p>Playlist:<BR><BR> 1. SCARIOT - Death Request (band)<BR> 2. ENTHRONED - The Face Of Death (Blackend)<BR> 3. SINISTER - Sacramental Carnage (Nuclear Blast)<BR> 4. SINISTER - Creative Killings (Hammerheart)<BR> 5. SINISTER - Storm In My Mind [by POSSESSED] (Hammerheart)<BR> --- --- --- --- --- --- --- --- --- ---<BR> новости от Михаила Василькова<BR> --- --- --- --- --- --- --- --- --- ---<BR> 6. IMPIOUS - Dead Eyes Open (Hammerheart)<BR> 7. SINISTER - Sadistic Intent (Nuclear Blast)<BR> 8. SINISTER - Corridors To The Abyss (Nuclear Blast)<BR> 9. CRYHAVOC - Cryscythe (Spinefarm/Nuclear Blast/Legacy)<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto</p>
+
+Автор: Yermola
+
+### 09.07.2002 news MassaBrutto Radioshow #88, 8-9 Jul 2002.
+
+<p>Playlist: <BR><BR> 1. SCARIOT - Death Request (band)<BR> 2. ENTHRONED - The Face Of Death (Blackend)<BR> 3. SINISTER - Sacramental Carnage (Nuclear Blast)<BR> 4. SINISTER - Creative Killings (Hammerheart)<BR> 5. SINISTER - Storm In My Mind [by POSSESSED] (Hammerheart)<BR> 6. IMPIOUS - Dead Eyes Open (Hammerheart)<BR> 7. SINISTER - Sadistic Intent (Nuclear Blast)<BR> 8. SINISTER - Corridors To The Abyss (Nuclear Blast)<BR> 9. CRYHAVOC - Cryscythe (Spinefarm/Nuclear Blast/Legacy)<BR><BR> RADIOSTATION: Style Radio<BR> WAVES: 101,2 FM<BR> BROADCASTING AREA: Belarus<BR> SHOW NAME: MassaBrutto<BR> SHOWS TIME: 1. Monday-Tuesday midnight (Belarusian time) <BR> 2. Friday 10:00 PM (22:00) (Belarusian time)<BR> SHOWS ON AIR: 1 hour each show<BR> DJs: Alexander Litvinski and Mikhail Vasilkov<BR> REQUIRED PROMOS FORMAT: CD, CD-R(for demos, MCs, etc.)<BR> CONTACT: c/o Alexander Litvinski,<BR> PO Box 417,<BR> 220050 Minsk-50,<BR> BELARUS,<BR> CIS<BR><BR> E-MAIL: massabrutto@tut.by</p>
+
+Автор: Yermola
+
+### 13.09.2002 news Second studio album from Norway’s’ MYRKSKOG....
+
+<p>Second studio album from Norway’s’ MYRKSKOG, who are fast becoming THE most talked about extreme metal combo on the planet after their debut “ Death Machine” grabbed and smashed everyone’s attention. Two years plus on the band have turned in one of the most highly charged and powerful heavy death/extreme metal releases in the history of extreme music.<BR><BR> From the opening salvo of “Domain Of The Superior” to “Over The Gore” the sheer speed and power of the music has to be heard to be believed, with some of the fastest and most brutal drumming ever laid down in a recording studio. With a full European Tour confirmed with Relapse favorites NILE, the time has come for MYRKSKOG to take the extreme metal crown.<BR><BR> Myrkskog tour dates:<BR><BR> NIILE - SINISTER - NO RETURN - MYRKSKOG – EKTOMORF<BR><BR> 02.10.2002. UK LONDON / MEAN FIDDLER *<BR> 03.10.2002. UK PLYMOUTH / JONGLEURS *<BR> 04.10.2002.IRL DUBLIN / EAMON DORANS *<BR> 05.10.2002. UK BRADFORD / RIO *<BR> 06.10.2002. UK MILTON KEYNES - PITZ *<BR> 08.10.2002. FR PARIS / LA LOCOMOTIVE<BR> 09.10.2002. FR AMNEVILLE / AFTER CLUB<BR> 10.10.2002. D ESSEN / ZECHE CARL<BR> 11.10.2002. NL ROTTERDAM / BAROEG<BR> 12.10.2002. BL VOSSELAAR / BIEBOB<BR> 13.10.2002. NL DEN BOSCH / WILLEM II<BR> 15.10.2002. FR MARSEILLE / MIRABEAU<BR> 16.10.2002. FR PERPIGNAN / CROCK-MORE<BR> 17.10.2002. SP IRUN / TUNK<BR> 18.10.2002. SP BARCELONA / LA CAPSA<BR> 19.10.2002. SP MADRID / RITMO & COMPAS<BR> 20.10.2002. SP MURCIA / GAMMA<BR> 21.10.2002. FR TRAVEL DAY<BR> 22.10.2002.ITA CESENA / VIDIA<BR> 23.10.2002.CH PRATELLN / Z7<BR> 24.10.2002. A VIENNA / ARENA<BR> 25.10.2002. CZ BRNO / BABYLON<BR> 26.10.2002. PL KATOWICHE / MYSTIC FESTIVAL<BR> 27.10.2002. D ZWICKAU / ALARM<BR> 28.10.2002. D BERLIN / KNAACK<BR> 29.10.2002. D HAMBURG / MARKTHALLE<BR> * ONLY NILE – SINISTER<BR><BR> In the US, Superior Massacre is slated for release September 17. Already it is causing quite a stir. Radio stations are anticipating this record as fans. "A heaving and devastating portrayal, filled with surging and crushing power that is destined to obliterate all in its path through this massive death metal pilgrimage…” says Brave Words & Bloody Knuckles! Watch out for this album may just slap you in the face if you’re not careful!</p>
+
+Автор: Yermola
+
+### 04.01.2003 news Sinister собираются в студию
+
+<p>Sinister отправятся в студию 21 января писать новый альбом "Savage or Grace?" В записи примет участие бывший ранее в составе Sinister гитарист Ron van der Polder. Тем не менее, это не означает его возвращения в группу в качестве постоянного участника. Pascal Grevinga продолжит играть на концертах. Новые песни по замыслу группы должны быть экстремальными, быстрыми и техничными, в стиле дебютного альбома "Cross The Styx". Известны названия нескольких песен: "Savage or Grace?", "Dominion", "Collapse Rewind", "Righteous Indignations", "The Age of Murder". 12 мая альбом выйдет на Nuclear Blast, после чего состоится новый тур.</p>
+
+Автор: Morsus
+
+### 25.08.2003 news SINISTER have parted ways with guitarist and bassist ...
+
+<p>Long-running Dutch death metallers SINISTER have parted ways with guitarist Pascal Grevinga and bassist Alex. Ron van de Polder, who was involved in the songwriting process for 1992's Cross The Styx and this year's Savage Or Grace, has been named the group's permanent guitarist. Polder, singer Rachel Heyzer and drummer Aad Kloosterwaard have already started composing material for their next studio album, Heaven Termination, tentatively due in early 2004. <BR><BR> In addition, the trio recently formed a "sick death metal" side project called INFINITE HATE, which has completed an album's worth of songs for an as-yet-undetermined label. <BR><BR> Among the tracks set to appear on INFINITE HATE's debut CD are the following: <BR><BR> 01. Haunting Noises<BR> 02. Bound By Hate<BR> 03. Arrival Of Doom<BR> 04. Dreadful Gore<BR> 05. Built For The Kill<BR> 06. Primitive Butchery<BR> 07. Tribute To The Dead<BR> 08. Terminal Conclusion</p>
+
+Автор: Yermola
+
+### 25.08.2003 news SINISTER лишились басиста и гитариста...
+
+<p>Старые голландские перцы SINISTER лишились гитариста Pascal Grevinga и басиста Alex Ron van de Polder, которые находились в группе с 1992 года (оба участвовали в сочинении и записи Cross The Styx).<BR><BR> Сейчас гитарист Polder, вокалистка Rachel Heyzer и барабанщик Aad Kloosterwaard заняты сочинением материала для следующего студийного альбома "Heaven Termination" (должен выйти в начале 2004).<BR><BR> Кроме того оставшееся трио сформировало побочный дэт-металл проект INFINITE HATE, который подготовил к изданию дебютный опус. Трек-лист дебютника: <BR><BR> 01. Haunting Noises<BR> 02. Bound By Hate<BR> 03. Arrival Of Doom<BR> 04. Dreadful Gore<BR> 05. Built For The Kill<BR> 06. Primitive Butchery<BR> 07. Tribute To The Dead<BR> 08. Terminal Conclusion</p>
+
+Автор: Yermola
+
+### 21.04.2004 news SINISTER распались!!!
+
+<P>Голландская death-metal формация <B>SINISTER</B> официально объявила о своём распаде. В своём официальном заявлении барабанщик и основатель группы <B>Aad</B> сообщил, что устал играть на барабанах, совмещая это с другой своей работой. Он подумывал стать вторым вокалистом в своей группе, но, к сожалению, не может представить другого музыканта за барабанной установкой.&nbsp;(RIP)</P>
+Автор: Vit Belov
+
+### 31.03.2005 news Слухи о возрождении SINISTER
+
+<P>Согласно голландскому изданию <STRONG>Rockezine</STRONG>, легендарные дэтстеры <STRONG>SINISTER</STRONG> готовы к скорому воссоединению. По информации журналистов, состав группы будет таким: <STRONG>Aad Kloosterwaard</STRONG> (vocals), <B>Paul Beltman</B> (drums, ex-<B>JUDGEMENT DAY</B>)&nbsp;и <B>Alex Paul</B> (bass/guitar). В ближайшее время новообразованный коллектив может записать альбом для <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.04.2005 news SINISTER официально возродились
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SINISTER</STRONG> официально перешли в рабочее состояние. "<EM>Мы получали множество писемп от поклонников по всему миру</EM>", - пишет группа на своём официальном сайте. Возрождение состоялось не по привычному пути! Основатель <STRONG>SINISTER</STRONG> и барабанщик <STRONG>Aad Kloosterwaard</STRONG> стал новым вокалистом,<STRONG>&nbsp;Alex Paul</STRONG>&nbsp;стал гитаристом и остался басистом, также в группе появился новый член - барабанщик <STRONG>Paul Beltman</STRONG>. Нововозрождённые уже планируют новый альбом для <STRONG>Nuclear Blast</STRONG>.</FONT></P>
+<P>От себя отмечу, что ушла девушка-вокалистка <STRONG>Rachel</STRONG>, которая могла стать "яблоком раздора" в "прошлом" <STRONG>SINISTER</STRONG>.</P>
+Автор: Vit Belov
+
+### 06.02.2006 news Новый SINISTER в апреле
+
+<P>7 апреля на <STRONG>Nuclear Blast</STRONG> выходит новый альбом вновь собравшихся <STRONG>SINISTER "Afterburner</STRONG>".</P>
+Автор: Vit Belov
+
+### 14.04.2006 news SINISTER сочиняют новый материал
+
+<P>Реформировавшиеся недавно голландские дэтстеры <STRONG>SINISTER</STRONG> не успели только что на <STRONG>Nuclear Blast Records</STRONG> выпустить свой новый альбом <STRONG>"Afterburner"</STRONG>, как уже принялись за сочинение новых вещей для следующего альбома с рабочим названием <STRONG>"No Mercyful God"</STRONG>.<BR></P>
+Автор: Dimas
+
+### 04.08.2006 news Новые двд от Metal Mind
+
+<P>Польский лейбл <STRONG>Metal Mind Productions</STRONG> анонсировал выпуск в ноябре четырех летних шоу состоявшихся в Кракове. Каждое из них выйдет отдельным изданием с дополнениями и прилагаемым аудиодиском. Список:</P>
+<P><STRONG>Obituary –&nbsp;пока не имеет названия&nbsp;</STRONG></P>
+<P><STRONG>Sinister - Prophecies Denied </STRONG></P>
+<P><STRONG>Grave – Enraptured </STRONG></P>
+<P><STRONG>Catamenia – Bringing The Cold To Poland</SPAN></STRONG> </P>
+<P></P>
+Автор: Dimas
+
+### 29.08.2006 news Подробности двд-релиза от SINISTER
+
+<P>Стали известны подробности грядущего двд-релиза голландских дэтстеров <STRONG>SINISTER</STRONG>. В двд под названием <STRONG>"Prophecies Denied"</STRONG> войдут съемки варшавского концерта группы, состоявшегося 24 августа. Он&nbsp;увидит свет в ноябре на <STRONG>Metal Mind Production</STRONG>&nbsp;в двух форматах: обычный двд и лимитированный двойник с бонусным аудиодиском. Трек-лист:</P>
+<P><IMG height=426 alt="" hspace=15 src="/images/news_rus/2006.08/10649.jpg" width=300 align=left border=0>1. <B>Intro 1</B> <BR>2. <B>Bleeding towards the Wendigo</B> <BR>3. <B>Epoch of Denial</B> <BR>4. <B>The Grey Massacre</B> <BR>5. <B>Sadistic Intent</B> <BR>6. <B>Into the Forgotten</B> <BR>7. <B>Men Down</B> <BR>8. <B>Barbaric Order</B> <BR>9. <B>Intro 2</B> <BR>10. <B>Enslave the Weak</B> <BR>11. <B>Altruistic Suicide</B> <BR>12. <B>Afterburner</B> <BR>13. <B>Intro 3</B> <BR>14. <B>Cross the Styx</B> <BR>15. <B>To Mega Therion</B></P>
+Автор: Dimas
+
+### 16.10.2006 news Тур SINISTER
+
+<P>Анонсированный тур <STRONG>SINISTER</STRONG> по России и странам СНГ отменён. Причины не сообщаются.&nbsp;</P>
+Автор: Vit Belov
+
+### 03.12.2007 news SINISTER на Massacre
+
+<P><STRONG>SINISTER</STRONG> подписали контракт с <STRONG>Massacre</STRONG> после 15-летнего пребывания на <STRONG>Nuclear Blast</STRONG>. Новый альбом группы <STRONG>'The Silent Howling' </STRONG>выйдет осенью 2008 года, а запись его начнётся в мае. Вот названия нескольких песен: <STRONG>'The Silent Howling'</STRONG>, <B>'If It Bleeds...'</B>, <B>'The Kill To Come'</B>&nbsp;и <B>'Fortified Bravery'</B>.<BR></P>
+Автор: Vit Belov
+
+### 15.02.2008 news Новый SINISTER
+
+<IMG height=201 alt="" hspace=0 src="/images/news_rus/2008.02/12253.gif" width=200 align=left border=5>Новый альбом <STRONG>SINISTER</STRONG> <STRONG>"The Silent Howling"</STRONG> выходит 26 сентября на <STRONG>Massacre</STRONG>.
+Автор: Vit Belov
+
+### 22.04.2008 reviews Дебютный DVD мог бы быть и поубедительнее
+
+<P>Голландские дэтстеры Sinister были еще одной группой, выступавшей 24 августа 2006-го года в варшавском клубе Stodola, после чего и был выпущен их первый DVD под названием "Prophecies Denied".&nbsp;В концертный материал вошли, не считая&nbsp;трех intro, 12 песен с альбомов "Cross The Styx", "Diabolical Summoning", "Hate", "Aggressive Measures", "Creative Killings", "Savage Or Grace" и "Afterburner" (больше всего,&nbsp;4). Скажу сразу, по сравнению с Grave, которые выступали в тот же вечер в этом клубе, Sinister смотрятся и слушаются весьма посредственно. Да и звук, по всей видимости, так и не смогли им хорошо отстроить, порой звучит какая-то каша, что при подобной музыке - большой минус. На ударных здесь играет Paul Beltman, которого в настоящий момент уже в группе нет. Не впечатляет и вокал от Aad Kloosterwaard - ничего своего, как-то одинаково и безлико. Раздел "Extras" предназначен, как всегда, для фанатов. Интервью, дискография, биография (также отдельно по каждому участнику Sinister), "обои" для десктопа, веб-ссылки, фотогалерея (также фото бейджей с различных концертов, где группа принимала участие) и, естественно, бонус-видео, состоящее из минут примерно 15-20 туровых любительских съемок (совершенно неинтересно сделанных) и нескольких номеров с концертов в Хорватии, Германии и Чехии. Поклонники голландского коллектива могут также поохотиться за изданием в формате DVD+CD, а всем остальным и обычного варианта более чем достаточно, который лучше всего смотреть с помощью перемотки. Не очень убедительный получился дебют у Sinister, но группе и так пришлось несладко в последние годы: реюньон, смены состава, смена лейбла. Так что будем надеяться, что они найдут в себе силы выпустить следующий DVD на более высоком уровне.</P>
+<P>Альбом предоставлен компанией "СД-Максимум"</P>
+Автор: Ixtiandr
+
+### 15.08.2008 news Новый материал SINISTER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новую песню <STRONG>SINISTER</STRONG> можно послушать на страничке <STRONG>MySpace Massacre Records</STRONG>. Трэк попадёт на новый альбом группы "<STRONG>The Silent Howling</STRONG>", выходящий на этом лэйбле 22 августа.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ссылка: <A href="http://www.myspace.com/massacrerecordseurope">http://www.myspace.com/massacrerecordseurope</A></FONT></P>
+Автор: Vit Belov
+
+### 07.10.2008 reviews SINISTER всё ещё ищут
+
+<P>Творческие экзерсисы голландской death-metal бригады SINISTER в последние годы не представляют ураганного интереса для «слушающей» публики. Группа отчаянно пыталась в последнее десятилетие доказать себе, что она не зря существует на свете. Сначала ребята взяли на вокал девушку, что в то время было достаточно необычным явлением. Видимо, не прокатило. Потом SINISTER уходили с Nuclear Blast, снова возвращались, но и эти поступки не увеличили ни продажи, ни популярность голландцев. Оставалось последнее средство — распасться. Распались, затем, «по просьбам зрителей», вернулись. Это тоже не помогло. И свой второй после ре-юниона альбом «The Silent Howling» SINISTER вновь выпускают не на Nuclear Blast.</P>
+<P>Понятно, что такому имени не могли дать упасть слишком низко. Новое местообитание SINISTER — популярный лэйбл Massacre. Это всё была прелюдия. Новый альбом группы заслуживает отдельного рассказа. Не могу сказать, что я стал фанатом обозреваемой пластинки, но SINISTER явно попытались выйти за рамки, удивить и.т.д. Начинается работа с энергичного и техничного запила, затем голландцы выдают нечто мелодичное, потом атмосферное, потом вновь брутальное, вновь мелодичное... Интересно, что слушается этот коктейль вполне приятно. Естественно «The Silent Howling» нельзя однозначно отнести к определённому стилю death-metal, и это сыграет свою роль в его продажах. Все эти проигрыши на акустических гитарах не смогут понравиться тру-фэнам. Нам же, людям с неопределённой металлической ориентацией, подобные вещи могут и полюбиться. </P>
+<P>«The Silent Howling» мне скорее понравился, чем нет. К сожалению, я не могу назвать себя ярым поклонником современного творчества SINISTER, но попробовать этот диск некоторым может быть полезно.</P>
+Автор: Vit Belov
+
+### 10.03.2010 news SINISTER войдут в студию
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>SINISTER</STRONG> запланировали студийное время на 16 октября этого года. Группа войдёт в студию <STRONG>Soundlodge </STRONG>в немецком Раудерфене и запишет новый альбом с ориентировочным названием <STRONG>"Legacy of Ashes". </STRONG>Пластинка выйдет в начале 2011 года на <STRONG>Massacre Records</STRONG>. Голландцы обещают самый брутальный и быстрый альбом в истории.</FONT></P>
+Автор: Vit Belov
+
+### 02.10.2010 news Обложка нового SINISTER
+
+<P>Новый альбом<STRONG> SINISTER</STRONG> <STRONG>"Legacy of Ashes" </STRONG>выйдет 10 декабря на <STRONG>Massacre Records</STRONG>. Пластинка была записана в <STRONG>Soundlodge</STRONG> studios с продюсером <STRONG>Jorg Uken</STRONG> (<B>GOD DETHRONED</B>, <B>OBSCENITY</B>). Обложку этой работы можно посмотреть ниже.</P>
+<P><center><IMG height=401 src="/images/news_rus/2010.10/17323.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 14.11.2010 news Трэк-лист нового SINISTER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=401 alt="" hspace=0 src="/images/news_rus/2010.11/17589.jpg" width=400 align=right border=5>Новый альбом<STRONG> SINISTER</STRONG> <STRONG>"Legacy of Ashes" </STRONG>выйдет 17 декабря на <STRONG>Massacre Records</STRONG>. Пластинка была записана в немецкой студии <STRONG>Soundlodge </STRONG>с продюсером <STRONG>Jorg Uken</STRONG> (<B itxtvisited="1">GOD DETHRONED</B>, <B itxtvisited="1">OBSCENITY</B>). Группа обещает самый брутальный альбом в своей истории. Трэк-лист:</FONT></P>
+<P>01. <B itxtvisited="1">Herd Of Damnation</B> (intro) <BR itxtvisited="1">02. <B itxtvisited="1">Into The Blind World</B> ' <BR itxtvisited="1">03. <B itxtvisited="1">The Enemy Of My Enemy</B> <BR itxtvisited="1">04. <B itxtvisited="1">Anatomie Of A Catastrophe</B> <BR itxtvisited="1">05. <B itxtvisited="1">The Sin Of Sodomy</B><BR itxtvisited="1">06. <B itxtvisited="1">Legacy Of Ashes</B> <BR itxtvisited="1">07. <B itxtvisited="1">The Hornet's Nest</B> <BR itxtvisited="1">08. <B itxtvisited="1">Righteous Indignations</B> <BR itxtvisited="1">09. <B itxtvisited="1">The Living Sacrifice</B> </P>
+<P>На лимитированное издание пластинки попадёт 4 бонус-трэка. </P>
+Автор: Vit Belov
+
+### 12.12.2010 news Новая песня SINISTER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом<STRONG> SINISTER</STRONG> <STRONG>"Legacy of Ashes" </STRONG>выходит на следующей неделе на <STRONG>Massacre Records</STRONG>. Заглавную песню с этого альбома можно послушать ниже.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<DIV><EMBED id=FlashDiv style="DISPLAY: inline" src=http://lads.myspace.com/Embeds/SongEmbed/SongEmbed.swf width=400 height=77 type=application/x-shockwave-flash quality="high" wmode="transparent" FlashVars="songId=77705852&pid=-6042600562563164031" AllowScriptAccess="always">&nbsp;</DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 08.01.2011 news Эксклюзивный бокс SINISTER от Metal Mind Productions
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18088.jpg" width=350 height=313>Польский лейбл&nbsp;<B itxtvisited="1">Metal Mind Productions</B> выпустит эксклюзивный бокс, содержащий полную дискографию одной из лучщих дес-металличских групп - голладцев <B itxtvisited="1">SINISTER</B> — 14 февраля в Польше, 21 февраля в Европе и 5 апреля в С.Ш.А. </P>
+<P>Названный <B itxtvisited="1">"Altered Since Birth"</B>, бокс будет содержать восемь студийных альбомов (с бонусами), концертный DVD "<STRONG>Prophecies Denied</STRONG>", сборник с демо треками,&nbsp;а так же,&nbsp;буклет, включающий в себя биографию группы, основанную на эксклюзивном интервью, полную дискографию <STRONG>SINISTER</STRONG>,&nbsp;тексты всех песен и архивные фотографии группы.&nbsp;&nbsp;Авторство обложки принадлежит хорошо известному польскому графическому дизайнеру по имени <B itxtvisited="1">Graal</B>.</P>
+Автор: Headcrusher
+
+### 25.02.2011 reviews Бессребреники от death-metal
+
+<P>Лидер SINISTER Aad Kloosterwaard – настоящий “маньяк death-metal”. У других участников голландской группы постепенно падал интерес к происходящему. Снижающиеся продажи, переходы с лэйбла на лэйбл, робкие попытки привлечь поклонников рычащей девушкой, серия не слишком удачных пластинок – всё это не добавляло оптимизма взрослым мужикам с гитарами. В итоге SINISTER развалились в 2003 году, но Aad не cмог это терпеть долгое время. В 2005 он сам решил рычать в микрофон и собрал новый состав. “Legacy Of Ashes”, вышедший в конце прошлого года, уже третий полноформатный альбом после воссоединения.</P>
+<P>Как и следует подобным людям, голландцы не выдумывают в своей музыке ничего нового. Матёрые «олдскульные» вещи, которые в самом начале довольно сложно слушать. Кажется, что ты попал в настолько далёкое прошлое, что даже уже и не помнишь в какое. Среднетемповый и бескомпромиссный материал достаточно скучен, но он завораживает своей «трушностью», прущей изо всех щелей. В принципе очень многие пластинки из первой половины 90-х годов в стиле death-metal сейчас производят такое впечатление. Aad и компания любят то, что они играют, и только ради этого стоит оставаться на сцене, когда все остальные возможные перспективы угасли.</P>
+<P>SINISTER представляют материал для ностальгирующей публики. Вряд ли у альбома голландцев будут поклонники моложе 30 лет, но зато те, кто не признаёт нынешней техничности и мелодичности в death-metal, останутся очень довольны.</P>
+Автор: Vit Belov
+
+### 23.05.2011 news Aad Kloosterwaard опять остался без музыкантов
+
+<P><FONT color=#ffffff><STRONG>SINISTER </STRONG>покинули все музыканты кроме вокалиста <STRONG>Aad Kloosterwaard. </STRONG>Гитарист<STRONG> Alex Paul</STRONG>,&nbsp;барабанщик <STRONG>Edwin van den Eeden</STRONG> и басист <STRONG>Joost van der Graaf</STRONG> ушли без объяснения причин. Оставшийся вокалист уже сообщил, что ищет новый состав.</FONT></P>
+<P><center><IMG height=266 src="/images/news_rus/2011.05/19520.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 27.05.2011 news SINISTER уже объявили состав
+
+<P><IMG height=265 alt="" hspace=0 src="/images/news_rus/2011.05/19524.jpg" width=321 align=right border=0>Вокалист <STRONG>Aad Kloosterwaard </STRONG>объявил новый состав<STRONG> SINISTER</STRONG> уже через несколько дней после ухода всех музыкантов. В новую группу вошли:</P>
+<P>* <B>Aad Kloosterwaard</B> - Vocals<BR>* <B>Toep Duin</B> (ex-SUPREME PAIN, GODMODE) - Drums<BR>* <B>Bastiaan Brussaard</B> (SUPREME PAIN) - Guitar<BR>* <B>Dennis Hartog</B> (GODMODE) – Bass/Guitar</P>
+<P>Лидер группы уже сообщил, что работает над новым альбомом, который получил название <STRONG>'The Carnage Ending'</STRONG>.</P>
+Автор: Vit Belov
+
+### 29.04.2012 news Новый альбом SINISTER
+
+<P><IMG height=477 alt="" hspace=0 src="/images/news_rus/2012.04/23670.jpg" width=475 align=right border=0>Новая работа<STRONG> SINISTER "The Carnage Ending"</STRONG> выходит летом на <STRONG>Massacre Records</STRONG>. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="47">Defamatory Content</B><BR itxtNodeId="46">02. <B itxtHarvested="0" itxtNodeId="45">Regarding The Imagery</B><BR itxtNodeId="44">03. <B itxtHarvested="0" itxtNodeId="43">The Carnage Ending</B><BR itxtNodeId="42">04. <B itxtHarvested="0" itxtNodeId="41">Transylvania (City Of The Damned)</B><BR itxtNodeId="40">05. <B itxtHarvested="0" itxtNodeId="39">My Casual Enemy</B><BR itxtNodeId="38">06. <B itxtHarvested="0" itxtNodeId="37">Crown Of Thorns</B><BR itxtNodeId="36">07. <B itxtHarvested="0" itxtNodeId="35">Blood Ecstasy</B><BR itxtNodeId="34">08. <B itxtHarvested="0" itxtNodeId="33">Unheavenly Domain</B><BR itxtNodeId="32">09. <B itxtHarvested="0" itxtNodeId="31">The Final Destroyer</B><BR itxtNodeId="30">10. <B itxtHarvested="0" itxtNodeId="29">Oath Of Rebirth</B></P>
+<P>Также группа записала пять кавер-версий для бону-диска, которым будет укомплектована лимитированная версия альбома.</P>
+Автор: Vit Belov
+
+### 05.04.2014 news Новый альбом SINISTER
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый релиз death-metal классиков <STRONG>SINISTER "The Post-Apocalyptic Servant"</STRONG> выходит 25 мая на <STRONG>Massacre Records</STRONG>. Трек-лист:</FONT></P>
+<P>1. <STRONG>The Science Of Prophecy</STRONG> | 2. <STRONG>The Macabre God</STRONG> | 3.<STRONG> The Sculpture Of Insanity</STRONG> | 4. <STRONG>The End Of All That Conquers</STRONG> | 5.<STRONG> The Masquerade Of An Angel</STRONG> | 6. <STRONG>The Dome Of Pleasure</STRONG> | 7.<STRONG> The Post-Apocalyptic Servant</STRONG> | 8. <STRONG>The Art Of Skin Decoration</STRONG> | 9.<STRONG> The Saviour</STRONG> | 10. <STRONG>The Burden Of Mayhem </STRONG>| 11. <STRONG>Fall From Grace</STRONG> (<STRONG>MORBID ANGEL</STRONG> cover) | 12. <STRONG>Deadly Inner Sense</STRONG> (<STRONG>PARADISE LOST</STRONG> cover) | 13. <STRONG>Unstoppable Force</STRONG> (<STRONG>AGENT STEEL</STRONG> cover)</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2014.04/26856.jpg" width=500 height=483> 
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 12.07.2014 articles Новинки &quot;лицензии&quot; начала лета: &quot;Петя и кричащая женщина&quot;
+
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><I>Начало лета вышло жарким на лицензионном рынке. Последнее время стремительно меняется сложившееся в «классические» времена правило «летнего затишья». Выяснилось, что фанатики коллекционирования музыки не усмиряют свои аппетиты даже в жаркие месяцы года. Всё чаще и чаще мировые лэйблы назначают на начало лета главные релизы. Не отстают от них и наши компании, старательно перепечатывая <SPAN lang=en-US>CD </SPAN>своих зарубежных партнёров.</I></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Альбом месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ARCH ENEMY “War Eternal” <SPAN lang=ru-RU>(</SPAN>Century Media/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Кажется в нашей стране особенно любят шведскую группу. По какой-то причине (видимо, коня на скаку остановит ещё себя окончательно не изжило), любители тяжёлой музыки в России очень уважают «кричащих» женщин. Кроме этого <SPAN lang=en-US>ARCH ENEMY </SPAN>предлагают гипермелодичный материал с отличными соло, что на нашем рынке пользуется недюженным успехом. По этим причинам, не является сюрпризом издание нового альбома шведской группы в формате <SPAN lang=en-US>digi-pack, </SPAN>фэны готовы платить больше. Главной же причиной, по которой этот альбом хотели послушать даже критики творчества <SPAN lang=en-US>ARCH ENEMY, </SPAN>новая вокалистка <SPAN lang=en-US>Alissa White-Gluz </SPAN>(<SPAN lang=en-US>ex-THE AGONIST), </SPAN>которая оказалась не только симпатичнее предшественницы <SPAN lang=en-US>Angela Gossow, </SPAN>но и орёт так, что даже видавшие виды мужики ухают от удовольствия. К сожалению, <SPAN lang=en-US>Mazzar </SPAN>не смогли организовать выпуск данного альбома с эксклюзивным бонус-треком, доступным на фирменном <SPAN lang=en-US>digi. </SPAN>Вернее так, который был доступен на фирменном <SPAN lang=en-US>digi, </SPAN>тираж которого на <SPAN lang=en-US>Century Media </SPAN>распродан.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Призёры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>VADER “Tibi Et Igni” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В этой рубрике порядок не важен, но новый альбом польских классиков <SPAN lang=en-US>death-metal </SPAN>я поднял на самую вершину не случайно. Честно говоря, от нашего друга Пети уже никто ничего особенного не ожидал. Казалось, он так и будет удовлетворять поклонников классического смертельного метала в гомеопатических дозах, радуя великолепным качеством звучания и моложавой энергией. И вдруг... Ни с того, ни с сего "<SPAN lang=en-US>Tibi Et Igni”, </SPAN>то есть «Прочти и сожги». Жечь не хочу, хочу слушать и слушать, потому что альбом просто шедеврален. По оппортунистическим соображениям я не сделал его «альбомом месяца», но для меня он в начале лета не превзойдён.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>ILLDISPOSED “With The Lost Souls On Our Side” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё одни классики, на этот раз из Дании, со своим 12 (!!!) альбомом. Группа обрела уже не второе и не третье дыхание и с помощью <SPAN lang=en-US>Massacre Records </SPAN>наводняет своими простыми, но цепляющими альбомами рынок звукозаписей. А мы, знаете, довольны! Новая работа <SPAN lang=en-US>ILLDISPOSED </SPAN>достаточно монотонна и проста, но это не мешает нам насладиться великолепным звуком, ритмикой и тупой агрессивной мешаниной. Любителям классического <SPAN lang=en-US>death-metal </SPAN>непременно к прослушиванию.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>SINISTER “The Post-Apocalyptic Servant” (Massacre Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Не скудеет наш ростер на классиков <SPAN lang=en-US>death-metal. </SPAN>В начале лета в России вышла и новая работа <SPAN lang=en-US>SINISTER, </SPAN>которые в последние годы приучили нас к регулярным порциям классического <SPAN lang=en-US>death-metal </SPAN>звучания без компромиссов. На этот раз лицензионное издание содержит бонус-диск, доступный только в фирменном <SPAN lang=en-US>digi-</SPAN>варианте. Крепкая работа, которая не разочарует.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DUST BOLT “Awake The Riot” (Napalm Records/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Молодую немецкую группу <SPAN lang=en-US>DUST BOLT </SPAN>открыли для нас <SPAN lang=en-US>Napalm Records </SPAN>пару лет назад. Второй альбом <SPAN lang=en-US>thrash-metal </SPAN>коллектива демонстрирует необходимый прогресс, чтобы выбиться в разряд ведущих <SPAN lang=en-US>thrash-</SPAN>банд мира. Мощные и запоминающиеся боевики на стыке американской и немецкой школ, качественнейшая реализация. Несомненное открытие для всех любителей стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ANATHEMA “Distant Satelite” (Kscope/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Британцы <SPAN lang=en-US>ANATHEMA </SPAN>уже давно попадают в подобные рейтинги по чистой инерции. К тяжёлой музыке группа давно не имеет никакого отношения, но в этот раз коллектив выпустил очень хорошую работу. Не пугайтесь, на "<SPAN lang=en-US>Distant Satelite” </SPAN>нет готического <SPAN lang=en-US>death-doom metal, </SPAN>это всё тот же меланхоличный рок, который можно также именовать <SPAN lang=en-US>progressive. </SPAN>Тем, кто хочет отдохнуть от тяжёлых ритмов, рекомендуется.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DEATHSTARS “The Perfect Cult” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B><SPAN lang=ru-RU></SPAN></B>Ещё один супер-альбом в этом рейтинге. <SPAN lang=en-US>Industrial-metal </SPAN>шведы <SPAN lang=en-US>DEATHSTARS </SPAN>отдыхали лет пять и накопили потенциал для выпуска по-настоящему хитового альбома. С подачей и реализацией у музыкантов никогда проблем не было, но в этот раз альбом наполнен великолепным и цепляющим материалом. Тем, кто чего-то ждал от <SPAN lang=en-US>PARADISE LOST </SPAN>и <SPAN lang=en-US>TIAMAT, </SPAN>непременно обратить внимание. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MISERY INDEX “The Killing Gods” (Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US>MISERY INDEX <SPAN lang=ru-RU>прославились с самого начала карьеры, как группа бывших участников </SPAN>DYING FETUS. <SPAN lang=ru-RU>Долгое время коллектив выпускал альбомы на том же лэйбле </SPAN>Relapse <SPAN lang=ru-RU>и шёл в фарватере старших товарищей. Пришло время раздвинуть рамки. Перейдя на французский </SPAN>Season Of Mist, MISERY INDEX <SPAN lang=ru-RU>выпустили концептуальный и эпичный альбом. К уже привычному быстрому и техничному </SPAN>death-metal <SPAN lang=ru-RU>добавилась атмосфера от </SPAN>BEHEMOTH. <SPAN lang=ru-RU>Воистину альбом, способный совершить прорыв в тяжёлой музыке.</SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIGHTMARE “The Aftermath” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Французская команда раз за разом подтверждает свой класс. К сожалению, ей не удаётся вырваться за пределы второго эшелона европейского метала, но их музыка достойна всеобщего внимания. Зрелый, тяжёлый <SPAN lang=en-US>heavy-metal </SPAN>со всеми признаками концептуального <SPAN lang=en-US>progressive </SPAN>понравится поклонникам американского серьёзного метала.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Аутсайдеры месяца</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>DIE APOKALYPTISCHEN REITER “Tief” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Немецкая группа окончательно скатилась в пространные немецкоязычные песнопения с неочевидными мелодиями и странным звуком. В этот раз <SPAN lang=en-US>DAR </SPAN>намудрили ещё что-то с несколькими версиями альбома, нам издали только один диск, да и Бог с ним.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>MAYHEM “Esoteric Warfare” <SPAN lang=ru-RU>(</SPAN>Season Of Mist/Mazzar)</B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Самая злая группа современности. В чём состоит основное искусство сатанинского злобаря? Вы думаете в том, чтобы раздавить слушателя искромётными бластбитами и животной агрессией? Ошибаетесь. Можно взять всех измором, доказывая в течение целого часа, что маргинальнее тебя нет никого.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANZWUT “Eselsmesse” (AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>По непонятной причине этот альбом вышел под названием <SPAN lang=en-US>TANZWUT. </SPAN>Надо было назвать это <SPAN lang=en-US>CORVUS CORAX, </SPAN>и никаких претензий. К <SPAN lang=en-US>TANZWUT </SPAN>же претензии есть и огромные. Феноменально скучная работа.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>TARJA TURUNEN and MIKE TERRANA “The Beauty and The Beat” (Edel/</B><SPAN lang=ru-RU><B>Союз)</B></SPAN></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Непонятны мотивы немецкого лэйбла <SPAN lang=en-US>Edel, </SPAN>но ещё больше непонятны мотивы лицензионного лэйбла Союз. Зачем выпускать скучнейший набор классических произведений, исполненных бывшей вокалисткой <SPAN lang=en-US>NIGHTWISH? </SPAN>Дослушать до конца два диска будет сложно, <SPAN lang=en-US>Tarja </SPAN>же<SPAN lang=en-US> </SPAN>уже должна наконец понять, что все классические вокалисты на сценах больших и малых академических театров, с металистами работают совсем другие люди, амбиции которых нас не волнуют.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><FONT size=4><B>Среднее звено</B></FONT></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>U.D.O. “Steelhammer – Live In Moscow” <SPAN lang=ru-RU>(</SPAN>AFM/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Очередной концерт бывшего вокалиста <SPAN lang=en-US>ACCEPT. </SPAN>Для нас издана только аудио-дорожка выступления группы музыканта в Москве. <SPAN lang=en-US>U.D.O. </SPAN>решил выпустить концерты во всех странах бывшего советского блока. Ждём концерт в Румынии и ЧССР. На обложке румынского концерта изобразим Дракулу, а на чехословацком кружку пива и колбасу.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>CHANNEL ZERO “Kill All Kings” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом классиков <SPAN lang=en-US>thrash-groove </SPAN>из Бельгии. Этот стиль никого в России не интересует, да и альбом не получился выдающимся. С чего вдруг в 2014 году лицензионщики вспомнили об этом коллективе? Загадка.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>ALLEGAEON “Elements Of The Infinite” <SPAN lang=ru-RU>(</SPAN>Metal Blade/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Третий альбом американской команды и второй на лицензии. Интересный <SPAN lang=en-US>melodic death </SPAN>с техничными задатками, но не вызывающий у слушателя восторга, нехваткой мелодичности и драйва. </P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>NIVLHEL “Nivlhel” (Einheit/<SPAN lang=ru-RU>Фоно)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Ещё один альбом по лицензии немецкого лэйбла <SPAN lang=en-US>Einheit. </SPAN>Дебют шведской группы участника <SPAN lang=en-US>ISTAPP. </SPAN>Достойный материал на стыке лесного <SPAN lang=en-US>black-metal </SPAN>и <SPAN lang=en-US>pagan-black metal. </SPAN>Поклонникам стиля.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><B>EQUILIBRIUM “Nerdentempel” (Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=en-US><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом потенциальных лидеров стиля <SPAN lang=en-US>pagan-metal </SPAN>из Германии, опекаемых <SPAN lang=en-US>Nuclear Blast. </SPAN>В этот раз группа стреляет не в бровь, а в глаз. Гипермелодичная танцевальная металическая музыка и звуки хутора (петушки и свинки) — неподрожаемый коктейль.</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><B>TANKARD “R.I.B.” <SPAN lang=ru-RU>(</SPAN>Nuclear Blast/<SPAN lang=ru-RU>Союз)</SPAN></B></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>&nbsp;</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>Новый альбом <SPAN lang=en-US>TANKARD. </SPAN>И этим всё сказано!</P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU><BR></P>
+<P style="MARGIN-BOTTOM: 0cm" lang=ru-RU>В ближайший месяц лэйблы не уходят в отпуск. Нас ждут новые альбомы <SPAN lang=en-US>SONIC SYNDICATE, SUICIDE SILENCE, OVERKILL, BELPHEGOR, EVERGREY, SEPTICFLESH, ENTOMBED </SPAN>и многое другое!</P>
+Автор: Vit Belov
+
+### 18.07.2016 news Альбом каверов от SINISTER можно послушать целиком
+
+<p><font color="#ffffff" style="background-color: rgb(0, 0, 0);">Ниже можно послушать прошлогодний альбом<strong> SINISTER "Dark Memorials"</strong>. На нём группа исполнила кавер версии любимых песен. Официальный стрим от <strong>Massacre Records</strong>.</font></p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/oHp0Kpfoj64" frameborder="0" allowfullscreen></iframe>
+Автор: Vit Belov
+
+### 18.07.2016 news Full stream from SINISTER
+
+Below you can listen to last year's album of<strong> SINISTER "Dark Memorials"</strong>. The band performed cover versions of favorite songs. Official stream from <strong>Massacre Records</strong>.<p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/oHp0Kpfoj64" frameborder="0" allowfullscreen=""></iframe></center>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Мысли о SINISTER...

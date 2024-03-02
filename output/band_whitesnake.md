@@ -86,6 +86,203 @@ Greatest Hard Rock band from England
 * C группой "Dio" Vivian Campbell (guitar)
 * C группой "Deep Purple" David Coverdale (vocal)
 
+## Публикации
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 08.08.2006 news WHITESNAKE отныне на Steamhammer&#x2F;SPV
+
+<P><B>Steamhammer/SPV</B> с гордостью заявляют о новом сотрудничестве - отныне немецкая компания является официальным представителем <B>WHITESNAKE</B> в Европе. Новейший двойной концертный альбом ветеранов, <B>"Live ... In The Shadow Of The Blues"</B>, выйдет 6 ноября.<BR><BR>На <B>"Live ... In The Shadow Of The Blues"</B> мы услышим <B>Дэвида Ковердейла </B>и Ко, исполняющих "золотую" классику группы: <B>'Here I Go Again', 'Is This Love', 'In The Still Of The Night', 'Fool For You Loving', 'Ain't No Love In The Heart Of The City', 'Walking In The Shadows Of The Blues'</B> - каждая из этих композиций давно стала хрестоматийным примером, показывающим как - страстно, мощно и искренне - должен звучат настоящий хард-рок!&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR>Внезапное комбо <B>'Burn - Stormbringer - Burn'</B> напомнит молодым фанатам, что когда-то (в период с 1973 по 1976 год) <B>Ковердейл</B> мастерил "нетленки" в составе <B>DEEP PURPLE</B>. Приятный сюрприз ожидает и тех, кто с нетерпением ждет новой пластинки - на дописку группа выбросила четыре свежих трека: <B>'Ready to Rock', 'If You Want Me (I'll Come Running)', 'All I want Is You'</B> и <B>'Dog'</B>.<BR><BR>Помимо обычной версии вниманию коллекционеров будет предложен роскошный дигипак, включающий массу интересных бонусов, среди которых расширенный вариант <B>'Crying In The Rain'</B> с завораживающим драммейстерским соло <B>Элдриджа</B>.&nbsp;&nbsp; <BR><BR>Будучи королями сценами вот уже 30 лет, <B>WHITESNAKE</B> остаются верными себе и своему стилю. Гитарный дуэт <B>Дуга Элдриха</B> (ex-<B>DIO</B>) и <B>Реба Бича </B>(<B>WINGER</B>, ex-<B>DOKKEN</B>) продолжает традицию выдающихся шестиструнщиков, <B>Томми Элдриджа</B>, отдавшего группе более 20 лет, представлять не нужно. Басист <B>Юрай Даффи</B> и клавишник <B>Тимоти Друри</B> - оба являются музыкантами<BR>экстра-класса и блестяще дополняют команду. Критики и знатоки не сговариваясь сошлись во мнении - нынешний состав <B>WHITESNAKE</B> является сильнейшим за всю историю группы.&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; <BR><BR>Вся последняя информация о релизе - на сайтах <A href="http://www.whitesnake.com/"><U>www.whitesnake.com</U></A> and <A href="http://www.spv.de/"><U>www.spv.de</U></A>.<BR><BR>Треклист <B>"Live ... In The Shadow Of The Blues"</B>:<BR><BR>CD 1</P>
+<P><B>Bad Boys</B></P>
+<P><B>Slide It In</B></P>
+<P><B>Slow An' Easy</B></P>
+<P><B>Love Ain't No Stranger</B></P>
+<P><B>Judgement Day</B></P>
+<P><B>Is This Love</B></P>
+<P><B>Blues For Mylene</B></P>
+<P><B>Snake Dance</B></P>
+<P><B>Crying In The Rain</B></P>
+<P><B>Ain't No Love In The Heart Of The City</B></P>
+<P><B>Fool For Your Loving</B></P>
+<P><B>Here I Go Again</B></P>
+<P><B>Still Of The Night<BR></B>&nbsp;<BR>CD 2<BR><B>Burn - Stormbringer - Burn</B></P>
+<P><B>Give Me All Your Love Tonight</B></P>
+<P><B>Walking In The Shadow Of The Blues</B></P>
+<P><B>The Deeper The Love</B></P>
+<P><B>Ready An` Willing</B></P>
+<P><B>Don`t Break My Heart Again</B></P>
+<P><B>Take Me With You</B></P>
+<P><B>Ready To Rock</B> (new studio recording)</P>
+<P><B>If You Want Me - I'll Come Running</B> (new studio recording)</P>
+<P><B>All I Want Is You</B> (new studio recording)</P>
+<P><B>Dog</B> (new studio recording) <BR>&nbsp;<BR>Bonustrack (Limited Edition):<BR><B>Crying In The Rain</B> (extended version with Tommy's Drum Solo)<BR><BR>Нновости подготовлены совместно с интернет-источником <A href="http://www.themetallist.com/"><U>www.themetallist.com</U></A> (Сергей Хитряков) <BR></P>
+Автор: Ixtiandr
+
+### 08.12.2006 news Новый WHITESNAKE летом
+
+<P>Новый альбом<STRONG> WHITESNAKE</STRONG> будет называться <STRONG>"Good to be Bad" </STRONG>и выйдет следующим летом.</P>
+Автор: Vit Belov
+
+### 28.02.2007 reviews Are You Ready To Rock?
+
+<P>Готовы ли вы к року? Именно с этой фразы начинается концертное выступление монстров рока Whitesnake, записанное в ходе тура 05-06 и изданное в виде двухдискового CD. Одно можно сказать с уверенностью – сами музыканты готовы на все сто. Такого мощного живого драйва и энергетики на концертных пластинках я давно не встречал. Стоит так же отметить ту технику и мастерство, с которым все исполнено. Особенно порадовала меня работа новобранцев – гитаристов Дуга Олдрича и Рэба Бича: все соло в старых композициях обыграны по-новому, что придает до боли знакомым хитам абсолютно свежее звучание, а гитарное соло Дуга, названное Blues For Mylene просто шедевр! Вторую пластинку открывает микс из композиций Burn и Stormbringer позаимствованных в репертуаре великих Deep Purple, давших «путевку в жизнь» молодому Дэвиду Ковердейлу. Приятным сюрпризом станут 4 абсолютно новых вещи написанных Дэйвом в соавторстве с Дугом Олдричем и выдержанных в ключе классических работ Белой Змеи. Отдельных слов заслуживает 24-х страничный буклет, пестрящий концертными фото коллектива. Короче, отличный альбом по форме и содержанию, лишний раз доказывающий, что рок-н-ролл скорее жив, чем мертв.</P>
+<P>Диск предоставлен Концерном «Группа СОЮЗ»</P>
+Автор: Fucker
+
+### 02.03.2007 reviews Стандарт, но высочайшей пробы
+
+<P>Стандарты бывают разные. В названиях, например ("Live In The Heart Of A City", "Live In The Still Of The Night", "Live In The Shadow Of The Blues").&nbsp;Или в&nbsp;оформлении буклетов (куча концертных фото с минимумом информации). В подборе песен для концертного сета. Но важнее все-таки качество этих самых стандартов, ведь ежели оно высоко, то многое можно простить. Впрочем, такие личности как Дэвид Ковердейл, которому в сентябре 2006-го года стукнуло ни много ни мало 55, ни в каких прощениях со стороны кого бы то ни было не нуждаются. Великий певец и фронтмэн оказался еще и неплохим коммерсантом. Ведь в начале 2006-го года свет увидел DVD его любимого детища Whitesnake (а группе уже скоро будет 30 лет) "Live In The Still Of The Night", и вот в тот же самый год выходит двойной концертник на CD, притом с четырьмя новыми песнями с грядущего альбома (под рабочим названием "Good To Be Bad", нда...), который должен появиться летом 2007-го года. Ковердейл, похоже, навечно останется секс-символом хард-рока со&nbsp;своей всегда&nbsp;расстегнутой до пупа рубашкой и голосом с характерной хрипотцей, от которого сходят с ума поклонницы тяжелой музыки (и не только, хехе). Бывшему вокалисту великих Deep Purple уже давно ничего и никому не надо доказывать, но кто сомневается в вокальных данных и способности зажечь зал Ковердейла нынешнего, тот пусть послушает данную работу. Дэвид работает порой как бы нехотя, но настолько убедительно, что просто забываешь о том, сколько ему лет и сколько из них он провел на сцене. Под стать ему и инструментальный состав. Можно, конечно,&nbsp;пожаловаться на то, что звук слишком хорош, что его явно доводили в студии, но как бы то ни было, концертную атмосферу воссоздать удалось на все 100, а больше нам ничего и не надо. Старые, проверенные временем хиты звучат с новой силой, ярко, живо, и вряд ли кто сейчас осмелиться сказать, что, мол, Whitesnake "уже не тот". И уж тем более не надо сравнивать данный альбом со, скажем,&nbsp;перпловским "Live In Europe", а самых упрямых спрошу: а вы сможете, пардон, в 55 лет так же наяривать вашу подружку как в 20 лет? Вот то-то. Что же касается четырех новых вещей, то тут тоже стандарты, но уже качеством пониже (про совершенно идиотские названия песен 'Ready To Rock', 'If You Want Me', 'All I Want Is You' и 'Dog' сейчас говорить не будем), хотя вряд ли кто ждет от маэстро Ковердейла какой-то новизны или откровений. Если на новом альбоме Whitesnake все песни будут в подобном роде (разве что 'Dog', сделанная в цеппелиновской манере, весьма неплоха), то он вряд ли войдет в число лучших работ группы. За вот эти "новинки" и снимаю с альбома один балл.</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 22.01.2008 news Новый альбом WHITESNAKE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый альбом <STRONG>WHITESNAKE</STRONG> <STRONG>"Good to be Bad" </STRONG>выходит в конце апреля на <STRONG>SPV</STRONG>. Трэк-лист:</FONT></P>
+<P>01. <B>Call On Me</B><BR>02. <B>Can You Hear The Wind Blow?</B><BR>03. <B>Best Years</B><BR>04. <B>All I Want All I Need</B><BR>05. <B>Good To Be Bad</B><BR>06. <B>All For Love</B><BR>07. <B>Summer Rain</B><BR>08. <B>Lay Down Your Love</B><BR>09. <B>A Fool In Love</B><BR>10. <B>Got What You Need</B><BR>11. <B>'Till The End Of Time</B></P>
+Автор: Vit Belov
+
+### 01.05.2008 news Новое видео WHITESNAKE
+
+<P><STRONG>WHITESNAKE</STRONG> выложили в сеть видеоклип на песню с нового альбома <STRONG>"Lay Down Your Love".</STRONG></P>
+<P>
+<CENTER>
+<OBJECT height=355 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/qp_uV83bwuQ&rel=0&hl=en"><PARAM NAME="wmode" VALUE="transparent">
+<embed src="http://www.youtube.com/v/qp_uV83bwuQ&rel=0&hl=en" type="application/x-shockwave-flash" wmode="transparent" width="425" height="355"></embed></OBJECT></CENTER>
+<P></P>
+Автор: Vit Belov
+
+### 13.05.2008 reviews Плохо быть просто не могло, или Фанаты ждали не зря
+
+<P>Ни для кого не секрет, что выход нового студийного альбома монстров хард-рока под управлением Дэвида Ковердейла Whitesnake был для любителей жанра самым ожидаемым событием в 2008-ом году. Ведь последний студийник группы вышел аж в 1997-ом ("Restless Heart"), и последние десять лет Дэвид сотоварищи подкармливали фанатов лишь всякого рода сборниками да парой "живых" пластинок. Whitesnake удалось подогреть интерес к выпуску "Good To Be Bad" и на концертном двойнике "Live... In The Shadow Of The Blues" (2006), где были продемонстрированы четыре новых песни, которые должны были присутствовать на новом альбоме, выход которого планировался на лето 2007-го года. Однако не всем планам суждено сбываться. Так что "Good To Be Bad" вышел в итоге в апреле 2008-го, а те четыре вещи на него вообще не попали! И, быть может, оно и к лучшему. Во всяком случае теперь можно утверждать, что поклонники Whitesnake не зря ждали десять долгих лет. Нет, новая пластинка не относится к лучшим работам коллектива, но то, что она вполне удалась - это без сомнения. Правда, по каким-то причинам Ковердейл составил донельзя неудачный порядок песен. Ибо открывашкой должна была идти отличная&nbsp;'Lay Down Your Love', и только она (кстати, именно на эту песню сделан видеоклип), а не весьма неудачная 'Best Years'. Но я не зря говорил выше о поклонниках. Так как объективно говоря, "Good To Be Bad" получился всё-таки несколько беззубым, каким-то "не совсем настоящим" Уайтснейком; хотя справедливости ради отмечу, что после повторных прослушиваний пластинки она начинает нравиться больше, но всё же в случае с такой группой всё должно катить с первого раза. Рядом с Дэвидом над альбомом трудились Doug Aldrich (g, также Dio, Hurricane, Burning Rain, Lion, House Of Lords, Bad Moon Rising), Reb Beach (g, также Winger, Dokken, The Mob, Night Ranger, Alice Cooper, Twisted Sister), Timothy Drury (kb, также Eagles, Don Henley, Stevie Nicks), Uriah Duffy (b) и Chris Frazier (dr), новый участник Whitesnake. Среди одиннадцати хард-роковых номеров есть три баллады, сделанные в довольно типичном для Ковердейл и Со ключе; стоит отметить и сильно приблюзованную 'A Fool In Rain' и прекрасное завершение в виде 'Til The End Of Time'; вообще, самые сильные вещи альбома начинаются где-то с середины, поэтому я и говорил о неудачном - с моей точки зрения - порядке песен. Если вы являетесь фанатом Whistesnake, то готовьте денежки для покупки всех возможных форматов "Good To Be Bad": кроме обычного "стекла" есть: double gatefold vinyl с бонусным концертным треком; европейский limited edition с бонусным CD ('Summer Rain' acoustic version, 'All I Want All I Need' radio edit, 'Take Me With You' live, 'Ready To Rock' enhanced video), постером, фотокарточкой и стикером; японское издания с бонусами 'Summer Rain' acoustic version и ' All For Love' Doug Aldritch guitar solo, а также постером и jacket-стикером (это ежели first press); специальная O-card verision для США и Канады с бонус-диском, который включает в себя 7 концертных треков и одно видео. Так что деньги будет куда потратить. Время покажет, будет ли "Good To Be Bad" последней студийной работой Whitesnake, но если так, то можно согласиться (почти) с Ковердейлом: "If this is indeed the last Whitesnake studio record then I'm happy to finish like this".</P>
+<P>Альбом предоставлен концерном "Группа СОЮЗ"</P>
+Автор: Ixtiandr
+
+### 09.12.2008 news WHITESNAKE в Москве
+
+<P><IMG height=413 alt="" hspace=0 src="/images/news_rus/2008.12/13092.jpg" width=253 align=right border=5>9 декабря легендарные<STRONG> Whitesnake</STRONG> выступят в клубе «<STRONG>Б1 MAXIMUM</STRONG>». </P>
+<P>Продажа билетов: <A href="http://www.concert.ru/">www.concert.ru</A><BR>Подробно: <A href="http://www.b1club.ru/event/09-12-2008/">www.b1club.ru/event/09-12-2008/</A></P>
+<P>Официальный сайт: <A href="http://www.whitesnake.com/">www.whitesnake.com</A><BR>MySpace: <A href="http://www.myspace.com/whitesnake">www.myspace.com/whitesnake</A> </P>
+<P>Адрес клуба: м. Ленинский пр-т, ул. Орджоникидзе,&nbsp; дом. 11<BR>Телефон: (495) 648-6777, 921-1557<BR><A href="http://www.b1club.ru/">www.b1club.ru</A></P>
+Автор: Vit Belov
+
+### 17.04.2009 news Turner наехал на Coverdale
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В интервью испанскому журналу <STRONG>The Metal Circus</STRONG> вокалист <STRONG>Joe Lynn Turner</STRONG>, отвечая на вопрос об использовании им фонограммных плёнок на концерте, рассказал следующее:</FONT></P>
+<P>"<EM>Я не использую этого. Есть правда одна "машинка", которая позволяет мне делать бэк-вокалы, но это не плёнки. Я пою сам, а программа делает с голосом то, что надо. Здесь нет чудес, здесь нет и фонограммы. Недавно я прочитал в Интернет, что David Coverdale использует фонограмму. Окей, я был в прошлом году на фестивале Sauna Open Air в Финляндии вместе с Graham Bonnet. Там же выступали и Whitesnake. Я не мог поверить своим ушам, но David действительно использовал фонограмму для основного пения. Не для бэков, а для ведущего голоса!!! Я просто стоял с открытым ртом: "Как же так, David? Как ты можешь? Ты выглядишь, как дурак!" Это всех так беспокоило. Но это меня не касется. Я пою вживую... Никакого дерьма... Все это видят. Насчёт Coverdale я в шоке, ведь он всегда был одним из моих любимейших певцов. Использовать фонограмму для lead singing!!!??? Для "бэков" я ещё понимаю, если другие музыканты не поют, но для ведущего вокала!!! Он что шутит, блин?</EM>"</P>
+<P>Сегодня же <STRONG>David Coverdale</STRONG> опубликовал опровержение, обозвав<STRONG> Joe</STRONG> нехорошими словами, но "слово - не воробей". Старички не сдаются.</P>
+Автор: Vit Belov
+
+### 19.04.2009 news David Coverdale: &quot;Я не мим!&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>David Coverdale</STRONG> из <STRONG>WHITESNAKE</STRONG> прокомментировал заявления <STRONG>Joe Lynn Turner</STRONG> о том, что он поёт под фонограмму:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Я не понимаю, зачем он, вообще, затронул эту тему в интервью. Я - David Coverdale, у меня за плечами 40 лет успешной карьеры, я работал с лучшими музыкантами, и я никогда не пел под плёнку перед аудиторией, которая заплатила деньги. Я не понимаю, как кто-то мог сказать про меня такое. Любой, кто хоть какой-то отношение к музыкальному бизнесу видит, что я работаю вживую</EM>".</FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>&nbsp;</FONT></P>
+Автор: Vit Belov
+
+### 23.04.2009 news Переиздания WHITESNAKE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>На второй неделе июня<STRONG> EMI</STRONG> выпустят юбилейные издания<STRONG> WHITESNAKE</STRONG> <STRONG>"Slip Of The Tongue" </STRONG>и <STRONG>"Slide It In". </STRONG>Альбомы будут выпущенны в формате digi-pack с бонусными DVD. Состав изданий:</FONT></P>
+<P><STRONG>"Slide It In"</STRONG> CD: <BR>*&nbsp;Американский и английский варианты сведения плюс один концертный трэк&nbsp;(20&nbsp;трэков всего)<BR><B>"Slide It In"</B> DVD:<BR>* <B>Guilty Of Love</B> (promo clip)<BR>* <B>Slow An' Easy</B> (promo clip)<BR>* <B>Love Ain't No Stranger</B> (promo clip)<BR>* <B>Guilty Of Love</B> (Donnington 1983)<BR>* <B>Love Ain't No Stranger</B> (Starkers In Tokyo)<BR>* <B>Give Me More Time</B> (BBC TV Top Of The Pops 19/1/84)<BR>* <B>Love Ain't No Stranger</B> (Live... In The Still Of The Night)<BR><BR><B>"Slip Of The Tongue"</B> CD:<BR>* Альбом плюс:<BR>* <B>Now You're Gone</B> (U.S. Remix)<BR>* <B>Fool For Your Loving</B> (The Vai Voltage Mix)<BR>* <B>Slip Of The Tongue</B> (Live At Donnington 1990)<BR>* <B>Kittens Got Claws</B> (Live At Donnington 1990)<BR><B>"Slip Of The Tongue"</B> DVD:<BR>* <B>Fool For Your Loving</B> (promo clip)<BR>* <B>Now You're Gone</B> (promo clip)<BR>* <B>The Deeper The Love</B> (promo clip)<BR>* <B>The Deeper The Love</B> (Starkers In Tokyo)<BR>* <B>Sailing Ships</B> (Starkers In Tokyo)<BR>* <B>Judgement Day</B> (Live... In The Still Of The Night)<BR>* <B>Slip Of The Tongue</B> (Live At Donnington 1990)<BR>* <B>Kittens Got Claws</B> (Live At Donnington 1990) </P>
+Автор: Vit Belov
+
+### 20.02.2010 news WHITESNAKE на Frontiers!!!
+
+<P><STRONG>Frontiers Records</STRONG> объявили о своём самом значимом в истории приобретении. Легендарные <STRONG>WHITESNAKE</STRONG> заключили контракт с этим итальянским лэйблом. По словам лидера группы певца <STRONG>David Coverdale</STRONG>, музыканты уже сочиняют новый материал, который станет большим шагом вперёд по сравнению с успешным последним альбомом "<STRONG>Good To Be Bad"</STRONG>.</P>
+Автор: Vit Belov
+
+### 19.06.2010 news WHITESNAKE расстались с баситом и барабанщиком 
+
+<P><STRONG>WHITESNAKE </STRONG>расстались с барабанщиком <STRONG>Chris Frazier </STRONG>и басистом <STRONG>Uriah Duffy</STRONG>. Уже названо имя нового "драмера", им стал <STRONG>Brian Tichy (FOREIGNER</STRONG>, <STRONG>BILLY IDOL</STRONG>, <STRONG>OZZY OSBOURNE, VELVET REVOLVER). </STRONG>Место бас-гитаста в группе пока акантно.</P>
+<P>В нстоящее время<STRONG> WHITESNAKE</STRONG> находятся в студии, где сочиняют и записывают свой новый альбом для <STRONG>Frontiers Records</STRONG>.</P>
+Автор: Vit Belov
+
+### 21.08.2010 news WHITESNAKE назвали нового басиста
+
+<P><IMG height=344 alt="" hspace=0 src="/images/news_rus/2010.08/17060.jpg" width=250 align=left border=5>Новым басистом легендарной группы<STRONG> WHITESNAKE</STRONG> стал <STRONG>Michael Devin</STRONG>, известный по игре в <STRONG>LYNCH</STRONG> <STRONG>MOB</STRONG>, где он работал с нынешним барабанщиком <STRONG>WHITESNAKE Brian Tichy</STRONG>.</P>
+<P>Музыканту всего 35 лет, и он признался, что является большим фанатом <STRONG>WHITESNAKE</STRONG>.</P>
+Автор: Vit Belov
+
+### 24.12.2010 news WHITESNAKE назвали альбом
+
+<P>Новый альбом <STRONG>WHITESNAKE</STRONG> получил название <STRONG>"Forevermore" </STRONG>и выйдет в конце марта на <STRONG>Frontiers Records</STRONG>. </P>
+<P><center><IMG height=400 src="/images/news_rus/2010.12/17925.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 25.01.2011 news Специальное издание посвящённое WHITESNAKE от журнала Classic Rock
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2011.01/18325.jpg" width=349 height=450>Английский журнал <STRONG>Classic Rock</STRONG> анонсировал выпуск, так называемого, "Fan Pack" - издания, на этот раз посвященного Дэвиду Ковердейлу (<STRONG>David Coverdale</STRONG>) и группе <STRONG>WHITESNAKE</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Данный выпуск продолжит традиции, начатые журналом ранее, в&nbsp;изданиях посвящённых&nbsp;Слэшу (<B itxtvisited="1">Slash</B>) и <B itxtvisited="1">MOT&#214;RHEAD</B> и будет включать в себя журнал на 132 страницы, новый альбом <B itxtvisited="1">"Forevermore"</B>, значок и гигантских размеров постер.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Фэны, которые купят&nbsp;"<B itxtvisited="1">WHITESNAKE</B> Fan Pack", смогут услышать <STRONG>"Forevermore"</STRONG> на три недели раньше того, как он поступит в продажу в&nbsp;музыкальные магазины. Стоит, так же, отметить, что в Fan Pack&nbsp;версию альбома&nbsp;<B itxtvisited="1">"Forevermore"</B> войдут два бонус трека — это концертные версии песен&nbsp;<B itxtvisited="1">"Slide it In"</B> и <B itxtvisited="1">"Cheap An' Nasty"</B>, записанные во время выступления группы на фестивале <B itxtvisited="1">Monsters Of Rock</B> в 1990 году. Данные бонус треки призваны&nbsp;подогреть интерес к выходящему летом&nbsp;DVD&nbsp;и двойному CD&nbsp;<STRONG>"Live @ Donington 1990"</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Как и концертные бонус треки, обложка CD издания Fan Pack&nbsp;будет эксклюзивной и не будет использована на обычном варианте диска.<BR itxtvisited="1"></P></FONT>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Сам журнала,&nbsp;редактором которого стал&nbsp;<B itxtvisited="1">Geoff Barton</B>, будет содержать большое интервью&nbsp;с Дэвидом Ковердейлом (<B itxtvisited="1">David Coverdale</B>), взятое&nbsp;у него дома, в&nbsp;городе Лейк Тахо (Lake Tahoe,&nbsp; штат Nevada). </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><B itxtvisited="1">Coverdale</B>, так же, отдельно расскажет о каждом треке нового альбома. Плюс в журнал войдут новые интервью с другими участниками <STRONG>WHITESNAKE</STRONG>: гитаристами Дагом Элдричем (<B itxtvisited="1">Doug Aldrich</B>) и Ребом Бичем (<B itxtvisited="1">Reb Beach</B>), басистом Майклом Девином (<B itxtvisited="1">Michael Devin</B>) и ударником Браяном Тичи (<B itxtvisited="1">Brian Tichy</B>).<BR itxtvisited="1"></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Ко всему прочему,&nbsp;<B itxtvisited="1">Classic Rock</B> побеседовал с музыкантами, которые знали Ковердейла, когда&nbsp;он начинал в качестве певца и выступал по клубам северовостока Англии.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Издание <STRONG>Classic Rock</STRONG> <B itxtvisited="1">WHITESNAKE</B> Fan Pack поступит в продажу 25 марта. Предварительный заказ можно сделать&nbsp;на сайте <A href="http://www.myfavouritemagazines.co.uk/" target=_blank><U><FONT color=#0000ff>www.myfavouritemagazines.co.uk</FONT></U></A>.<BR itxtvisited="1"></P></FONT>
+Автор: Headcrusher
+
+### 15.02.2011 news Новое видео WHITESNAKE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый клип на песню<STRONG> WHITESNAKE</STRONG> <STRONG>"Love Will Set You Free" </STRONG>можно посмотреть ниже. Режиссёром ролика выступил <STRONG>Devin DeHaven (PAPA ROACH, METHOD MAN, TALIB KWELI). </STRONG>Песня попадёт на новейший альбом легендарной группы <STRONG>"Forevermore"</STRONG>, который выйдет 25 марта на<STRONG> Frontiers</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/TOwd30wXc-0?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/TOwd30wXc-0?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 27.07.2011 news Portnoy будет работать с Sykes
+
+<P>Бывший барабанщик<STRONG> DREAM THEATER Mike Por</STRONG>tnoy и гитарист/вокалист <STRONG>John Sykes</STRONG> (<B>WHITESNAKE</B>, <B>BLUE MURDER</B>, <B>THIN LIZZY</B>) объявили о создании нового проекта. Пока не названо имя басиста этого трио, но новообразованный коллектив уже записывает музыку в студии в Лос-Анджелесе.</P>
+<P><STRONG>Portnoy </STRONG>назвал музыку смесью <STRONG>LED ZEPPILIN, BLACK SABBATH, PINK FLOYD</STRONG> и <STRONG>DEEP PURPLE</STRONG>.</P>
+<P><center><IMG height=600 src="/images/news_rus/2011.07/20332.jpg" width=400 border=0></P>
+Автор: Vit Belov
+
+### 30.09.2011 news WHITESNAKE: бокс-сет &quot;Box O&#39;Snakes: The Sunburst Years 1978-1982&quot;
+
+<P>7 ноября на лейбле <STRONG>EMI</STRONG> выйдет новый бокс-сет группы <B itxtHarvested="0" itxtNodeId="38">WHITESNAKE</B>, получивший название <B itxtHarvested="0" itxtNodeId="37">"Box O'Snakes: The Sunburst Years 1978-1982"</B>. Это релиз будет содержать восемь компакт-дисков (все студийные и концертные альбомы, выпущенные группой на&nbsp; <B itxtHarvested="0" itxtNodeId="36">EMI</B>), один DVD (включающий в себя концерт в городе Вашингтон 1980 г., видео-клипы с 1978 по 1982 гг. и живые выступления на канале <B itxtHarvested="0" itxtNodeId="35">BBC</B>),&nbsp;7"&nbsp;сингл&nbsp;и 90 страничную книгу с новым интервью и прежде не публиковавшимися фотографиями).</P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2011.09/21336.jpg" width=475 height=422><BR itxtNodeId="33">
+<P></P>
+<P>&nbsp;</P></CENTER>
+Автор: Headcrusher
+
+### 27.01.2013 news WHITESNAKE: Tommy Aldridge снова в составе WHITESNAKE
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.01/25379.jpg" width=336 height=435>В группу <STRONG>WHITESNAKE</STRONG>&nbsp;вернулся барабанщик <STRONG>Tommy Aldridge</STRONG> <EM>(на фото)</EM>,&nbsp;после того, как в самом начале этого года,&nbsp;другой мастер барабанных палочек,&nbsp;<SPAN><STRONG>Brian Tichy</STRONG> покинул этот заслуженный коллектив, чтобы сосредоточиться на своём сольном коллективе <STRONG>SOMETHING UNTO NOTHING (S.U.N.)</STRONG>.</SPAN></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN>Барабанное мастерство <STRONG>Tommy Aldridge</STRONG> можно услышать на следующих альбомах <STRONG>WHITESNAKE</STRONG>:</SPAN></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN><STRONG>Slip Of The Tongue</STRONG> (1989)<BR><STRONG>Live…In The Still Of The Night</STRONG> (2004)<BR><STRONG>Live: In The Shadow Of The Blues</STRONG> (2006)<BR><STRONG>Live At Donington 1990</STRONG> (2011)</SPAN></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN>Официальный сайт барабанщика: <A href="http://www.tommyaldridge.com/">www.tommyaldridge.com</A></SPAN></FONT><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><SPAN>&nbsp;</SPAN></FONT></P>
+Автор: Headcrusher
+
+### 19.03.2013 news WHITESNAKE: &quot;Made In Japan&quot; в апреле 2013
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2013.03/25546.jpg" width=300 height=300>Лейбл <STRONG>Frontiers</STRONG> выпускает новое концертное видео <STRONG>"Made In Japan"</STRONG>,&nbsp;на котором запечатлено выступление&nbsp;группы <STRONG>WHITESNAKE</STRONG> на&nbsp;японском фестивале <STRONG>"Loud Park"</STRONG>&nbsp;в октябре 2011 года. Данная программа будет выпущена в формате DVD, Blu-Ray, а так же в издании "deluxe", на которое, помимо видео самого концерта, войдут два компакт диска, один из которых, заслуживает отдельного внимания. На него группа включила записи, сделанные во время отстройки звука на разных концертах своего японского тура&nbsp;<FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>2011 года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Даты выхода: 19 апреля в Европе и 23 апреля в С.Ш.А.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист DVD / Blu-Ray:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>Best Years</STRONG>; <STRONG>Give Me All Your Love Tonight</STRONG>; <STRONG>Love Ain’t No Stranger</STRONG>;<STRONG> Is This Love</STRONG>; <STRONG>Steal Your Heart Away</STRONG>; <STRONG>Forevermore</STRONG>; <STRONG>Six String Showdown</STRONG>; <STRONG>Love Will Set You Free</STRONG>; <STRONG>Drum Solo</STRONG>; <STRONG>Fool For Your Loving</STRONG>; <STRONG>Here I Go Again</STRONG>; <STRONG>Still Of The Night</STRONG>.<BR>Фидео на песни <STRONG>Forevermore</STRONG> и <STRONG>Steal Your Heart Away</STRONG>, сделанные фанатами.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист CD 1 <EM>(deluxe издание)</EM>:<BR><STRONG>Best Years</STRONG>; <STRONG>Give Me All Your Love Tonight</STRONG>; <STRONG>Love Ain’t No Stranger</STRONG>; <STRONG>Is This Love</STRONG>; <STRONG>Steal Your Heart Away</STRONG>; <STRONG>Forevermore</STRONG>; <STRONG>Six String Showdown</STRONG>; <STRONG>Love Will Set You Free</STRONG>; <STRONG>Drum Solo</STRONG>; <STRONG>Fool For Your Loving</STRONG>; <STRONG>Here I Go Again</STRONG>; <STRONG>Still Of The Night</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Bonus CD 2 - Soundcheck <EM>(deluxe издание)</EM>:<BR><STRONG>Love Will Set You Free</STRONG>; <STRONG>Steal Your Heart Away</STRONG>; <STRONG>Fare Thee Well (Acoustic Version)</STRONG>; <STRONG>One Of These Days (Acoustic Version)</STRONG>; <STRONG>Lay Down Your Love</STRONG>; <STRONG>Evil Ways</STRONG>; <STRONG>Good To Be Bad (Acoustic Version)</STRONG>; <STRONG>Tell Me How (Acoustic Version)</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Состав <STRONG>WHITESNAKE</STRONG> во время японского тура 2011:</FONT></P>
+<P><STRONG>Doug Aldrich</STRONG> - гитара<BR><STRONG>Reb Beach</STRONG> - гитара<BR><STRONG>Michael Devin</STRONG> - бас<BR><STRONG>Brian Tichy</STRONG> - барабаны<BR><STRONG>Brian Ruedy</STRONG> - клавиши<BR><STRONG>David Coverdale</STRONG> - вокал</P>
+Автор: Headcrusher
+
+### 04.09.2014 news Новый гитарист в WHITESNAKE
+
+<P><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2014.09/27249.jpg" width=300 height=363>Группа <STRONG>WHITESNAKE</STRONG> объявила, кто займёт место&nbsp;гитариста&nbsp;Дуга&nbsp;Элдрича (<STRONG>Doug Aldrich</STRONG>), покинувшего Ковердейла и компанию в мае этого&nbsp;года&nbsp;после 11 с лишним лет совместного сотрудничества.&nbsp;</P>
+<P>Счастливчиком стал <STRONG>Joel Hoekstra</STRONG> <EM>(на фото)</EM>, который в свою очередь оставил коллектив <STRONG>NIGHT RANGER</STRONG>, чтобы присоедениться&nbsp;&nbsp;к&nbsp;&nbsp;<STRONG>WHITESNAKE</STRONG>. <STRONG></STRONG></P>
+<P><STRONG>Hoesktra</STRONG> являлся участником <STRONG>NIGHT RANGER </STRONG>с 2008 года и записал с&nbsp;ними&nbsp;студийные альбомы <STRONG>"Somewhere In California"</STRONG> (2011)&nbsp;и новейший <STRONG>"High Road"</STRONG>,&nbsp;а также акустический концертник&nbsp;под названием&nbsp;<STRONG>"24 Strings & a Drummer" </STRONG>2012 года, посвящённый&nbsp;тридцатилетию группы.</P>
+<P><EM>"Все были под впечатлением от него, не только за его великолепную игру на гитаре, но и за его приятную натуру,"</EM> - написал <STRONG>David Coverdale</STRONG> на официальном сайте <STRONG>WHITESNAKE</STRONG> о Джоеле. <EM>"Он безусловно был одним из первых, кто пришёл нам на ум, когда мы стали искать замену Дугу."</EM></P>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Whitesnake Reunion 2003

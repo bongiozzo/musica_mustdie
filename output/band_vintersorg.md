@@ -189,6 +189,728 @@ Urv?dersf?ngen
 * C группой "Testament" Asgeir Mickelson (drums)
 * C группой "Otyg" Mattias Marklund (guitar)
 
+## Публикации
+
+### 19.03.1999 reviews 
+
+<p>VINTERSORG - это группа одного человека, которого зовут...Vintersorg. Когда-то он возглавлял проект под названием VARGATRON. Но проект не выжил, однако, Vintersorg выпустил материал записанный VARGATRON'ом под своим именем в виде мини-альбома. Как говорится, чтобы зря не пропадал. Материал произвёл эффект взорвавшейся бомбы. Естественно, что все пожелали продолжения. Этого не пришлось долго ждать. И вот я слушаю новый альбом записанный одним человеком, и поневоле прихожу в восторг. Потрясающий black-metal с чистым мужским вокалом, лишь изредка вклинивается black-voice в качестве back-vocals, в смысле, на подпевках. Музыка записана в среднем темпе, что сразу придаёт ей эпичность и гимновость. Языческие идеи пронизывают весь альбом. Кстати, он здорово схож по духу со STORM'ом. Да и концепция у них одинакова. А действительно, если бы прибавить женский вокал, то вылитый STORM. На альбоме вовсю используется норвежский фольклор. Причём, как народный, так и классический(временами проскакивает ГРИГ). Очень вкусно и оригинально. Замечательнейший folk-pagan-black. Очень советую!</p>
+
+Автор: Dimas
+
+### 22.12.1999 reviews 
+
+<p>Это уже второй альбом этого сумрачного шведа. Очень плодотворно работает. Надо ещё учитывать, что он - лидер группы OTYG, которая тоже отметилась альбомом в этом году и очень даже неплохим. Надо признать, что VINTERSORG не зацикливается на чём-то одном. Все его три альбома вышедшие в 1999 году разные как по музыке, так и по её восприятию. Но в основе одно - эпический viking-black-metal. не будем сейчас говорить об OTYG. Поговорим о сольном проекте VINTERSORG'a. Дебютный его альбом представлял собой среднескоростной heavy-black с хрипящими чистым вокалами, массой мелодий. Что ни песня - то гимн (по духу). Теперь же, VINTERSORG решил попробовать себя на новой стези. Прибавил скорости, ритм-секцию от шведского death-metal, женский вокал на подпевки. Опять же масса мелодий. Получилось что-то вроде DARK TRANQUILLITY, но с уклоном в nordic-black-metal. Хрипящего вокала стало заметно меньше, в основном чистый, хорошо узнаваемый. Также много фольклорных фишек. Прекрасно, так держать!(9)</p>
+
+Автор: Vit Belov
+
+### 06.09.2000 news Vintersorg закончил запись альбома.
+
+<p> Vintersorg завершил запись своего нового альбома "Cosmic Genesis". Этот релиз будет выпущен на Napalm Records и появится в продаже в октябре. Трэк-лист альбома: "Cosmic Genesis", "Algol", "Astral and Arcane", "Ars Memorativa", "A Dialogue with the Stars", "The Enigmatic Spirit", "Om Regnbagen Matrialiserades", "Naturens Galleri", "Rainbow Demon".</p>
+
+Автор: Morsus
+
+### 06.09.2000 news Vintersorg finished the recordings to album.
+
+<p> Vintersorg finished the recordings to their new album "Cosmic Genesis". This release will be available in October on Napalm Records. The songtitles are: "Cosmic Genesis", "Algol", "Astral and Arcane", "Ars Memorativa", "A Dialogue with the Stars", "The Enigmatic Spirit", "Om Regnbagen Matrialiserades", "Naturens Galleri", "Rainbow Demon".</p>
+
+Автор: Morsus
+
+### 21.09.2000 news Новости  от Napalm Records
+
+<p> Несколько новостей от Napalm Records. <br>16 октября состоится релиз нового альбома TRAIL OF TEARS. VINTERSORG закончили запись нового диска "Cosmic Genesis". Альбом поступит в продажу в октябре. DARKWELL закончили работу в студии. Protector из Dvke и Summoning выпускает альбом "This Killing Emptiness" в рамках своего нового проекта ICE AGES, в котором собирается поэкспериментировать с электронным, "механизированным" звучанием. Группа TRISTANIA готовится на два месяца отправиться в Soundsuite Studio для записи нового альбома. KREUZWEG OST - так называется новый проект Мартина Ширенка (Hollenthon, ex-Pungent Stench) и Силениуса (ex-Abigor, Summoning). Совсем недавно в продаже появилось официальное видео группы DISMAL EUPHONY. FALKENBACH отправляются в Blue House Studio, чтобы записать свой новый альбом. LACRIMAS PROFUNDERE тоже на днях отправились в студию (Lungfull Studio).</p>
+
+Автор: Nybras
+
+### 28.11.2000 news Borknagar представляют нового вокалиста.
+
+<p>Borknagar с гордостью представляют нового вокалиста. Вы не могли не слышать о нем прежде, поскольку его имя - Vintersorg! С этого дня он берет на себя обязанности нового постоянного вокалиста Borknagar. Сотрудничество основано на взаимных музыкальных интересах, общих взглядах и дружбе. Фэны группы Vintersorg при этом могут не волноваться, поскольку группа не прекращает своего существования и ей не наносится никакого ущерба.</p>
+
+Автор: Morsus
+
+### 28.11.2000 news Borknagar announce new vocalist.
+
+<p>Borknagar are proud to present new vocalist. You might have heard of him before, as his name is Vintersorg! From this day forth he will take on the duty of being the new permanent vocalist in Borknagar. The collaboration is based on mutual musical interests, visions and friendship. Fans of the band Vintersorg should not worry, as this will not interfere, stop or cripple this band in any way.</p>
+
+Автор: Morsus
+
+### 09.12.2000 news Vintersorg уже подготовил новый материал.
+
+<p>Новый альбом только что вышел, а Vintersorg уже сочинил несколько новых песен. Музыка будет в прежнем стиле, но более технически завершённая. Можно сказать, что это - "Cosmic Genesis", возведённый на следующий уровень. Названия некоторых композиций: "Spegelsfaren", "A metaphysical drama", "E.S.P. mirage - visions from the spiral generator" и "Universums dunkla alfabet".</p>
+
+Автор: Morsus
+
+### 09.12.2000 news Vintersorg already has some new material ready.
+
+<p>The new album is just released, but still Vintersorg already has some new material ready. The music will point in the same direction, but with more completion involved in it. Let's say it's "Cosmic Genesis" taken to the next level. Some songtitles are: "Spegelsfaren", "A metaphysical drama", "E.S.P. mirage - visions from the spiral generator" and "Universums dunkla alfabet".</p>
+
+Автор: Morsus
+
+### 26.12.2000 reviews Альбом с космической энергетикой
+
+<p>Альбом с космической энергетикой. Anders Hedlund уже отметился в этом году участием в проекте Havayoth, который наруливает нечто прогрессивно-депрессивное. А он ведь еще и лидер Otyg. Все группы в которых он задействован, играют совершенно разноплановую музыку. В своем же сольном проекте он стремится создать нечто потрясающее и оригинальное. Если вспоминать, то только первое его творение, а именно мини-альбом "Hedniskjartad" 1998 года был мелодичным black-metal. Все последующие творения были экспериментальными скрещиваниями viking-metal с другими тяжелыми стилями. . Например, на предыдущем альбоме viking-metal скрещивался с элементами шведского мелодичного death-metal. А на "Cosmic Genesis" присутствуют множественные элементы power-speed-metal. Получился этакий viking-speed-metal. При этом оригинальный, мелодичный и очень интересный. Вы безусловно многое потеряете, если не послушаете этот монументальный металлический эпос.</p>
+
+Автор: Dimas
+
+### 05.03.2001 news Tour dates 3
+
+<p>VINTERSORG<BR>4/6 Convention Hall - Asbury Park, NJ ^Metal Meltdown^<BR>4/8 Le Medley - Montreal, QUE w/Anhkrehg, Migister Dixit, etc<BR><BR> <BR>YNGWIE J. MALMSTEEN w/ Lizzy Borden<BR>3/11 Canyon Club - Dallas, TX<BR>3/12 Numbers - Houston, TX<BR>3/13 Sunset Station - San Antonio, TX<BR>3/14 The Back Room - Austin, TX<BR>3/16 Five Points Music Hall - Birmingham, AL<BR>3/17 328 Performance Hall - Nashville, TN<BR>3/18 The Masquerade - Atlanta, GA<BR>3/19 Frankie's Patio Bar & Grill - Tampa, FL<BR>3/20 Orbit - Boynton Beach, FL<BR>3/21 Lillian's - Jacksonville Beach, FL<BR>3/23 Tremont Music Hall - Charlotte, NC<BR>3/25 NorVA Theater - Norfolk, VA<BR>3/26 Ziggy's - Winston-Salem, NC<BR>3/27 House of Blues - N. Myrtle Beach, SC<BR>3/28 Jaxx - W. Springfield, VA<BR>3/29 Mulcahy's - Wantagh, NY<BR>3/30 Birch HIll - Old Bridge, NJ<BR>3/31 Saratoga Winners - Cohoes, NY<BR>4/1 Webster Theater - Hartford, CT<BR>4/4 Beehive Theater - Pittsburgh, PA<BR>4/5 Sideshow Music Hall - Lackawanna, NY<BR>4/6 Dock's Concert Hall - Toronto, ONT<BR>4/7 Harpo's - Detroit, MI<BR>4/8 The Odeon - Cleveland, OH<BR>4/10 Newport Music Hall - Columbus, OH<BR>4/11 House of Blues - Chicago, IL<BR>4/12 The Rave - Milwaukee, WI<BR>4/13 Fine Line Music Cafe - Minneapolis, MN<BR>4/14 Rnach Bowl Ent. Center - Omaha, NE<BR>4/17 The Pageant - St Louis, MO<BR>4/18 The Beaumont Club - Kansas City, MO<BR>4/20 Ogden Theater - Denver, CO<BR>4/21 Colorado Music Hall - Colorado Springs, CO<BR>4/23 The Metro - Tucson, AZ<BR>4/24 Cane's Bar & Grill - San Diego, CA<BR>4/25 Ventura Theater - Ventura, CA<BR>4/26 House of Blues - Los Angeles, CA<BR>4/27 House of Blues - Las Vegas, NV<BR>4/28 House of Blues - Anaheim, CA</P></p>
+
+Автор: Yermola
+
+### 14.03.2001 news Новости от Vintersorg...
+
+<p>Vintersorg практически заканчивает запись своего нового альбома 'Visions From The Spiral Generator'. Трек-лист: "E.S.P. Mirage (Visions From The Spiral Generator," "The Explorer," "Vem Styr Symmetrin," "A Metaphysical Drama," "Universums Dunkla Alfabet," "Spegelsfaren," и "Star-Guarded Coronation." Кроме того певец записал вокальные партии для нового альбома Borknagar: "Gods Of My World," "The Stellar Dome," "Liberated," и "The Black Canvas." И собственный и Боркнагаровский альбомы выходят до конца этого года.</p>
+
+Автор: Yermola
+
+### 14.03.2001 news The busy, busy life of Vintersorg...
+
+<p>Newly-appointed Borknagar vocalist Vintersorg has been very busy as of late. Napalm Records has just issued his fourth release, 'Cosmic Genesis,' and he is scheduled to play the Metal Meltdown in New Jersey in April, in addition to some select Canadian dates. He has also finished writing most of the next Vintersorg album, which is tentatively titled 'Visions From The Spiral Generator.' Some new songtitles include "E.S.P. Mirage (Visions From The Spiral Generator," "The Explorer," "Vem Styr Symmetrin," "A Metaphysical Drama," "Universums Dunkla Alfabet," "Spegelsfaren," and "Star-Guarded Coronation." Meanwhile, Vintersorg has finished writing vocal patterns for four new Borknagar songs: "Gods Of My World," "The Stellar Dome," "Liberated," and "The Black Canvas." New Vintersorg and Borknagar albums will be available by the end of the year...</p>
+
+Автор: Yermola
+
+### 17.09.2001 news Фрагменты и альтернативы...
+
+<p>Предваряя выход VINTERSORG'овского "Visions From The Spiral Generator", сам Vintersorg решил выпустить EP "Fragments And Alternatives" с коллекцией старых вещей исполненных в экспериментальном стиле и с несколькими новыми творениями... 01. Till Fj&auml;lls (Evolution Mix) 02. Cosmic Genesis (Space Jazz Version) 03. Stilla (The Intense Nature Looped) 04. &Ouml;demarkens Son (Sounds Of Uncontrolled Metaphysics) 05. Blindsight Complexity (новая!) 06. Fr&aring;n Materia Till Ande (новая!) 07. A Sphere In A Sphere (To Infinity) (новая!)</p>
+
+Автор: Yermola
+
+### 17.09.2001 news Fragments And Alternatives...
+
+<p>Sweden’s VINTERSORG, featuring vocalist Vintersorg of the Norwegian band BORKNAGAR, are planning on following up the release of their Visions From The Spiral Generator album with a collection of re-recordings of older VINTERSORG songs, performed in a different, more “experimental” style, along with several new tracks. The planned EP will likely carry the title Fragments And Alternatives, and it will contain the following songs, among others: 01. Till Fjдlls (Evolution Mix) 02. Cosmic Genesis (Space Jazz Version) 03. Stilla (The Intense Nature Looped) 04. Цdemarkens Son (Sounds Of Uncontrolled Metaphysics) 05. Blindsight Complexity (new) 06. Frеn Materia Till Ande (new) 07. A Sphere In A Sphere (To Infinity) (new) Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 16.03.2002 news OTYG news
+
+<p>OTYG, the side project of VINTERSORG/BORKNAGAR vocalist Vintersorg and VINTERSORG guitarist Mattias Marklund, has been officially “put to sleep”, according to an official statement from the duo.</p>
+
+Автор: Dimas
+
+### 16.03.2002 news OTYG заморозили
+
+<p>По обоюдному официальному заявлению Vintersorg'a (вокалист VINTERSORG и BORKNAGAR) и Mattias Marklund'a (гитарист VINTERSORG), их сайд-проект OTYG заморожен на неопределенное времяв связи с отсутствием в настоящий момент полноценных идей и желания записывать подобную музыку.</p>
+
+Автор: Dimas
+
+### 06.05.2002 news VINTERSORG MP3 ...
+
+<p><A HREF="http://home.pi.be/~vercaua1/uni.mp3">Здесь </A>можно скачать МР3 песни VINTERSORG - "Universums Dunkla Alfabet" с еще не вышедшего альбома "Visions From The Spiral Generator" ...</p>
+
+Автор: Yermola
+
+### 06.05.2002 news New VINTERSORG MP3 Posted ...
+
+<p>VINTERSORG have posted an MP3 of the track "Universums Dunkla Alfabet", taken from the group's forthcoming Visions From The Spiral Generator CD, <A HREF="http://home.pi.be/~vercaua1/uni.mp3">at this location.</A></p>
+
+Автор: Yermola
+
+### 29.08.2002 reviews Видения из Спирального Генератора
+
+<p>Вот и дождались мы четвертого полнометражного альбома талантливого шведского викинга-барда по имени Vintersorg. Новый альбом сделан в ещё более прогрессивном и экспериментальном ключе, чем предыдущие работы группы. Он затрагивает вопросы науки, основные принципы и веру, силы создавшие нас и вселенную, клубок бесконечных математических и философских дилемм. Наша галактика - это гигантская спираль. В музыкальном плане - это progressive viking metal. Мелодичный, энергичный и несколько обескураживающий. Для сравнения, на ум приходит только последняя работа BORKNAGAR "Empiricism". Музыка на альбоме довольно сложна в техническом плане. Ради записи такого материала Vintersorg пригласил опытнейших музыкантов. На басу (безладовом) записался Steve Di Giorgio (SADUS. DEATH, TESTAMENT, CONTROL DENIED, ICED EARTH - это лишь неполный перечень групп, где засветился этот талантливый музыкант). Также, было принято решение отказаться от драм-машины, и в качестве ударника записался Asgeir Mickelson (SPIRAL ARCHITECT, BORKNAGAR). Ну и еще один участник - вечный сподвижник Vintersorg'a - Mattias Marklund (еще со времен OTYG). Таланты всех музыкантов принявших участие в записи, поневоле обрекли этот альбом на успех. Музыка сделанная со вкусом, невероятно техничная, при этом очень мелодичная. В основном господствует уникальный чистый вокал, скриминг здесь в качестве бэк-вокала и подпевок. Звук очень качественный, плотный и естественный. Наряду с динамичными брутальными моментами здесь есть и лирические акустические фрагменты с незначительными влияниями шведского фольклора. Трудно сказать, лучше ли этот альбом, чем предыдущий "Cosmic Genesis"или нет. Кому-то он понравится больше, кому-то меньше. Но, в любом случае, этот альбом не стоит обделять вниманием. Не часто можно услышать подобное...</p>
+
+Автор: Dimas
+
+### 25.02.2003 news Vintersorg уже работают над новым альбомом
+
+<p>Vintersorg работает над новым альбомом. Музыка отойдёт от направления принятого на Visions... . От progressive до эктремального металла, от ambient к фольклору. Альбом будет называться The Focusing Blur.</p>
+
+Автор: Vit Belov
+
+### 25.02.2003 news Vintersorg already writes new material
+
+<p>VINTERSORG is currently working on its next release. Described as a concept album revolving around man's hunger for science and faith, the music will take off where Visions from the Spiral Generator left off. From mellow progressive to extreme metal, from ambient to "folky", The Focusing Blur promises effective contrasts and changing directions united under one musical vision.</p>
+
+Автор: Vit Belov
+
+### 14.10.2003 news Новый альбом VINTERSORG
+
+<P>Вокалист <B>BORKNAGAR</B> <B>Andreas Hedlund</B> (a.k.a. <B>Vintersorg</B>) готовит к выпуску на <B>Napalm Records </B>в конце 2003 - начале 2004 года новый альбом своего проекта <B>VINTERSORG</B> под названием <B>"The Focusing Blur"</B>.&nbsp;Сам автор характеризует новый материал, как сложный и, одновременно, плавный, с равновесным балансом присущих группе элементов и нововведений. Предварительный трэк-лист альбома:</P>
+<P><IMG height=220 alt="" hspace=100 src="/images/news_rus/2003.10/5078.jpg" width=220 align="right" border=0></P>
+<P>1. Prologue Dialogue<BR>2. The Essence <BR>3. The Thesises Seasons <BR>4. Matrix Odyssey <BR>5. Star Puzzled <BR>6. A Sphere In A Sphere (To Infinity) <BR>7. Blindsight Complexity <BR>8. Artifacts Of Chaos <BR>9. Dark Matter Mystery/Blackbody Spectrum <BR>10. Curtains <BR>11. A Microscopical Macrocosm </P>
+Автор: Dimas
+
+### 26.11.2003 news Vintersorg запустил новый проект
+
+<B>Vintersorg</B> запустил новый проект, на этот раз в жанре melodic thrash-metal. В этом начинании ему поможет концертный барабанщик одноимённой группы <B>Benny Hagglund</B>.&nbsp;Альбом выйдет в начале года на <B>Napalm records</B>.
+Автор: Vit Belov
+
+### 26.11.2003 news VINTERSORG launched new project
+
+<B>Vintersorg (Borknagar, Vintersorg)</B> has started this new melodic thrash project with <B>Vintersorg</B> live drummer <B>Benny Hagglund</B> - the debut is expected to see an early 2004 release through <B>Napalm Records.</B><BR>
+Автор: Vit Belov
+
+### 30.04.2004 reviews Очередной альбом не для слабонервных
+
+<P><I><B>VINTERSORG</B> перестал записывать viking-альбомы, что в общем-то огорчительно, но не слишком. На новом опусе этот норвежец вытянет из Вас все жилы, у Вас начнётся жар, и Вы ощутите почти физическую усталость.</I></P>
+<P>Этот альбом для музыкальных мазохистов, которые готовы слушать песни, которые не обращаются к сердцу, а поражают прямо мозг. Альбом <B>VINTERSORG</B> дослушать до конца по силам только самым стойких из них. Мелодично-индустриальное интро сразу напоминает о том, чью пластинку Вы слушаете. Затем начинается gothic-rock в духе ещё одного проекта <B>Vintersorg</B>'a <B>HAVAYOTH</B>, но не успеет он запеть, как Вас втопчет в землю ураганный black-metal. После этого Вы немного послушаете прогрессивного black-metal, затем опять gothic-rock, потом art-rock и даже фортепианный джаз. Не очень стойкие начнуть&nbsp;выпадать&nbsp;в осадок уже&nbsp;к третьей песне, ну и уж точно практически никто не сможет послушать <B>'The Focusing Blur'</B> два раза подряд.</P>
+<P>Подобные альбомы можно называть гениальными, можно сумасшедшими, но их точно&nbsp;нельзя назвать скучными. </P>
+Автор: Vit Belov
+
+### 12.05.2004 articles TOP-50 лицензионных дисков за апрель
+
+<TABLE cellSpacing=0 cellPadding=0 width=644 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 142pt" width=189>
+<COL style="WIDTH: 245pt" width=327>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17><B>1(3)</B></TD>
+<TD width=189><B>IN FLAMES</B></TD>
+<TD width=327><B>SOUNDTRACK TO YOUR ESCAPE</B></TD>
+<TD width=64><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>2 (12)</B></TD>
+<TD width=189><B>UDO</B></TD>
+<TD width=327><B>THUNDERBALL</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>3(1)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>4 (2)</B></TD>
+<TD><B>EDGUY</B></TD>
+<TD><B>HELLFIRE CLUB + 2 bonus tracks</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CATHARSIS</B></TD>
+<TD><B>ПРИЗРАЧНЫЙ СВЕТ</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189><B>AXXIS</B></TD>
+<TD width=327><B>TIME MACHINE</B></TD>
+<TD width=64><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>TROLLHAMMAREN EP</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>PERSEPHONE</B></TD>
+<TD><B>ATMA GYAN</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>JANUS</B></TD>
+<TD><B>AUFERSTEHONG…</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>VINTERSORG</B></TD>
+<TD><B>THE FOCUSING BLUR</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=189>DIONYSUS</TD>
+<TD width=327>ANIMA MUNDI</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANAGE</TD>
+<TD>DRIVEN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (7)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEICIDE</TD>
+<TD width=327>SCARS OF THE CRUCIFIX</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DREAMAKER</TD>
+<TD width=327>HUMAN DEVICE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ORPHANED LAND</TD>
+<TD>MABOOL</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ARCH ENEMY</TD>
+<TD>WAGES OF SIN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>19 (Re)</TD>
+<TD>СЕРГЕЙ МАВРИН (ex-АРИЯ)</TD>
+<TD>ЗАПРЕЩЕННАЯ РЕАЛЬНОСТЬ</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>20 (37)</TD>
+<TD>SECRET DISCOVERY</TD>
+<TD>PRAY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>21 (6)</TD>
+<TD width=189>MY DYING BRIDE</TD>
+<TD width=327>SONGS OF DARKNESS WORDS OF LIGHT</TD>
+<TD width=64>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DECAPITATED</TD>
+<TD width=327>THE NEGATION</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MAGNITUDE NINE</TD>
+<TD>DECODING THE SOUL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DESTRUCTION</TD>
+<TD>ALIVE DEVASTATION</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARK TRANQUILLITY</TD>
+<TD width=327>LIVE DAMAGE DVD</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (30)</TD>
+<TD>BLUTENGEL</TD>
+<TD>ANGEL DUST</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (22)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>MONSTER MAGNET</TD>
+<TD width=327>MONOLITHIC BABY!</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JOHNNY LIMA</TD>
+<TD width=327>MADE IN CALIFORNIA</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>THRESHOLD</TD>
+<TD width=327>CRITICAL ENERGY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DARE</TD>
+<TD width=327>BELIEF</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>KHARMA</TD>
+<TD width=327>WONDERLAND</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (Re)</TD>
+<TD>KING DIAMOND</TD>
+<TD>THE PUPPET MASTER</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF THE BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>STORMWIND</TD>
+<TD>LEGACY</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (21)</TD>
+<TD>IN STRICT CONFIDENCE</TD>
+<TD>HOLY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>HAUJOBB</TD>
+<TD>VERTICAL THEORY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>NOTRE DAME</TD>
+<TD width=327>DEMI MONDE BIZARRES</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>SEVENTH KEY</TD>
+<TD width=327>THE RAGING FIRE</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>HEADLINE</TD>
+<TD width=327>DUALITY</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>42 (16)</TD>
+<TD width=189>BESEECH</TD>
+<TD width=327>DRAMA</TD>
+<TD width=64>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>BORKNAGAR</TD>
+<TD>EMPIRICISM</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>DEATHWITCH</TD>
+<TD width=327>VIOLENCE BLASPHEMY SODOMY</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FAITH AND THE MUSE</TD>
+<TD>THE BURNING SEASON</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>KOTIPELTO</TD>
+<TD>WAITING FOR THE DAWN</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>GRIP INC.</TD>
+<TD width=327>INCORPORATED</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>48 (4)</TD>
+<TD>CRUACHAN</TD>
+<TD>PAGAN</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>49 (18)</TD>
+<TD width=189>ARDA</TD>
+<TD width=327>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD width=64>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=189>JIMI JAMISON</TD>
+<TD width=327>EMPIRES</TD>
+<TD width=64>CD-MAX</TD></TR></TBODY></TABLE>
+Автор: Vit Belov
+
+### 02.06.2004 articles TOP-50 лицензионных дисков за май
+
+<P>Результаты продаж на точке B2-100 'Metal&Progressive' в ТВЦ "Рубин"</P>
+<P>
+<TABLE cellSpacing=0 cellPadding=0 width=608 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 175pt" width=233>
+<COL style="WIDTH: 185pt" width=247>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD width=64 height=17></TD>
+<TD width=233><B>NIGHTWISH</B></TD>
+<TD width=247><B>NEMO (single)</B></TD>
+<TD width=64><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>FINNTROLL</B></TD>
+<TD><B>NATTFODD</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>CREMATORY</B></TD>
+<TD><B>REVOLUTION</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>SCORPIONS</B></TD>
+<TD><B>UNBREACKABLE</B></TD>
+<TD><B>BMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>EVERGREY</B></TD>
+<TD><B>THE INNER CIRCLE</B></TD>
+<TD><B>Soyuz</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>NOCTURNAL RITES</B></TD>
+<TD><B>NEW WORLD MESSIAH</B></TD>
+<TD><B>Fono</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD width=233><B>MAYHEM</B></TD>
+<TD width=247><B>CHIMERA</B></TD>
+<TD><B>CD-MAX</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>HAGGARD</B></TD>
+<TD><B>EPPUR SI MUOVE</B></TD>
+<TD><B>AMG</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD><B>MONSTERS OF METAL - 2</B></TD>
+<TD><B>THE ULTIMATE METAL COMPILATION (2 DVD)</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B>10 (3)</B></TD>
+<TD><B>SIRENIA (ex-TRISTANIA)</B></TD>
+<TD><B>AN ELIXIR FOR EXISTENCE</B></TD>
+<TD><B>Irond</B></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17><B></B></TD>
+<TD>BLAZE</TD>
+<TD>BLOOD & BELIEF</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>DEATH ANGEL</TD>
+<TD>THE ART OF DYING</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>13 (1)</TD>
+<TD>IN FLAMES</TD>
+<TD>SOUNDTRACK TO YOUR ESCAPE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>14 (4)</TD>
+<TD>EDGUY</TD>
+<TD>HELLFIRE CLUB + 2 bonus tracks</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>CELESTY</TD>
+<TD>LEGACY OF HATE</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICON OF COIL</TD>
+<TD>MACHINES ARE US</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>АРКОНА</TD>
+<TD>ВОЗРОЖДЕНИЕ</TD>
+<TD>SoundAge</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>WATING THE DAWN</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>BLESSED BE</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>PARIS KILLS</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THE 69 EYES</TD>
+<TD>FRAMED IN BLOOD</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>22 (2)</TD>
+<TD width=233>UDO</TD>
+<TD width=247>THUNDERBALL</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>TILES</TD>
+<TD>WINDOW DRESSING</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>24 (10)</TD>
+<TD>VINTERSORG</TD>
+<TD>THE FOCUSING BLUR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>EVERON</TD>
+<TD>FLESH</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>НАТИСК</TD>
+<TD width=247>НЕБО В ОГНЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>27 (13)</TD>
+<TD>NORTHER</TD>
+<TD>DEATH UNLIMITED</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>28 (5)</TD>
+<TD>CATHARSIS</TD>
+<TD>ПРИЗРАЧНЫЙ СВЕТ +multimedia</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>29 (49)</TD>
+<TD width=233>ARDA</TD>
+<TD width=247>О СКИТАНИЯХ ВЕЧНЫХ И О ЗЕМЛЕ</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>30 (21)</TD>
+<TD width=233>MY DYING BRIDE</TD>
+<TD>SONGS OF DARKNESS…</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>NIGHT OF STORMBRINGER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>32 (26)</TD>
+<TD>DREAM EVIL</TD>
+<TD>DRAGONSLAYER</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>33 (16)</TD>
+<TD>BESEECH</TD>
+<TD>BLACK EMOTIONS</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>34 (28)</TD>
+<TD>PRIMAL FEAR</TD>
+<TD>DEVIL'S GROUND</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>KRUGER</TD>
+<TD width=247>NO КОМПРОМИСС</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>THRESHOLD</TD>
+<TD>EXTINCT INSTINCT</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>37 (Re)</TD>
+<TD>FEAR CULT</TD>
+<TD>VISIONARY COMPLEX</TD>
+<TD>Irond - DD</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>38 (35)</TD>
+<TD>DOMINE</TD>
+<TD>EMPEROR OF BLACK RUNES</TD>
+<TD>AMG</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>39 (6)</TD>
+<TD width=233>AXXIS</TD>
+<TD width=247>TIME MACHINE</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>SHAKRA</TD>
+<TD width=247>RISING</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>ICED EARTH</TD>
+<TD>BURNT OFFERINGS</TD>
+<TD>Fono</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE FINAL EXPERIMENT</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>ACTUAL FANTASY</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>FLIGHT OF THE MIGRATOR</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>THE DREAM SEQUENCER</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17>46 (11)</TD>
+<TD width=233>DIONYSUS</TD>
+<TD width=247>ANIMA MUNDI</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>AYREON</TD>
+<TD>INTO THE ELECTRIC CASTLE (a space opera) (2CD)</TD>
+<TD>Irond</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD width=233>DRASTIQUE</TD>
+<TD width=247>PLEASURELIGION</TD>
+<TD>CD-MAX</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>MESSIAH'S KISS</TD>
+<TD>METAL</TD>
+<TD>Soyuz</TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD height=17></TD>
+<TD>FORGIVE-ME-NOT</TD>
+<TD width=247>HEAVENSIDE</TD>
+<TD>Soyuz</TD></TR></TBODY></TABLE></P>
+Автор: Vit Belov
+
+### 27.11.2006 news VINTERSORG продлил контракт с Napalm Records
+
+<P><STRONG>VINTERSORG</STRONG>, шведский коллектив, лидером которого является вокалист <B>BORKNAGAR Andreas Hedlund</B> (которого и кличут <B>Vintersorg</B>), продлил соглашение с <B>Napalm Records</B> на выпуск всех последующих своих работ. В данный момент, идет работа над новым материалом, который будет более folk metal ориентированным, чем ранние альбомы. Рабочее название нового релиза <B>"Solens Rotter"</B> (в переводе с шведского на английский "<STRONG>The Sun's Roots</STRONG>"). </P>
+Автор: Dimas
+
+### 06.01.2007 news Новый VINTERSORG
+
+<P><STRONG>VINTERSORG</STRONG> продолжает работу над новой пластинкой "<STRONG>Solens Roter</STRONG>". Альбом находится на стадии сведения. Вот название некоторых песен: <STRONG>'Kosmosaik'</STRONG>, <B>'Naturens Myst&#228;r'</B>, <B>'Vad Aftonvindens Andning Viskar'</B>, <B>'Spirar och Gror'</B>, <B>'Str&#229;lar'</B>. Лидер группы <STRONG>Andreas Hedlund</STRONG> просит нас не ждать второй части "<STRONG>Focusing Blur</STRONG>" и обещает некие нововведения.</P>
+Автор: Vit Belov
+
+### 02.02.2007 news Дата релиза VINTERSORG
+
+<P><IMG height=100 alt="" hspace=0 src="/images/news_rus/2007.02/11250.jpg" width=100 align=left border=5>Новый альбом <STRONG>VINTERSORG "Solens Rutter"</STRONG> выходит 27 апреля на <STRONG>Napalm</STRONG>.</P>
+Автор: Vit Belov
+
+### 08.11.2009 news VINTERSORG пишет альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>VINTERSORG </STRONG>работает над новым альбомом, который выйдет в 2010 году на <STRONG>Napalm Records</STRONG>. Уже записаны клавиши и вокал, осталось прописать гитары и барабаны.</FONT></P>
+Автор: Vit Belov
+
+### 26.01.2011 news Новый альбом VINTERSORG
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=400 alt="" hspace=0 src="/images/news_rus/2011.01/18333.jpg" width=400 align=right border=0>Восьмой альбом<STRONG> VINTERSORG</STRONG> <STRONG>"Jordpuls" </STRONG>выходит 25 марта на<STRONG> Napalm Records</STRONG>. В этот раз все песни альбома <STRONG>Andreas Hedlund </STRONG>исполнил на шведском языке. Трэк-лист:</FONT></P>
+<P>01. <B>Vrldsalltets Fanfar</B><BR>02. <B>Klippor Och Skar</B> <BR>03. <B>Till Danet Av Forsar Och Fall</B> <BR>04. <B>Mork Nebulosa</B> <BR>05. <B>Stjarndyrkan</B> <BR>06. <B>Skogen Sover</B> <BR>07. <B>Vindogat</B> <BR>08. <B>Palissader</B> <BR>09. <B>Eld Och Lagor</B></P>
+Автор: Vit Belov
+
+### 01.08.2011 reviews VINTERSORG нашёл золотую середину
+
+<P>После четырёхлетнего перерыва к нам вернулся один из самых разносторонних музыкантов шведской сцены VINTERSORG со своим новым альбомом “Jordpuls”. Понятно, что данный персонаж не может выпускать пластинки слишком часто, его музыка требует полнейшей отдачи, ведь Andreas Hedlund старается, чтобы каждая его композиция, сочинённая для VINTERSORG, разрушала рамки любых стилевых ограничений.</P>
+<P>На “Jordpuls” музыкант вновь вернулся к более простому для восприятия творчеству. Свой нешуточный композиторский потенциал он теперь реализует посредством неожиданной подачи собственных мелодий, но не авангардным построением композиций. Вновь в музыке VINTERSORG слышатся элементы фольклора, красивый «викингский» чистый вокал, и рок-настроения. “Jordpuls” вполне может показаться необычным с точки зрения стандартного поклонника тяжёлой музыки, но его необычность не выходит за привычные рамки. VINTERSORG не закручивают уши трубочкой своим фанатам в этот раз, а просто играет мелодичную музыку.</P>
+<P>Кому-то наверняка больше нравятся «заумные» работы VINTERSORG, на которых он соперничал с лучшими представителями авангардной black-metal сцены Норвегии. Кто-то до сих пор вспоминает дебютные альбомы шведов, с которыми они претендовали на ведущие роли в скандинавском viking-metal. Теперь оставшийся практически один Andreas представляет нашему вниманию нечто среднее, и у него получается приятная музыка, не хватающая звёзд с неба, но которая понравится широкому кругу ‘open mind’ поклонников метала.</P>
+Автор: Vit Belov
+
+### 03.06.2012 news Новый альбом VINTERSORG
+
+<P><IMG height=475 alt="" hspace=0 src="/images/news_rus/2012.06/24058.jpg" width=475 align=right border=0>Новая работа <STRONG>VINTERSORG "Orkan" </STRONG>выходит 29 июня на <STRONG>Napalm Records.</STRONG> Трек-лист:</P>
+<P>01. <B>Istid</B> <BR>02. <B>Ur Stjarnstoft Ar Vi Komna</B> <BR>03. <B>Polarnatten</B> <BR>04. <B>Myren</B> <BR>05. <B>Orkan</B> <BR>06. <B>Havets Nad</B> <BR>07. <B>Norrskenssyner</B> <BR>08. <B>Urvadersfangen</B> </P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### Vintersorg - здОрово просто

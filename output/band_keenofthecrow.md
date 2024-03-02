@@ -8,6 +8,14 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.06.2006 news Ещё один мрачный проект
+
+<P><STRONG>KEEN OF THE CROW -</STRONG> новый проект образованный бывшими участниками <STRONG>MORGION Rhett Davis</STRONG> и <STRONG>Justin Christian</STRONG>, вместе с музыкантом <STRONG>NEPENTHEAN Ron Slater</STRONG>, оформивший договор на выпуск альбома с немецким лейблом <STRONG>Grau records</STRONG> (подразделение <STRONG>Prophecy productions</STRONG>). Дебютная работа коллектива под названием "<STRONG>Hyborea</STRONG>", содержит девять мрачных гимнов составляющих кульминацию темной гармонии и звукового волшебства. В альбом войдут следующие вещи: <STRONG>"The Ravening", "To Reach Emptiness", "Seeking Fury, Becoming Wrath", "Mercurial", "Burning Away...", "Nightbringer", "Where Dead Kings Lie", "Speaker of the Suns"</STRONG>&nbsp;и <STRONG>"Hyborea".</STRONG> Релиз ожидается осенью.</P>
+Автор: Dimas
+
+
 ## Обсуждения
 
 

@@ -8,6 +8,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.10.2011 news APOLOKIA на My Kingdom Music
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=272 alt="" hspace=0 src="/images/news_rus/2011.10/21653.jpg" width=400 align=right border=0>Итальянские блэкари <STRONG>APOLOKIA</STRONG> подписали контракт с <STRONG>My Kingdom Music</STRONG>. После двух легендарных демо в 90-х годах и мини-альбома несколько лет назад музыканты выпускают дебютную работу “<STRONG>Kathaarian Vortex</STRONG>” весной 2012 года. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Любителям<STRONG> IMMORTAL, BURZUM</STRONG> и раннего <STRONG>MAYHEM</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>MySpace</STRONG>: <A href="http://www.myspace.com/apolokia">http://www.myspace.com/apolokia</A></FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

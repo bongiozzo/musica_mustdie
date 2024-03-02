@@ -98,6 +98,35 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 11.04.2009 news MOLOCH выпустили сразу два релиза
+
+<P><IMG height=290 alt="" hspace=0 src="/images/news_rus/2009.04/13932.jpg" width=290 align=right border=5>Украинская формация <STRONG>MOLOCH</STRONG> сообщает о выпуске сразу двух альбомов на зарубежных лэйблах. На <STRONG>Nordsturm Records</STRONG> (Германия) вышел новый альбом "<STRONG>A journey to the Vyrdin</STRONG>". Тираж - 1000 копий! Альбом, записан еще в 2008, но издан только сейчас, включает в себя 7 треков сырого депрессивного Black Metal в духе Striborg, I Shalt Become... Также на диске присутсвует dark Ambiet трек "<STRONG>Microcosmos</STRONG>" и потрясающий клавишный (!) кавер "<STRONG>En As I Dype Skogen</STRONG>" (Darkthrone). Взято из официалього сайта: "<EM>Трудно понять Вирдин... Понятия пространства и времени являются бессмысленными.. Определяющие качества здесь - сила духа и духовная чистота.. Это мой подсознательный путь в Вирдин, в сеть прочно сплетенных нитей судьбы, которые удерживают все вместе.. Прочь от нашего мира туда, где источник жизни отражает свет луны, а безликие тени вечно блуждают в поисках спокойствия..</EM>" (Пр.Сергий. 2009) Трэк-лист: </P>
+<P>1.<STRONG> Svartalfaheimr</STRONG> 02:24 <BR>2. <STRONG>Ljosalfaheimr</STRONG> 04:53 <BR>3. <STRONG>Asaheimr</STRONG> 04:29 <BR>4. <STRONG>Jotunheimr </STRONG>02:55 <BR>5. <STRONG>Helheimr</STRONG> 02:01 <BR>6. <STRONG>Vanaheimr</STRONG> 01:04 <BR>7. <STRONG>Jotunheimr (Pt. ll)</STRONG> 02:52 <BR>8.<STRONG> En As I Dype Skogen</STRONG> (Darkthrone cover) 03:24 <BR>9. <STRONG>Microcosmos</STRONG> 17:05 <BR>Total playing time 41:07 </P>
+<P>вся информация здесь: <BR><A href="http://www.nordsturm-productions.de/">http://www.nordsturm-productions.de/</A> <BR><A href="http://myspace.com/molochukr">http://myspace.com/molochukr</A> <BR><A href="mailto:moloch666@mail.ru">moloch666@mail.ru</A> </P>
+<P><IMG height=400 alt="" hspace=0 src="/images/news_rus/2009.04/13933.jpg" width=400 align=right border=5>На лейбле <STRONG>BlackMetal.com</STRONG> вышел альбом под названием "<STRONG>Depression of Surtr</STRONG>". Тираж - 1000 копий. Формат альбома - Best of/Compilation. Он включает выборочные треки с альбомов "<STRONG>A journey to the Vyrdin</STRONG>" 2008, "<STRONG>Traurer</STRONG>" 2007, неизданные треки 2008 года, а также треки с будущего альбома 2009, который также вскоре должен выйти на этом же лейбле. 19 треков добротного депрессивного black metal'а в духе I Shalt Become, Striborg. Трэк-лист: </P>
+<P>01. <STRONG>Gates of Spiritual Vyrdin</STRONG> (0:57) <BR>02.<STRONG> Ljosalfaheimr</STRONG> (4:56) <BR>03. <STRONG>Svartalfaheimr</STRONG> (2:26) <BR>04. <STRONG>Asaheimr</STRONG> (4:32) <BR>05. <STRONG>Jotunheimr</STRONG> (2:57) <BR>06. <STRONG>Helheimr</STRONG> (2:03) <BR>07. <STRONG>Vanaheimr </STRONG>(1:07) <BR>08. <STRONG>Elivagr</STRONG> (3:06) <BR>09. <STRONG>Echoes of Nidd</STRONG> (3:42) <BR>10. <STRONG>Depression of Surtr</STRONG> (5:05) <BR>11. <STRONG>Die Alte Essenz Eine Enzwischen Toten Welt</STRONG> (5:29) <BR>12. <STRONG>Sylgr Form Essence</STRONG> (6:09) <BR>+ Bonus tracks: <BR>13. <STRONG>Through Halo of Fire-Brands</STRONG> (7:24) <BR>14. <STRONG>Through Halo of Fire-Brands</STRONG> [BulgAryan Version] (5:07) <BR>15. <STRONG>Moonblood</STRONG> (3:52) <BR>16. <STRONG>Hail Black Metal Krieg [Pt. II]</STRONG> (3:14) <BR>17.<STRONG> Rotten Armful of Grey Thoughts</STRONG> (4:35) <BR>18. <STRONG>En As I Dype Skogen</STRONG> *[DARKTHRONE cover-version] (3:26) <BR>19. <STRONG>Illa Tidandi</STRONG> *[BURZUM cover-version] (1:43) </P>
+<P>Total playing time - 72 minutes. </P>
+<P>Вся информация здесь: <BR><A href="http://www.blackmetal.com/">http://www.BlackMetal.com</A> <BR><A href="http://myspace.com/molochukr">http://myspace.com/molochukr</A> </P>
+Автор: Vit Belov
+
+### 05.10.2011 news Новый альбом MOLOCH
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Украинские black-metal'исты <STRONG>MOLOCH </STRONG>выпустили новый альбом "<STRONG>Der Schein des schwarzesten Schnees</STRONG>". Музыкально работа продолжает линию, заданную двумя предшественниками "<STRONG>Misanthropie ist der einzige Weg zur Reinheit</STRONG>" и "<STRONG>A Journey to the Vyrdin</STRONG>", являясь при этом самым депрессивным альбомом <STRONG>MOLOCH</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Первоначально CD должен был выйти на лэйбле <STRONG>Blackmetal.Com</STRONG>, но контора не смогла выпустить работу по финансовым причинам. В настоящее время альбом доступен силами японского лэйбла <STRONG>Sabbathid Records</STRONG>, который также был вынужден перенести релиз, из-за трагических событий в Японии весной этого года.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/8f5OtFko3Ng?version=3"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/8f5OtFko3Ng?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+### 30.11.2011 news MOLOCH заканчивают новый альбом
+
+<P>Плодовитые украинцы<STRONG> MOLOCH</STRONG> заканчивают работу над новым альбомом "<STRONG>In meiner Herbst Welt</STRONG>". Пластинка в настоящий момент проходит мастеринг в студии <STRONG>Rob Darken (GRAVELAND)</STRONG>. Новая работа <STRONG>MOLOCH</STRONG> была впервые записана в полном составе, звук стал более мощным, а вокал более эмоциональным. Ниже можно посмотреть трейлер этого альбома.</P>
+<P>Состав:</P>
+<P><STRONG>Sergiy Fjordsson</STRONG> - vocals, keyboards, guitar<BR><STRONG>Kenneth Svartalv</STRONG> – bass (Satyricon, Gehenna, 1349, Aeternus)<BR><STRONG>S. K.</STRONG> - guitars<BR><STRONG>Marco</STRONG> – drums (Ah Ciliz, Dark Paranoia, ..., Black Hate)</P>
+<P><center><object style="height: 390px; width: 640px"><param name="movie" value="http://www.youtube.com/v/BxfYOaaSrh0?version=3&feature=player_detailpage"><param name="allowFullScreen" value="true"><param name="allowScriptAccess" value="always"><embed src="http://www.youtube.com/v/BxfYOaaSrh0?version=3&feature=player_detailpage" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="360"></object></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

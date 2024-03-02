@@ -85,6 +85,15 @@ Apokalyptic Black Metal from Germany
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 03.05.2001 news Новый альбом Aeba
+
+<p> Германские блэкушники Aeba 18-го июня разродятся новым, третьим по счету, альбомом. "Rebellion - Edens Asche" обещает быть еще более быстрым, но не менее мелодичным альбомом, чем предыдущие работы этого коллектива. Его трэк-лист: "Sacred Angel Demon", "Flammenherz", "Rebellion - Des Zornes Banner", "Spiritual Evolution" и "Dominion Of Terror"</p>
+
+Автор: Nybras
+
+
 ## Обсуждения
 
 

@@ -8,6 +8,16 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 15.05.2012 news DEADLANDS на Massacre
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=454 alt="" hspace=0 src="/images/news_rus/2012.05/23939.jpg" width=475 align=right border=0>Калифорнийские металисты<STRONG> DEADLANDS</STRONG> подписали контракт с немецким лэйблом <STRONG>Massacre Records</STRONG>. Дебютная работа американцев <STRONG>"Evilution" </STRONG>выйдет в этом году. Сведение и мастеринг альбома выполнены в <STRONG>Trident Studios</STRONG>&nbsp;продюсером Juan Urteaga</B itxtHarvested="0" itxtNodeId="88"> (<B itxtHarvested="0" itxtNodeId="87">MACHINE HEAD</B>, <B itxtHarvested="0" itxtNodeId="86">TESTAMENT</B>). Обложку создал <STRONG>Erick Zombie</STRONG>. Трек-лист:</FONT></P>
+<P>01. <B itxtHarvested="0" itxtNodeId="75">Pandemic Genocide</B><BR itxtNodeId="74">02. <B itxtHarvested="0" itxtNodeId="73">Deadlands</B><BR itxtNodeId="72">03. <B itxtHarvested="0" itxtNodeId="71">Ground And Pound</B><BR itxtNodeId="70">04. <B itxtHarvested="0" itxtNodeId="69">Final Solution</B><BR itxtNodeId="68">05. <B itxtHarvested="0" itxtNodeId="67">She's On Fire</B><BR itxtNodeId="66">06. <B itxtHarvested="0" itxtNodeId="65">Asphyxiate The Masses</B><BR itxtNodeId="64">07. <B itxtHarvested="0" itxtNodeId="63">Path We've Chosen</B><BR itxtNodeId="62">08. <B itxtHarvested="0" itxtNodeId="61">Gone Wrong</B><BR itxtNodeId="60">09. <B itxtHarvested="0" itxtNodeId="59">Legions Of The Damned</B><BR itxtNodeId="58">10. <B itxtHarvested="0" itxtNodeId="57">Shed My Skin</B></P>
+<P>Гостевое участие на альбоме приняли гитаристы: <STRONG>Hank Shermann</STRONG> (<B itxtHarvested="0" itxtNodeId="51">MERCYFUL FATE</B>), <B itxtHarvested="0" itxtNodeId="50">Michael Denner</B> (<B itxtHarvested="0" itxtNodeId="49">MERCYFUL FATE</B>, <B itxtHarvested="0" itxtNodeId="48">KING DIAMOND</B>), <B itxtHarvested="0" itxtNodeId="47">Andy LaRocque</B> (<B itxtHarvested="0" itxtNodeId="46">KING DIAMOND</B>), <B itxtHarvested="0" itxtNodeId="45">Claudeous Creamer</B> (<B itxtHarvested="0" itxtNodeId="44">SERPENT & SERAPH</B>, <B itxtHarvested="0" itxtNodeId="43">DRAGONLORD</B>), <B itxtHarvested="0" itxtNodeId="42">Mike Wead</B> (<B itxtHarvested="0" itxtNodeId="41">MERCYFUL FATE</B>, <B itxtHarvested="0" itxtNodeId="40">KING DIAMOND</B>), <B itxtHarvested="0" itxtNodeId="38">Glen Alvelais</B> (<B itxtHarvested="0" itxtNodeId="37">FORBIDDEN</B>, <B itxtHarvested="0" itxtNodeId="36">TESTAMENT</B>, <B itxtHarvested="0" itxtNodeId="35">LD50</B>)&nbsp;и <B itxtHarvested="0" itxtNodeId="34">Steve Smyth</B> (<B itxtHarvested="0" itxtNodeId="33">NEVERMORE</B>, <B itxtHarvested="0" itxtNodeId="32">FORBIDDEN</B>).</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

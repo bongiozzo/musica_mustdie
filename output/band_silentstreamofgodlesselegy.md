@@ -94,6 +94,33 @@ Hrob (The Grave)
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 09.12.2000 reviews Третий полноформатник чешской команды
+
+<p>Третий полноформатник чешской команды. На мой взгляд, за четыре года эта группа добилась многого. У группы необычайный уровень профессионализма. Ей удалось выработать свой неповторимый уникальный стиль. В меру мелодичный и среднетемповый death-doom с глубокой симфонической атмосферой создаваемой виолончелями и скрипками (вместо клавиш как у многих других). Изредка, в дело также вступает пианино. Разнообразие вокалов: и гроулинг, и скриминг, и чистый, а также еще и нервный женский. Оригинальнейшая музыка, достаточно тяжелая, со смелыми гитарными риффами и непередаваемым настроением балансирующем от минора к мажору. Разнообразный и интересный альбом...</p>
+
+Автор: Dimas
+
+### 09.12.2000 reviews Third album of the Czech command
+
+<p>Third album of the Czech command. On my view, for four years this group has achieved much. For group a unusual level of professionalism. She managed to work out the unique unique style. In a measure melodious and mean pace death-doom with steep symphonic atmosphere created by violoncelloes and violins (instead of keys as for many other). Occasionally, the business also is entered by the piano. A diversification of vocals: both grawling, and screaming, and clean, and also also nervous female. Most original music, high-gravity enough, with courageous guitar riffs and inexpressible mood balancing from the minor to magor. A miscellaneous and interesting album...</p>
+
+Автор: Dimas
+
+### 10.07.2002 news Silent Stream Of Godless Elegy работают над новым альбомом
+
+<p>Silent Stream Of Godless Elegy сейчас усердно работают в студии Shaark над альбомом "Relic Dances", выходящем ориентировочно к концу этого года. Скачать демо-версию одной из новых песен "Trinity" можно <A HREF="http://mp3.de/silentstream">здесь</A>.</p>
+
+Автор: Morsus
+
+### 10.07.2002 news Silent Stream Of Godless Elegy are working on new album
+
+<p>Silent Stream Of Godless Elegy are working hard in Shaark studios on new material for the coming album "Relic Dances" which is scheduled for the end of the year. You can download a demo-version of one of our new songs "Trinity" <A HREF="http://mp3.de/silentstream">here</A>.</p>
+
+Автор: Morsus
+
+
 ## Обсуждения
 
 

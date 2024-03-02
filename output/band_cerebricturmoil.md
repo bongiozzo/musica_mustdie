@@ -21,6 +21,20 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.01.2016 news Дебютный альбом CEREBRIC TURMOIL
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Дебютный альбом немецкой techno brutal death metal команды <STRONG>CEREBRIC TURMOIL "Neural Net Meltdown"</STRONG> вышел 13 ноября на японском лэйбле <STRONG>Amputated Vein Records</STRONG>. Приобретайте диски этого лэйбла на сайте Escapemind.ru: <A href="http://escapemind.ru/catalog/Amputated-Vein">http://escapemind.ru/catalog/Amputated-Vein</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трек-лист:</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>1. Introduction&nbsp; 00:48&nbsp;&nbsp; instrumental&nbsp; <BR>2. Twitching Eye Staccato&nbsp; 03:43&nbsp;&nbsp;&nbsp; <BR>3. Secluded Out of Touch by Avoiding Mankind&nbsp; 03:07&nbsp;&nbsp;&nbsp; <BR>4. Metaphysics (Skit)&nbsp; 00:39&nbsp;&nbsp;&nbsp; <BR>5. Discordian Equilibrium&nbsp; 03:21&nbsp;&nbsp;&nbsp; <BR>6. Grotesque Dreaming&nbsp; 03:32&nbsp;&nbsp;&nbsp; <BR>7. Soul Famine&nbsp; 04:19&nbsp;&nbsp;&nbsp; <BR>8. Bitstorm&nbsp; 03:42&nbsp;&nbsp;&nbsp; <BR>9. Tangled in Trial and Error Scenarios&nbsp; 03:09&nbsp;&nbsp;&nbsp; <BR>10. Vile Effect Momentum&nbsp; 05:10 </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Трейлер:</FONT></P>
+<P>
+<CENTER><IFRAME height=360 src="https://www.youtube.com/embed/udnlzBlSMLs" frameBorder=0 width=640 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

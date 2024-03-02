@@ -9,6 +9,54 @@ Finnish Dark Metal
 
 * C группой "Children of Bodom" Jaska Raatikainen (drums)
 
+## Публикации
+
+### 11.01.2003 news Low frequency new signing...
+
+<p>Legendary finnish dark metal masters EVEMASTER (Lappeenranta, Finland) and Low Frequency Records agreed to sign three albums deal. EVEMASTER became familiar to all metalheads around the globe with their great debut album "Lacrimae Mundi", which sold great numbers.</p>
+<P> Band has almost finalised recordings of their second album "Wither" in famous Astia Studios (Children Of Bodom, Warmen, Entwine...) under tight supervision of Anssi Kippo. Album mastering will take place at famous Finnvox studios (Stratovarius, Amorphis...) in late January 2003 by Mika Jussila. Drums on this album is played by Jaska Raatikainen of Children Of Bodom. Also album includes legendary heavy metallers Tarot&#9570;s cover song "Wings Of Darkness", where we also can hear Marco Hietala (Nightwish, Tarot, Sinergy...) on duty as well.</>
+
+Автор: Vit Belov
+
+### 11.01.2003 news Low frequency new signing...
+
+<p>Low Frequency сообщают о подписании контракта финской dark metal группой EVEMASTER. Группа закончила запись своего второго альбома 'Wither' в Astia Studios. Барабанные партии на альбоме сыграны Jaska Raatikainen (Children Of Bodom). Альбом выйдет весной 2003 года. (в России СД-Максимум).</p>
+
+Автор: Vit Belov
+
+### 10.03.2003 news Новая работа EVEMASTER
+
+<p><IMG SRC="/images/news_rus/2003.03/3944.jpg" ALT="pho" width=200 height=200 hspace="15" vspace="5" border="1" align="left">Финская группа EVEMASTER завершила работу над своим новым альбомом под названием "Wither". Альбом был записан в Astia Studios и прошел мастеринг в Finnvox Studios под руководством Mika Jussila. Альбом представляет также интерес сессионным участием в нем таких музыкантов, как Jaska Raatikainen (Children Of Bodom), Marco Hietala (Nightwish/Tarot), Mika Lindberg (Colonian, Mortiis) и Late Penttila (ex-Horna, Satanic Warmaster). Выход альбома - 9 мая 2003 года на Low Frequency Records. В России и странах СНГ альбом будет выпущен по лицензии компанией CD-MAXIMUM.</p>
+
+Автор: Dimas
+
+### 11.03.2003 news Second album &quot;Wither&quot; from EVEMASTER ...
+
+<p>Long awaited second album "Wither" from finnish metallers EVEMASTER is now finally finished. Recording sessions took place at famous Astia Studios (Children Of Bodom, Impaled Nazarene, etc.) and mastering was done by Mika Jussila at Finnvox Studios. <BR><BR> The album coverart and 5 sample songs are freely to be checked out at our homepage ( <A HREF="http://www.evemaster.net/ ">http://www.evemaster.net/ </A>).<BR><BR> Album features interesting session musicians; Jaska Raatikainen (Children Of Bodom) on drums, Marco Hietala (Nightwish/Tarot) participates on legandary Tarot¦s coversong "Wings Of Darkness", Mika Lindberg (Colonian, Cradle Of Filth (Midian), Mortiis) on clean male vocals and Late PenttilД (ex-Horna, Satanic Warmaster) makes his appearance on several backing vocals throughout the album.<BR><BR> Album hits the streets 9th of May 2003. GAS countries promotion is handled by Sure Shot Worx. Also several licensees are confirmed; album will be released in Mexico, Japan, Russia, CIS-Coutries, Thailand, Baltic States. Several other countries follows shortly.</p>
+
+Автор: Yermola
+
+### 04.12.2003 news Low Frequency отдали свои права на новый альбом EVEMASTER
+
+<P>Новейший альбом <B>EVEMASTER 'Wither'</B> выйдет 13 января на <B>CRASH MUSIC</B>. <B>Low Frequency </B>передала все права на эксклюзивный выпуск этого альбома этому лэйблу.</P>
+Автор: Vit Belov
+
+### 04.12.2003 news NEW album by EVEMASTER
+
+Finnish band <B>EVEMASTER</B> will release new album <B>'Wither'</B> through <B>CRASH MUSIC</B> on 13d of January. <B>CRASH MUSIC INC</B> has signed exclusive licensing deal with <B>Low Frequency Records</B> for distribution of their releases. This deal will include most of Europe and North America.
+Автор: Vit Belov
+
+### 16.02.2004 news EVEMASTER will enter a studio to re-record &quot;Lacrimae Mundi&quot; album
+
+<B><IMG height=275 alt="" hspace=0 src="/images/news/2004.02/6047.jpg" width=275 align="right" border=0>EVEMASTER</B> will enter a studio next week (week 8) to re-record their debut album "<B>LACRIMAE MUNDI</B>". <B>Rising Realm Records</B> will re-issue the album with enhanced artwork and bonus track, <B>DIO "We Rock".</B> Album release is scheduled late Summer 2004. Drums on "<B>LACRIMAE MUNDI</B>" will be once again played by <B>Jaska Raatikainen</B> from <B>CHILDREN OF BODOM</B>. This time the idea of the re-recording is "<I>as punk as possible</I>". New rising design-wizard <B>Jan "&Ouml;rkki" Yrlund</B> will be responsible for full art of "<B>LACRIMAE MUNDI</B>".
+Автор: Vit Belov
+
+### 09.02.2005 news EVEMASTER переиздадут дебютный альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><STRONG>EVEMASTER</STRONG> переиздадут 28 февраля свой дебютный альбом <STRONG>'MMIV Lacrimae Mundi'</STRONG> на <STRONG>Rising Realm Music</STRONG>. Группа перезаписала барабаны и гитары. Напомним, что за барабанной установкой сейчас находится музыкант <STRONG>CHILDREN OF BODOM Jaska Raatikainen</STRONG>.</FONT></P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

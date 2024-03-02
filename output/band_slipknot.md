@@ -143,6 +143,680 @@ Produced by Dave Fortman
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 25.08.2000 news Дебютный альбом Slipknot получил статус &quot;золотого&quot; в Великобритании
+
+<p> Roadrunner заявили, что дебютный альбом группы Slipknot теперь официально получил статус "золотого" в Великобритании (было продано свыше 100,000 дисков). Ранее группа также достигла "золотого" статуса в Австралии и "платинового" - в США. Новый сингл Slipknot, "Spit It Out", выйдет 4-го сентября.</p>
+
+Автор: Nybras
+
+### 25.08.2000 news Slipknot debut album is certified gold in the UK
+
+<p> Roadrunner announce that Slipknot's debut album has now been officially certified gold (100,000 units) in the UK. Slipknot has also attained gold status in Australia and Platinum in the USA. Slipknot's new single, "Spit It Out" will be released on September 4th.</p>
+<p></p>
+
+Автор: Nybras
+
+### 23.09.2000 news Еще один саундрек к еще одному фильму
+
+<p> Шведы Arch Enemy предоставят свою песню "Dead Inside" для саундтрека к новому фильму "Tales From The Crypt". Среди других команд, замеченых в работе над саундреком, такие группы, как The Haunted, WASP, Megadeth, Armored Saint, Entombed, Queensryche, Mercyful Fate, Sepultura, Slipknot, Judas Priest, Prong, Anthrax, Motorhead, Black Sabbath, Dio, Metal Church и Pantera! Этот саундтрэк появится в продаже с 19-октября.</p>
+
+Автор: Nybras
+
+### 05.03.2001 news Британский OZZFEST 2001
+
+<p>Британская версия Ozzfest 2001 пройдет 26 мая в Milton Keynes Bowl. Участвуют BLACK SABBATH, Slipknot, Tool, Papa Roach и другие.</p>
+
+Автор: Yermola
+
+### 05.03.2001 news OZZFEST 2001 U.K.
+
+<p>It's official: The Ozzfest 2001 is coming to the UK Ozzfest hasn't crossed the pond since 1998 and to make up for lost time the organisers have taken extra measures to ensure this year's bill is unremittingly, gobsmackingly heavy, a cavalcade of concussion-causing noise terrorists. Enough adjective overkill, here's the dirt: BLACK SABBATH, Slipknot, Tool, Papa Roach, and several other big name acts. Milton Keynes Bowl, May 26. Tickets are on sale NOW through www.buyupfront.com. No other shows are planned at this time in the European Union.</p>
+
+Автор: Yermola
+
+### 03.04.2001 articles Кто на свете всех скандальней? Девять уродов SLIPKNOT!
+
+<p>Рок-музыканты дебоши и скандалы любят: проорешься хорошо, по морде получишь – и повод для новой песни готов. А то и для концептуально-эпохального альбома. Знай себе, получай потом "Грэмми", миллионы и фанатскую любовь.</p>
+<p> Только вот повод для скандала надо хороший. Что за песня про драку за последний стакан водки с корешом? Другое дело – про то, как мускулистая тетя из полиции на твои дрожащие после недельного похмелья верхние конечности наручники одевала. Тут тебе и борьба с произволом, и секс, и алкоголь. Но без особого везения и чутья такой скандал не найти.</p>
+<p> Но вот девяти американским парням из группы <a href="/ru/band/slipknot/">SLIPKNOT</a> на днях несказанно повезло. 27 марта вокалист №1 Кори Тэйлор умудрился разругаться вдрызг в аэропорту Детройта со всем персоналом охраны. А поводом стала его майка, на которой надпись которой гласила "I'm famous. Fuck Me!" ("Я знаменит. Трахни меня!"):</p>
+<p> "Мы три часа промучались в регистрационном зале с этой долбанной трехчасовой задержкой нашего рейса. Жарко, курить не разрешают. А тут подходит офицерша и говорит: "Либо снимите майку, либо выверните ее наизнанку. Здесь же дети!". Я сначала просто промолчал. А она продолжает: "Вы меня слышите? Вы вообще говорите по-английски?". Тут я и взорвался: "А вы кто? Е..ная расистка? Дети еще читать-то не умеют, а те, что могут, давно уже прочли такие надписи в подворотнях!". Она опять за свое: "Но здесь же еще и женщины." "Ну а им-то что, говорю – вообще не обидно ни фига! Они же это не то, что читают – делают! Отстань, дура!"</p>
+<p> В конце концов, сбежались охранники со всего аэропорта, стали глазеть на нас, пальцами тыкать, побить обещали. Пришлось накинуть на майку рубашку и скрыть надпись. Через пару часов наш рейс все-таки объявили – я специально снял рубаху, расправил майку, чтобы буковки читались получше, и пошел на посадку в самолет. Плевать мне на весь мир, хочу и буду носить свои майки!".</p>
+<p> Этот далеко не первый скандал музыкантов – но зато самый громкий. Парой месяцев ранее эти милые хлопцы получили музыкальную награду журнала "Kerrang!" как лучшая новая группа. При этом непосредственно на церемонии музыканты напились и в момент получения награды прямо на сцене разломали стол и кинули его остатки в сидевшего неподалеку Мэрилина Мэнсона. Не попали. И скандала не вышло – только зря время потратили.</p>
+<p> Но зато теперь… Идей, наверное, на два альбома вперед. Тем более, что в июле выходит второй диск, название которого пока держится в секрете. Хотя в связи с последними событиями можно попробовать угадать название: "Отлезь, гнида!"</p>
+<p></p>
+<p> Мысль в струю</p>
+<p> Закк Уайлд, гитарист: Мне нравится музыка <a href="/ru/band/slipknot/">SLIPKNOT</a>. Я бы не против даже поджемовать с этой бандой. Но для начала пристрелю четырех из них – к чему такая толпа на сцене?"</p>
+<p></p>
+
+Автор: Tornado
+
+### 11.04.2001 news Без промаха.....
+
+<p>Перед европейским туром "SLIPKNOT" отправляются в гастроли по Америке. Из других новостей, продюссер Ross Robinson сообщил, что новый СД группы "Iowa" уже практически смикширован и содержит: "супер, супер, супер-совершенный, экстремальный и сносящий крышу материал...".</p>
+
+Автор: Yermola
+
+### 11.04.2001 news SLIPKNOT will play four US &quot;warm-up&quot; shows .....
+
+<p> Before heading to Europe for their previously announced tour, SLIPKNOT will play four US “warm-up” shows in early May. The dates are as follows:</p>
+<p></p>
+<p> May 04 – Cedar Rapids, IA @ Five Seasons Center</p>
+<p></p>
+<p> May 05 - Peoria, IL @ Civic Center Arena</p>
+<p></p>
+<p> May 07 - Duluth, MN @ Duluth Ent. Convention Cent. Arena</p>
+<p></p>
+<p> May 08 - Fargo, ND @ Fargo Civic Auditorium.</p>
+<p></p>
+<p> Meanwhile, producer Ross Robinson has spoken out about the musical content on the sophomore SLIPKNOT CD — which is rumored to be titled Iowa and which is currently being mixed in New York City with Andy Wallace — describing it as "super, super, super perfect and extreme and kick-ass". According to Ross, "It is so full-on. [Vocalist] Corey [Taylor] sang for a month straight, every single day, and we kept the best, most destroying syllables of his singing." Robinson went on to say that "I fractured my spine doing motorcross during the first couple of weeks of the record. I was producing [the SLIPKNOT record] on Vicodin and I was showing up to the studio with extreme pain and when I got to the studio, the body would fall away and I was totally up all night for those guys. It was a really, really good thing for the record. Nobody was allowed to hold back because I was in that condition."</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 22.05.2001 news Новый альбом SLIPKNOT ...
+
+<p>Девять уродов-клоунов "SLIPKNOT" надев новые маски проверили на зрителях песни с нового альбома "Iowa" - пятитысячная толпа фанатов ревела от восторга на Pavilhao Atlantico в рамках Европейского тура в Португалии. Уже стал известен окончательный трек-лист релиза (выходящего 7-го августа): 01. My Plague 02. People = Sh.t 03. Heretic Song 04. Disaster Piece 05. Skin Ticket 06. Everything Ends 07. The Shape 08. New Abortion 09. Metabolic 10. Gently 11. Iowa. Еще одна записанная вещь "I Am Hated" оставлена для саундтрека к фильму римейку "Rollerball" 1975 года в котором "SLIPKNOT" планируют сняться.</p>
+
+Автор: Yermola
+
+### 22.05.2001 news SLIPKNOT news.....
+
+<p> SLIPKNOT reportedly performed four new songs (among them "People=Sh.t", "Disaster Piece" and "Heretic Song") during the opening gig of their current European tour in Lisbon, Portugal on Thursday, May 17th. In addition, all but three of the members debuted new masks at the show (same characters, but different design), which was attended by an estimated 5,000 people at the 18,000-capacity Pavilhao Atlantico. In other SLIPKNOT news, the band's much-anticipated sophomore opus, entitled Iowa, is still in the process of having its track listing finalized. However, BLABBERMOUTH.NET can exclusively reveal the following song titles that are tentatively set to appear on the album, which is scheduled for release on August 7th:</p>
+<p></p>
+<p> 01. My Plague</p>
+<p></p>
+<p> 02. People = Sh.t</p>
+<p></p>
+<p> 03. Heretic Song</p>
+<p></p>
+<p> 04. Disaster Piece</p>
+<p></p>
+<p> 05. Skin Ticket</p>
+<p></p>
+<p> 06. Everything Ends</p>
+<p></p>
+<p> 07. The Shape</p>
+<p></p>
+<p> 08. New Abortion</p>
+<p></p>
+<p> 09. Metabolic</p>
+<p></p>
+<p> 10. Gently</p>
+<p></p>
+<p> 11. Iowa</p>
+<p></p>
+<p> An additional cut, "I Am Hated", was tracked during the recording sessions for the album, but has been set aside for inclusion on the soundtrack to the forthcoming remake of the 1975 movie Rollerball, in which SLIPKNOT make an appearance. It is also believed that a 13th song was laid down during the same sessions, but its title has not yet been revealed. Source: BLABBERMOUTH.NET</p>
+<p></p>
+<p></p>
+
+Автор: Yermola
+
+### 23.08.2001 news Не спи, а то замерзнешь!
+
+<p>"Вай, ара, цирк приехал!!!" - воскликнули деятели из Roadrunner Records и напечатали альбом "Iowa" метких клоунов из SLIPKNOT тиражом 1,2 миллиона экземпляров для продажи в штатах. Как ожидает сам лэйбл, с момента выхода 28 августа и по 5 сентября, диск должен стать №1 в Billboard Pop Album chart, продавшись в количестве 200 000 - 300 000 копий.</p>
+
+Автор: Yermola
+
+### 23.08.2001 news Roadrunner Records will reportedly be shipping ...
+
+<p>Roadrunner Records will reportedly be shipping 1.2 million copies of SLIPKNOT’s Iowa CD in the US on its release date of Tuesday, August 28th, virtually ensuring it platinum status as soon as it sees the light of day. Although hopes are still high that the band will secure the #1 slot on the Billboard Pop Album chart when the SoundScan charts for the week are compiled on September 5th, those prospects seem less likely with the announcement that R&B diva MARY J. BLIGE’s long-awaited new set, No More Drama, will be arriving in the stores on the same day. Despite this, it is expected that SLIPKNOT will shift a minimum of 200,000-300,000 copies during the first week of Iowa’s release, making it possibly the top-selling extreme metal album of all time. In other news, a SYSTEM OF A DOWN spokesperson has confirmed earlier reports that SKIPKNOT will in fact be appearing alongside SOAD at the Continental Airlines Arena in East Rutherford, New Jersey on October 31st, and that a rumored Hammerstein Ballroom performance in New York City on the same night is not in the cards for either band (contrary to what we reported here yesterday). Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 05.09.2001 news Спасибо пиратам за наше счастливое детство.....
+
+<p>Вот на <a href="http://www.natural-fx.ch/woche.htm"> этом</a> швейцарском сайте вы можете полностью скачать еще не вышедший в продажу альбом "SLAYER" - "God Hates Us All" в MP3, а любители попсы найдут для себя "Supercharger" MACHINE HEAD и "Iowa" SLIPKNOT <a href="http://www.natural-fx.ch/woche.htm"> ..... </a></p>
+
+Автор: Yermola
+
+### 06.09.2001 news Клоуны штурмуют попс-хит-парады...
+
+<p>Вышедший недавно альбом "Iowa" SLIPKNOT только за первую неделю был продан в количестве 254 000 копий только в США и попал сразу на третью строчку Billboard Top 200 Pop Album chart, сразу за "столь уважаемыми рокерами", как AALIYAH и MARY J. BLIGE.... В остальных местах земного шара их результаты выглядят вот так: <br> Англия: #1 (первая неделя продаж: 52 000) <br> Австралия: #2 <br> Финляндия: #3 <br> Германия: #4 <br> Япония: #4 <br> Франция: #7 <br> Австрия: #8 <br> Швеция: #10 <br> Швейцария: #13 <br> Голландия: #15 <br> Норвегия: #15 <br> Дания: #19 <br> Бельгия: #21</p>
+
+Автор: Yermola
+
+### 06.09.2001 news SLIPKNOT&#39;s Iowa has sold a total of 254,000 copies ....
+
+<p>SLIPKNOT’s Iowa has sold a total of 254,000 copies in its first week of release in the US, entering next week’s Billboard Top 200 Pop Album chart at #3, behind AALIYAH’s self-titled effort and MARY J. BLIGE’s No More Drama CD. Although this is clearly a hugely impressive chart showing, it is a disappointment to all those industry insiders that were widely predicting a #1 debut for the masked act, especially in light of early reports that indicated first week sales would edge closer to the 400,000 figure. Despite this relative disappointment, Iowa is clearly doing the business in virtually all parts of the globe, with various chart positions suggesting that SLIPKNOT’s brand of ultra-brutal metal is truly a worldwide phenomenon. Here are Iowa’s known chart showings so far: <br> UK: #1 (first week sales: 52,000) <br> Australia: #2 <br> Finland: #3 <br> Germany: #4 <br> Japan: #4 <br> France: #7 <br> Austria: #8 <br> Sweden: #10 <br> Switzerland: #13 <br> Holland: #15 <br> Norway: #15 <br> Denmark: #19 <br> Belgium: #21<br> Although as yet unconfirmed, sources close to Roadrunner Records indicate that a #1 showing on the Canadian Album chart is virtually assured. Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 16.10.2001 reviews Этот диск потеснил в британском хит-параде сверхпопулярных Бритни Спирс и FIVE!
+
+<p>Этот диск потеснил в британском хит-параде сверхпопулярных Бритни Спирс и FIVE. Однако приятной музыкой это назвать язык не повернется. Вступление первой песни "People = Shit" (переводите это сами!) обрадует всех фэнов грайнд-кора – классический бласт-бит! Однако за авансом продолжения не последует, и через минуту SLIPKNOT вернутся к своим традиционным ходам. Коктейль из нью-метал, дэс-метал и хардкора, который классифицировать невозможно: хаос ревущих гитар, хриплых криков, ритмической неровности… Очень агрессивно и злобно. По-своему неплохо, но немного музыки не помешало бы. Композиторских подвигов вы здесь не услышите, структуры песен прямолинейны, нет ни отдельных соло, ни ритмических заморочек и синкопирования. И это при том, что в SLIPKNOT играют девять человек! Но перехода количества в качество не наблюдается – видимо, критическая масса творческого потенциала все еще не накоплена, и потому все крайне просто: эффект давления и атаки на слушателя достигается исключительно за счет звукового хаоса, но никак не за счет свежих музыкальных идей. В результате у группы получились неплохие, но очень уж однообразные песни с одним настроением, и потому часовой диск уже на двадцатой минуте начинает утомлять. Ну а когда дело доходит до медленных композиций, то там отсутствие новых идей превращается в катастрофу – более нудных попыток музицирования, я пожалуй, еще не слышал. Правда, не обошлось без хитов. Уже неделю подряд я ловлю себя на повторении припева "people equal shit, people equal shit"… Судя по всему, то же делают и тысячи британцев: звуковой кошмар "IOWA" в первые дни появления на свет успел занять первое месте в национальном чарте Великобритании. Как это возможно сделать с такими мерзкими рожами-масками и текстами, я не представляю. Но зато теперь урод-одиночка Мэрилин Мэнсон может просто удавиться от зависти!</p>
+
+Автор: Tornado
+
+### 27.10.2001 news Тур In Flames и Slipknot перенесен
+
+<p>Совместный тур In Flames и Slipknot, планировавшийся в Англии в ноябре, перенесен на январь\февраль 2002 года.</p>
+
+Автор: Vic Thor
+
+### 27.10.2001 news In Flames &amp; Slipknot tour is postponed
+
+<p>In Flames & Slipknot tour in UK in November is postponed until January/February 2002.</p>
+
+Автор: Vic Thor
+
+### 05.11.2001 news Награды Ассоциации Звукозаписывающей Индустрии...
+
+<p>Американская Ассоциация Звукозаписывающей Индустрии (Recording Industry Association Of America) выдала следующие золотые и платиновые сертификаты:<BR> <BR> Золото (500,000 проданных копий):<BR> JUDAS PRIEST - Priest...Live! (дата выхода: 6/9/87) <BR> PUDDLE OF MUDD - Come Clean (дата выхода: 8/28/01)<BR><BR> Платина (1,000,000 проданных копий):<BR> SYSTEM OF A DOWN - Toxicity (дата выхода: 9/4/01) <BR> P.O.D. - Satellite (дата выхода: 9/11/01)<BR> SLIPKNOT - Iowa (дата выхода: 8/28/01)<BR><BR> Мульти-платина:<BR> DISTURBED - The Sickness (дата выхода: 3/7/00) (2x platinum) <BR> JUDAS PRIEST - Screaming For Vengeance (дата выхода: 6/23/82) 2x platinum</p>
+
+Автор: Yermola
+
+### 05.11.2001 news Here are some of the latest official gold and platinum certification from the RIAA ...
+
+<p>Here are some of the latest official gold and platinum certification from the RIAA (Recording Industry Association Of America): <BR><BR> Gold (500,000 copies sold):<BR> JUDAS PRIEST - Priest...Live! (release date: 6/9/87) <BR> PUDDLE OF MUDD - Come Clean (release date: 8/28/01)<BR><BR> Platinum (1,000,000 copies sold):<BR> SYSTEM OF A DOWN - Toxicity (release date: 9/4/01) <BR> P.O.D. - Satellite (release date: 9/11/01) <BR> NICKELBACK - Silver Side Up (release date: 9/11/01) <BR> SLIPKNOT - Iowa (release date: 8/28/01)<BR><BR> Multi Platinum:<BR> DISTURBED - The Sickness (release date: 3/7/00) (2x platinum) <BR> JUDAS PRIEST - Screaming For Vengeance (release date: 6/23/82) 2x platinum</p>
+
+Автор: Yermola
+
+### 05.11.2001 news IN FLAMES will be supporting SLIPKNOT...
+
+<p>Acclaimed Swedish metallers IN FLAMES will be supporting SLIPKNOT at the latter band’s headlining US shows that are scheduled to take place between November 20th and December 21st. Only two dates have thus far been leaked. They are as follows: <BR> <BR> Nov. 23 - Columbus, OH @ PromoWest Pavilion <BR> Nov. 25 - Monaca, PA @ Beaver Dome</p>
+
+Автор: Yermola
+
+### 13.11.2001 news Некоторые цифры продаж...
+
+<p>Вот вам цифры американских продаж некоторых металлических и не очень групп... Данные на начало Ноября. Предоставлены Soundcscan (цифра в скобках означает количество недель в чартах): <BR> <BR> SYSTEM OF A DOWN – Toxicity: 817,286 (9) <BR> OZZY OSBOURNE – Down To Earth: 269,374 (3) <BR> SLIPKNOT – Iowa: 553,043 (10) <BR> SLIPKNOT – Slipknot: 1,345,891 (123) <BR> METALLICA – Metallica: 12,890,072 (484) <BR> MISFITS – Cuts From The Crypt: 4,811 (1) <BR> SOIL – Scars: 34,433 (8) <BR> MACHINE HEAD – Supercharger: 24,202 (5) <BR> QUEENSRYCHE – Live Evolution: 20,727 (6) <BR> SLAYER – God Hates Us All: 121,179 (8)</p>
+
+Автор: Yermola
+
+### 13.11.2001 news SLIPKNOT have announced additional shows ....
+
+<p>SLIPKNOT have announced additional shows for their forthcoming rescheduled European tour (originally postponed due to the current political climate). The confirmed dates are as follows: <BR><BR> Jan. 20 – Hartwell - Helsinki, FIN <BR> Jan. 22 - Hovet - Stockholm, SWE <BR> Jan. 23 - Valby Hall - Copenhagen, DEN <BR> Jan. 25 - Arena - Berlin, GER <BR> Jan. 26 - Grugahalle - Essen, GER <BR> Jan. 27 - Sporthalle - Stuttgart, GER <BR> Jan. 29 - Sporthalle - Hamburg, GER <BR> Jan. 30 - Heineken Music Hall - Amsterdam, NETH <BR> Jeb. 04 - Filaforum - Milan, ITA <BR> Feb. 05 - Eulachhalle - Winterthur, Nr. Zurich, SWI <BR> Feb. 07 - Indoor Bullring - Madrid, SPA <BR> Feb. 08 - Indoor Bullring - San Sebastian, SPA <BR> Feb. 10 - Zenith - Paris, FRA <BR> Feb. 11 - Zenith - Paris, FRA <BR> Feb. 12 - Forest National - Brussels, BEL <BR> Feb. 14 – SECC - Glasgow, UK SECC <BR> Feb. 15 - Evening News Arena - Manchester, UK <BR> Feb. 16 - London Docklands Arena – London, UK <BR> Feb. 18 – Centre – Brighton, UK <BR> Feb. 19 – Arena – Cardiff, UK <BR> Feb. 20 – NEC – Birmingham, UK</p>
+
+Автор: Yermola
+
+### 08.01.2002 articles Чарты интересов посетителей MUSICA.mustdie.ru
+
+<p>Чарты интересов посетителей MUSICA.mustdie.ru в процентах.</p>
+<p><a href="/ru/band/nightwish/">NIGHTWISH</a> - 9,73</p>
+<p><a href="/ru/band/slipknot/">SLIPKNOT</a> - 7,45</p>
+<p><a href="/ru/band/tristania/">TRISTANIA</a> - 7,16</p>
+<p><a href="/ru/band/therion/">THERION</a> - 6,52</p>
+<p><a href="/ru/band/rammstein/">RAMMSTEIN</a> - 4,92</p>
+<p><a href="/ru/band/rhapsody/">RHAPSODY</a> - 4,64</p>
+<p><a href="/ru/band/apocalyptica/">APOCALYPTICA</a> - 3,56</p>
+<p><a href="/ru/band/osbourne_ozzy/">OZZY OSBOURNE</a> - 3,38</p>
+<p><a href="/ru/band/cannibal_corpse/">CANNIBAL CORPSE</a> - 2,99</p>
+<p><a href="/ru/band/tiamat/">TIAMAT</a> - 2,87</p>
+<p><a href="/ru/band/slayer/">SLAYER</a> - 2,42</p>
+<p><a href="/ru/band/sepultura/">SEPULTURA</a> - 2,42</p>
+<p><a href="/ru/band/mayhem/">MAYHEM</a> - 2,33</p>
+<p><a href="/ru/band/clawfinger/">CLAWFINGER</a> - 2,22</p>
+<p><a href="/ru/band/soulfly/">SOULFLY</a> - 2,06</p>
+<p>SYSTEM OF A DOWN - 2,03</p>
+<p>THEATRE OF TRAGEDY - 1,92</p>
+<p>RAGE AGAINST THE MACHINE - 1,82</p>
+<p>CRADLE OF FILTH - 1,76</p>
+<p>MEGADETH - 1,74</p>
+<p>UDO - 1,53</p>
+<p>ANATHEMA - 1,5</p>
+<p>KOVENANT - 1,42</p>
+<p>HELLOWEEN - 1,17</p>
+<p>EINSIFERUM - 1,14</p>
+<p>VENOM - 1,11</p>
+<p>LACRIMOSA - 1,04</p>
+<p>BRAINSTORM - 1,04</p>
+<p>АРИЯ - 1,01</p>
+<p>OFFSPRING - 1,0</p>
+
+Автор: Vit Belov
+
+### 08.01.2002 articles Charts of interests of the visitors MUSICA.mustdie.ru
+
+<p>Charts of interests of the visitors MUSICA.mustdie.ru in percentage</p>
+<p>NIGHTWISH 9,73</p>
+<p>SLIPKNOT 7,45</p>
+<p>TRISTANIA 7,16</p>
+<p>THERION 6,52</p>
+<p>RAMMSTEIN 4,92</p>
+<p>RHAPSODY 4,64</p>
+<p>APOCALYPTICA 3,56</p>
+<p>OZZY OSBORNE 3,38</p>
+<p>CANNIBAL CORPSE 2,99</p>
+<p>TIAMAT 2,87</p>
+<p>SLAYER 2,42</p>
+<p>SEPULTURA 2,42</p>
+<p>MAYHEM 2,33</p>
+<p>CLAWFINGER 2,22</p>
+<p>SOULFLY 2,06</p>
+<p>SYSTEM OF DOWN 2,03</p>
+<p>THEATRE OF TRAGEDY 1,92</p>
+<p>RAGE AGAINST THE MACHINE 1,82</p>
+<p>CRADLE OF FILTH 1,76</p>
+<p>MEGADETH 1,74</p>
+<p>UDO 1,53</p>
+<p>ANATHEMA 1,5</p>
+<p>KOVENANT 1,42</p>
+<p>HELLOWEEN 1,17</p>
+<p>EINSIFERUM 1,14</p>
+<p>VENOM 1,11</p>
+<p>LACRIMOSA 1,04</p>
+<p>BRAINSTORM 1,04</p>
+<p>АРИЯ 1,01</p>
+<p>OFFSPRING 1</p>
+
+Автор: Vit Belov
+
+### 01.07.2002 news SLIPKNOT&#39;s COREY TAYLOR Unmasked In SLITHERYN&#39;s &quot;Lost&quot; Video.
+
+<p>SLIPKNOT frontman Corey Taylor appears sans his trademark mask in the video for the track "Lost" from the Chicago quintet SLITHERYN, whose four-track EP Taylor produced at the end of last year. The video for the song, which features Corey's distinctive vocals during the chorus, can be viewed via SLITHERYN's official web site.</p>
+
+Автор: Natural born loser
+
+### 14.11.2003 news SLIPKNOT начали работу над новым альбомом
+
+<P><B>SLIPKNOT</B> работают над новым альбомом вместе с продюсером <B>Rick Rubin</B>.</P>
+Автор: Vit Belov
+
+### 14.11.2003 news SLIPKNOT are working on new album
+
+<B>SLIPKNOT</B>&nbsp;are currently working on the follow up to 2001's <B>'Iowa</B>' with famed producer <B>Rick Rubin</B>.<BR>
+Автор: Vit Belov
+
+### 10.03.2004 news SLIPKNOT назвали альбом
+
+Новый альбом <B>SLIPKNOT</B> будет называться <B>"Vol. 3: The Subliminal Verses" </B>и выйдет 25 мая на <B>Roadrunner</B>.
+Автор: Vit Belov
+
+### 16.04.2004 news Трэк-лист нового альбом SLIPKNOT
+
+<P><B>SLIPKNOT</B> опубликовали трэк-лист своего нового альбома "<A href="/ru/band/slipknot/9041/">Vol. 3: The Subliminal Verses</A>". <SPAN style="BACKGROUND: #000000">Трэк-лист:</SPAN></P>
+<P><SPAN style="BACKGROUND: #000000"><IMG height=180 alt="" hspace=0 src="/images/news_rus/2004.04/6406.jpg" width=180 align="right" border=0>01. <B>Prelude 3.0</B><BR>02. <B>The Blister Exists</B><BR>03. <B>Three Nil</B><BR>04. <B>Duality</B><BR>05. <B>The Opium Of The People</B><BR>06. <B>Vermillion</B><BR>07. <B>Pulse Of The Maggots</B><BR>08. <B>Welcome</B><BR>09. <B>Circle</B><BR>10. <B>Before I Forget</B><BR>11. <B>The Nameless</B><BR>12. <B>Vermillion Part 2</B><BR>13. <B>The Virus Of Life</B><BR>14. <B>Danger, Keep Away</B><BR></SPAN></P>
+Автор: Vit Belov
+
+### 10.10.2004 articles TOP-50 продаж лицензионных компакт-дисков за сентябрь 2004 года
+
+<TABLE cellSpacing=0 cellPadding=0 width=677 border=0 x:str>
+<COLGROUP>
+<COL style="WIDTH: 48pt" width=64>
+<COL style="WIDTH: 227pt; mso-width-source: userset; mso-width-alt: 11081" width=303>
+<COL style="WIDTH: 185pt; mso-width-source: userset; mso-width-alt: 8996" width=246>
+<COL style="WIDTH: 48pt" width=64>
+<TBODY>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" width=64 height=17></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>AGATHODAIMON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><STRONG><FONT face=Arial size=2>SERPENT'S EMBRACE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SAXON</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>LIONHEART</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>3 (7)</FONT></STRONG></TD>
+<TD class=xl26 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><STRONG><FONT face=Arial size=2>LAKE OF TEARS</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>BLACK BRICK ROAD</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Soyuz</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>KINGDOM COME</FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>PERPETUAL</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SHADE EMPIRE</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SINTHETIC</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2>6 (1)</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>NIGHTWISH</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ONCE</FONT></STRONG></TD>
+<TD class=xl29 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Fono</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl27 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ALTARIA</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DIVINITY</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>AMG</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SONATA ARCTICA</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>DON'T SAY A WORD (EP)</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>CASCADES, THE</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>SPELLS AND CEREMONIES</FONT></STRONG></TD>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl25 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>ANCIENT WISDOM</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>COMETH DOOM, COMETH DEATH</FONT></STRONG></TD>
+<TD class=xl28 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><STRONG><FONT face=Arial size=2>Irond</FONT></STRONG></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><STRONG><FONT face=Arial size=2></FONT></STRONG></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TURISAS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BATTLE METAL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MANTUS</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EIN HAUCH VON WIRKLICHKEIT</FONT></TD>
+<TD class=xl32 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DEMONOID</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>RIDERS OF THE APOCALYPSE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>14 (2)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>15 (4)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>DIO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MASTER OF THE MOON</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ABYDOS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE LITTLE BOY's …</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>17 (5)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LA CHAMBRE D ECHO</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DARK SANCTUARY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LES MEMORIES BLESSES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THROES OF DAWN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>QUICKSILVER CLOUDS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DRAGONFORCE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SONIC FIRESTORM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SLIPKNOT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOL. 3</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STEEL PROPHET</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEWARE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ENDRAUM</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TRAUMSTAUB</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>24 (15)</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>METAL CHURCH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE WEIGHT OF THE WORLD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VII GATES</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FIRE, WALK WITH ME</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>26 (29)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>IN FLAMES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOUNDTRACK TO YOUR ESCAPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>27 (12)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEAVES' EYES (ex-Theatre of Tragedy)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LOVELORN</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>28 (10)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ASIA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SILENT NATION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>DAS ICH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LAVA: GLUT</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>30 (21)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>LEMURIA / SIRIUS B DELUXE LTD</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TEARS OF ANGER(ex-THERION,TALISMAN…)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>STILL ALIVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond-DD</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>32 (3)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THERION</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SIRIUS B</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>33 (8)</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 227pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=303><FONT face=Arial size=2>ENSIFERUM</FONT></TD>
+<TD class=xl35 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 185pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=246><FONT face=Arial size=2>IRON</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MNEMIC</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>THE AUDIO INJECTED SOUL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TESLA</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>INTO THE NOW</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOULFLY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PROPHECY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>37 (11)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ANNIHILATOR</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ALL FOR YOU</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>38 (24)</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FINNTROLL</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NATTFODD</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SEYMINHOL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NORTHERN RECITAL</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>PLATITUDE</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>NINE</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MERCENARY</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>11 DREAMS</FONT></TD>
+<TD class=xl31 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Fono</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEAUTY IN DARKNESS VOL-7 (2 DVD)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>43 (23)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EDGUY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HELLFIRE CLUB + 2 bonus tracks</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>44 (Re)</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>SOPOR AETERNUS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ES REITEN DIE TOTEN SO SCHNELL</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Irond</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CANS</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BEYOND THE GATES</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>Soyuz</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>46 (38)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>VOODOO HIL</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>WILD SEED OF MOTHER EARTH</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CD-MAX</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>47 (17)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>HAGGARD</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>EPPUR SI MUOVE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>TOM ANGELRIPPER (ONKEL TOM)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ICH GLAUB…</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>AMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2></FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>FEAR FACTORY</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>ARCHETYPE</FONT></TD>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>BMG</FONT></TD></TR>
+<TR style="HEIGHT: 12.75pt" height=17>
+<TD class=xl30 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; HEIGHT: 12.75pt; BACKGROUND-COLOR: transparent" height=17><FONT face=Arial size=2>50 (Re)</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>MAYHEM</FONT></TD>
+<TD class=xl34 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent"><FONT face=Arial size=2>CHIMERA</FONT></TD>
+<TD class=xl33 style="BORDER-RIGHT: #bfbfbf 1px dotted; BORDER-TOP: #bfbfbf 1px dotted; BORDER-LEFT: #bfbfbf 1px dotted; WIDTH: 48pt; BORDER-BOTTOM: #bfbfbf 1px dotted; BACKGROUND-COLOR: transparent" width=64><FONT face=Arial size=2>CD-MAX</FONT></TD></TR></TBODY></TABLE>
+<P>&nbsp;</P>
+<P>Магазин 'Metal&Progressive' ТВЦ Рубин</P>
+Автор: Vit Belov
+
+### 07.11.2004 news Светская хроника: вокалистка LACUNA COIL + гитарист SLIPKNOT &#x3D; ?
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff><IMG height=375 alt="" hspace=0 src="/images/news_rus/2004.11/7326.jpg" width=250 align=left border=5>Активно муссируются слухи об интрижке между одной из самых красивых вокалисток в heavy-metal <STRONG>Cristina Scabbia (LACUNA COIL) </STRONG>и гитаристом <STRONG>SLIPKNOT Jim Root</STRONG>. Как стало известно, <STRONG>Scabbia</STRONG> рассталась со своим прежним женихом басистом<STRONG> LACUNA COIL</STRONG> <STRONG>Marco Coti Zelati</STRONG> и активно проводит время с гитаристом американцев на их концертах в Европе и Штатах.</FONT></P>
+Автор: Vit Belov
+
+### 31.05.2005 news Концерт SLIPKNOT запрещён в Греции
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вчера 30 мая должен был состояться концерт <STRONG>SLIPKNOT</STRONG> в Греции, но он был отменён по настоянию греческой Православной церкви. Основной причиной стало наличие в лирике группы ссылок на дьявола.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>"<EM>Члены коллектива имеют шокирующий вид, одеваются в чёрную униформу и маски, которые выглядя, как черепа</EM>", - сообщает церковь в своём официальном заявлении. В заключении "греческие иерархи" добавляют: "<EM>Государственные институты должны защищать граждан от всяких публичных выступлений, пропагандирующих Сатанизм</EM>".</FONT></P>
+Автор: Vit Belov
+
+### 08.09.2006 news STONE SOUR отыграют в Москве
+
+<P>Американский nu-metal коллектив<STRONG> STONE SOUR</STRONG> станет хедлайнером московского фестиваля Российской Альтернативной Музыкальной Премии <STRONG>RAMP Awards</STRONG>, который пройдет 18 октября в Лужниках. Основателями коллектива являются гитарист и вокалист <STRONG>SLIPKNOT Corey Tailor</STRONG> и <STRONG>Jim Root</STRONG>, соответственно. Группа приедет в Россию с абсолютно новой полуторачасовой программой. </P>
+Автор: Dimas
+
+### 30.06.2008 news Новая песня SLIPKNOT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Новый сингл <STRONG>SLIPKNOT</STRONG> "<STRONG>Psychosocial</STRONG>" можно послушать на официальной <STRONG>MySpace</STRONG> страничке гитариста <STRONG>Mick Thomson</STRONG>. Песня только сегодня поступит в ротацию на радиостанциях&nbsp;США.</FONT></P>
+<P>Ссылка: <A href="http://www.myspace.com/mickthomson2">http://www.myspace.com/mickthomson2</A></P>
+Автор: Vit Belov
+
+### 09.07.2008 news Новый альбом SLIPKNOT
+
+<P><IMG height=273 alt="" hspace=0 src="/images/news_rus/2008.07/12613.jpg" width=300 align=right border=5>Новый альбом <STRONG>SLIPKNOT</STRONG> <STRONG>"All Hope Is Gone" </STRONG>выходит 26 августа на <STRONG>Roadrunner</STRONG>. Трэк-лист:</P>
+<P>01. <B>.execute.</B><BR>02. <B>Gematria (The Killing Name)</B><BR>03. <B>Sulfur</B><BR>04. <B>Psychosocial</B><BR>05. <B>Dead Memories</B><BR>06. <B>Vendetta</B><BR>07. <B>Butcher's Hook</B><BR>08. <B>Gehenna</B><BR>09. <B>The Cold Black</B><BR>10. <B>Wherein Lies Continue</B><BR>11. <B>Snuff</B><BR>12. <B>All Hope is Gone</B><BR><BR>Special Edition Tracks:<BR><BR>13. <B>Child of Burning Time</B> (Bonus Track)<BR>14. <B>Vermillion Pt. 2</B> (Bloodstone Mix) (Bonus Track)<BR>15. <B>Til We Die</B> (Bonus Track)<BR>16. iTunes Exclusive Track [Pre-Order Only]</P>
+Автор: Vit Belov
+
+### 24.09.2008 reviews Альтернативное мясцо
+
+<P>Скажи мне кто лет пять назад, что я буду слушать новые альбомы SLIPKNOT или SOULFLY, не поверил бы. Всем нам, металлистам, претили подобные группы, которые смешивали нашу любимую музыку с разнообразными «рэпами» и «попсой». Потом выяснилось, что и наши любимые группы не прочь поэкспериментировать с подобным звучанием. И вот, шаг за шагом, я приблизился к тому, что новый альбом знаменитых молодых американцев «All Hope Is Gone» попал в мой плэйер.</P>
+<P>Честно говоря, сходу я был поражён мощным звучанием, техничностью и брутальностью музыки группы. Проклятое понятие Nu-metal никак не вязалось в моём мозгу с этой музыкой. Что там говорить... Всем любителям thrash-death-metal явно придётся по вкусу «открывашка» с этого альбома «Gematria». Отличное соло, напор — здесь есть всё, за что мы любим подобную музыку. Такие вещи встречаются на описываемом альбоме очень часто. Некоторая «прыгучесть» материала и изредка появляющийся чистый вокал уже никого не пугают. SLIPKNOT звучат мощнее METALLICA и IN FLAMES — это точно. К сожалению, пластинка состоит не только из энергичных номеров. Есть здесь и альтернативные куски с доминирующим «чистым нытьём» и плоскими мелодиями. Эти трэки заставляют скучать, но не вызывают отвращения. Мы уже многого наслушались за последнее время от бывших монстров death-metal и thrash-metal.</P>
+<P>SLIPKNOT неожиданно порадовали. Понятно, что любителям и фанатам этой группы моё мнение неинтересно. Целью этой заметки было превлечь внимание к этой музыке фанатов ортодоксальных стилей металла, они могут найти что-то свежее и интересное в музыке SLIPKNOT.</P>
+Автор: Vit Belov
+
+### 05.01.2009 news Фронтмэн SLIPKNOT готовит сольник
+
+<P>Фронтмэн <STRONG>SLIPKNOT</STRONG> и <STRONG>STONE SOUR Corey Taylor</STRONG> хочет отдохнуть от участия в этих коллективах, выпустив сольный альбом. Музыкант подготовил около сорока песен, из которых выберет лучшие для этой пластинки. </P>
+<P>"<EM>Я хочу выпустить что-то чисто моё. В SLIPKNOT и STONE SOUR я не имею подобной творческой свободы, а здесь я могу делать всё, что захочу</EM>", - объясняет музыкант.</P>
+Автор: Vit Belov
+
+### 18.04.2009 news Новое видео SLIPKNOT
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Видео на песню <STRONG>SLIPKNOT</STRONG> <STRONG>"Sulfur" </STRONG>можно посмотреть ниже. Режиссёрами ролика выступили <STRONG>Shawn Crahan</STRONG> (a.k.a. <B>Clown</B>)&nbsp;и <B>P.R. Brown</B> (<B>M&#214;TLEY CR&#220;E</B>, <B>MARILYN MANSON</B>, <B>CHIMAIRA</B>, <B>AVENGED SEVENFOLD</B>).</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff></FONT>
+<CENTER><EMBED src=http://media.mtvnservices.com/mgid:uma:video:mtv.com:370072 width=512 height=319 type=application/x-shockwave-flash flashVars="configParams=type%3Dnormal%26vid%3D370072%26uri%3Dmgid%3Auma%3Avideo%3Amtv.com%3A370072%26startUri=mgid%3Auma%3Avideo%3Amtv.com%3A370072" allowFullScreen="true" allowScriptAccess="always" base="."></EMBED> 
+<DIV style="FONT-SIZE: 12px; MARGIN: 0px; WIDTH: 500px; FONT-FAMILY: Arial,sans-serif; TEXT-ALIGN: center"><A href="http://www.mtv.com/music/artist/slipknot/artist.jhtml" target=_blank>Slipknot</A> - <A href="http://www.mtv.com/music/" target=_blank>New Music</A> - <A href="http://www.mtv.com/music/video/" target=_blank>More Music Videos</A></DIV>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 14.04.2010 news Басист SLIPKNOT едет к нам
+
+<P><STRONG>HAIL!</STRONG> объявили имя нового басиста. Им стал <STRONG>Paul Grey</STRONG> из <STRONG>SLIPKNOT</STRONG>. Он заменил вернувшегося в <STRONG>MEGADETH David Ellefson</STRONG>. Напомним, <STRONG>HAIL!</STRONG> приедут с концертами в Россию в июне.</P>
+Автор: Vit Belov
+
+### 25.05.2010 news Умер басист SLIPKNOT
+
+<P><IMG height=500 alt="" hspace=0 src="/images/news_rus/2010.05/16758.jpg" width=332 align=right border=5>Басист<STRONG> SLIPKNOT Paul Gray</STRONG> найден мёртвым в одном из отелей города Урбандэйл, Айова. Музыканту было 38 лет. Причина смерти пока не сообщается. Вскрытие пройдёт сегодня, также станут известны результаты токсикологической экспертизы покойного. </P>
+<P>Сообщается, что <STRONG>Paul </STRONG>был женат, и в декабре прошлого года на своей <STRONG>MySpace</STRONG> страничке он сообщил, что его супруга ждёт ребёнка.</P>
+<P>В апреле этого года <STRONG>Paul Gray</STRONG> заменил в all-star проекте<STRONG> HAIL! David Ellefson</STRONG>, который вернулся в <STRONG>MEGADETH</STRONG>. <STRONG>HAIL!</STRONG> планируют тур в июне по городам России. Вопрос об отмене этих шоу пока остаётся открытым.</P>
+Автор: Vit Belov
+
+### 27.05.2010 news Отчего умер Paul Gray пока не известно
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Вскрытие умершего в понедельник басиста<STRONG> SLIPKNOT Paul Gray</STRONG> не выявило причины смерти музыканта. Пока не известны результаты токсикологической экспертизы, может понадобиться от четырёх до шести недель для определения окончательного диагноза. Известно только, что нет никаких признаков насильственной смерти.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>По сообщениям некоторых работников отеля, где было обнаружено тело <STRONG>Paul Gray</STRONG>, в его номере находилась игла для подкожных инъекций и бутылка с пилюлями. Также человек, который вызывал 911, обнаруживший музыканта, сообщил, что предположительная причина смерти передозировка наркотиков.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>HAIL!</STRONG>, в составе которой <STRONG>Paul Gray</STRONG> должен был приехать в Россию в начале лета, сообщила имя нового музыканта. Им стал <STRONG>James Lomenzo</STRONG> (ex-<STRONG>WHITE LION, OZZY OSBOURNE, BLACK LABEL SOCIETY, MEGADETH</STRONG>).</FONT></P>
+Автор: Vit Belov
+
+### 23.06.2010 news Paul Gray умер от передозировки
+
+<P>Официальные лица подтвердили, что смерть басиста <STRONG>SLIPKNOT Paul Gray</STRONG> произошла от случайной передозировки морфином и фентанилом. Музыкант также страдал болезнью сердца. </P>
+<P>Тело<STRONG> Paul Gray</STRONG> было обнаружено в гостинице 24 мая.</P>
+Автор: Vit Belov
+
+### 23.08.2010 news Выступление SLIPKNOT на фестивале &quot;Download&quot; &#39;09 выходит на DVD
+
+<P><STRONG><IMG border=0 hspace=5 alt="" vspace=5 align=right src="/images/news_rus/2010.08/17072.jpg" width=230 height=300>SLIPKNOT</STRONG> выпускают свой прошлогоднее выступление на фестивале "<STRONG>Download</STRONG>" на DVD. Тогда группа отыграла перед 80000 толпой фэнов. В диск, так же, войдёт документальный фильм о жизне группы во время турне, несколько клипов и видео о создании видео "<STRONG>Snuff</STRONG>". Релиз названный<STRONG> "(sic)nesses"</STRONG>,&nbsp;выйдет&nbsp;28 сентября на <STRONG>Roadrunner Records</STRONG>.</P>
+Автор: Headcrusher
+
+### 11.03.2011 news SLIPKNOT назвали турового басиста
+
+<P>Бас-гитаристом в ближайшем туре<STRONG> SLIPKNOT</STRONG> станет <STRONG>Donnie Steele, </STRONG>который был гитаристом в начале существования группы. Он заменит умершего в прошлом году <STRONG>Paul Gray</STRONG>. <STRONG>SLIPKNOT</STRONG> утверждают, что <STRONG>Donnie</STRONG> станет отличной заменой, так как он не чужой для коллектива.</P>
+<P><center><IMG height=338 src="/images/news_rus/2011.03/18847.jpg" width=450 border=0></P>
+Автор: Vit Belov
+
+### 27.06.2011 news Концертное видео SLIPKNOT
+
+<P>После завтра в рамках первого тура с момента смерти басиста <STRONG>Paul Gray</STRONG> Москву посетят <STRONG>SLIPKNOT</STRONG>. 24 июня группа выступила на <STRONG>Sonisphere</STRONG> фестивале в швейцарском Базеле, видео с этого выступления можно посмотреть ниже. Сэт-лист выступления:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="60">(sic)</B><BR itxtNodeId="59">02. <B itxtHarvested="0" itxtNodeId="58">Eyeless</B> <BR itxtNodeId="57">03. <B itxtHarvested="0" itxtNodeId="56">Wait and Bleed</B> <BR itxtNodeId="55">04. <B itxtHarvested="0" itxtNodeId="54">The Blister Exists</B> <BR itxtNodeId="53">05. <B itxtHarvested="0" itxtNodeId="52">Liberate</B> <BR itxtNodeId="51">06. <B itxtHarvested="0" itxtNodeId="50">Before I Forget</B> <BR itxtNodeId="49">07. <B itxtHarvested="0" itxtNodeId="48">Pulse Of The Maggots</B> <BR itxtNodeId="47">08. <B itxtHarvested="0" itxtNodeId="46">Disasterpiece</B> <BR itxtNodeId="45">09. <B itxtHarvested="0" itxtNodeId="44">Psychosocial</B> <BR itxtNodeId="43">10. <B itxtHarvested="0" itxtNodeId="42">The Heretic Anthem</B> <BR itxtNodeId="41">11. <B itxtHarvested="0" itxtNodeId="40">Duality</B> <BR itxtNodeId="39">12. <B itxtHarvested="0" itxtNodeId="38">Spit It Out</B> <BR itxtNodeId="37">13. <B itxtHarvested="0" itxtNodeId="36">People = Shit</B> <BR itxtNodeId="35">14. <B itxtHarvested="0" itxtNodeId="34">Surfacing</B></P>
+<P>Концерт <STRONG>SLIPKNOT </STRONG>состоится 29 июня в<STRONG> СК Олимпийский</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT style="WIDTH: 640px; HEIGHT: 390px"><PARAM NAME="movie" VALUE="http://www.youtube.com/v/9FwTQ02jWhg?version=3"><PARAM NAME="allowFullScreen" VALUE="true"><PARAM NAME="allowScriptAccess" VALUE="always">
+<embed src="http://www.youtube.com/v/9FwTQ02jWhg?version=3" type="application/x-shockwave-flash" allowfullscreen="true" allowScriptAccess="always" width="640" height="390"></OBJECT></CENTER>
+Автор: Vit Belov
+
+### 14.06.2012 news Новый сборник SLIPKNOT
+
+<P><IMG border=0 hspace=0 alt="" align=right src="/images/news_rus/2012.06/24173.jpg" width=475 height=475>24 июля выходит масштабный сборник <STRONG>SLIPKNOT</STRONG> <STRONG>"Antennas To Hell". </STRONG>Издание, выходящее на<STRONG> Roadrunner</STRONG>, приурочено к <STRONG>Rockstar Energy Drink Mayhem Festival </STRONG>и будет содержать бонус-диск с концертным выступлением 2009 года. Трек-лист:</P>
+<P>01. <B itxtHarvested="0" itxtNodeId="82">(sic)</B><BR itxtNodeId="81">02. <B itxtHarvested="0" itxtNodeId="80">Eyeless</B><BR itxtNodeId="79">03. <B itxtHarvested="0" itxtNodeId="78">Wait And Bleed</B><BR itxtNodeId="77">04. <B itxtHarvested="0" itxtNodeId="76">Spit It Out</B><BR itxtNodeId="75">05. <B itxtHarvested="0" itxtNodeId="74">Surfacing</B> <BR itxtNodeId="73">06. <B itxtHarvested="0" itxtNodeId="72">People = Shit</B><BR itxtNodeId="71">07. <B itxtHarvested="0" itxtNodeId="70">Disasterpiece</B><BR itxtNodeId="69">08. <B itxtHarvested="0" itxtNodeId="68">Left Behind</B><BR itxtNodeId="67">09. <B itxtHarvested="0" itxtNodeId="66">My Plague (New Abuse Mix) </B><BR itxtNodeId="65">10. <B itxtHarvested="0" itxtNodeId="64">The Heretic Anthem</B> (live)<BR itxtNodeId="63">11. <B itxtHarvested="0" itxtNodeId="62">Purity</B> (live)<BR itxtNodeId="61">12. <B itxtHarvested="0" itxtNodeId="60">Pulse Of The Maggots</B> <BR itxtNodeId="59">13. <B itxtHarvested="0" itxtNodeId="58">Duality</B> <BR itxtNodeId="57">14. <B itxtHarvested="0" itxtNodeId="56">Before I Forget</B> <BR itxtNodeId="55">15. <B itxtHarvested="0" itxtNodeId="54">Vermilion</B><BR itxtNodeId="53">16. <B itxtHarvested="0" itxtNodeId="52">Sulfur</B><BR itxtNodeId="51">17. <B itxtHarvested="0" itxtNodeId="50">Psychosocial</B><BR itxtNodeId="49">18. <B itxtHarvested="0" itxtNodeId="48">Dead Memories</B><BR itxtNodeId="47">19. <B itxtHarvested="0" itxtNodeId="46">Snuff</B> <BR itxtNodeId="45"><BR itxtNodeId="44">Bonus CD: (sic)nesses: Live At The Download Festival, 2009<BR itxtNodeId="43"><BR itxtNodeId="42">01. <B itxtHarvested="0" itxtNodeId="41">(sic) </B><BR itxtNodeId="40">02. <B itxtHarvested="0" itxtNodeId="39">Eyeless</B><BR itxtNodeId="38">03. <B itxtHarvested="0" itxtNodeId="37">Wait And Bleed</B><BR itxtNodeId="36">04. <B itxtHarvested="0" itxtNodeId="35">Get This</B><BR itxtNodeId="34">05. <B itxtHarvested="0" itxtNodeId="33">Before I Forget</B><BR itxtNodeId="32">06. <B itxtHarvested="0" itxtNodeId="31">Sulfur</B><BR itxtNodeId="30">07. <B itxtHarvested="0" itxtNodeId="29">The Blister Exists</B> <BR itxtNodeId="28">08. <B itxtHarvested="0" itxtNodeId="27">Dead Memories</B><BR itxtNodeId="26">09. <B itxtHarvested="0" itxtNodeId="25">Left Behind</B><BR itxtNodeId="24">10. <B itxtHarvested="0" itxtNodeId="23">Disasterpiece</B><BR itxtNodeId="22">11. <B itxtHarvested="0" itxtNodeId="21">Vermilion</B><BR itxtNodeId="20">12. <B itxtHarvested="0" itxtNodeId="19">Everything Ends</B><BR itxtNodeId="18">13. <B itxtHarvested="0" itxtNodeId="17">Psychosocial</B><BR itxtNodeId="16">14. <B itxtHarvested="0" itxtNodeId="15">Duality</B><BR itxtNodeId="14">15. <B itxtHarvested="0" itxtNodeId="13">People = Shit</B><BR itxtNodeId="12">16. <B itxtHarvested="0" itxtNodeId="11">Surfacing</B><BR itxtNodeId="10">17. <B itxtHarvested="0" itxtNodeId="9">Spit It Out</B></P>
+Автор: Vit Belov
+
+### 11.10.2014 news Новая музыка SLIPKNOT
+
+<P>Пятый альбом <STRONG>SLIPKNOT ".5: The Gray Chapter"</STRONG> выходит 21 октября на<STRONG> Roadrunner</STRONG>. Альбом станет первым умершего басиста<STRONG> Paul Gray</STRONG> и барабанщика <STRONG>Joey Jordison</STRONG>. Новый трек "<STRONG>Custer</STRONG>" можно послушать в клипе ниже. Трек-лист:</P>
+<P><STRONG>"XIX"<BR>"Sarcastrophe"<BR>"Aov"<BR>"The Devil In I"<BR>"Killpop"<BR>"Skeptic"<BR>"Lech"<BR>"Goodbye"<BR>"Nomadic"<BR>"The One That Kills The Least"<BR>"Custer"<BR>"Be Prepared For Hell"<BR>"The Negative One"<BR>"If Rain Is What You Want"<BR>"Override" (bonus track)<BR>"The Burden" (bonus track)</STRONG></P>
+<P>
+<CENTER><IFRAME height=360 src="//www.youtube.com/embed/FdBqOCS8LmM" frameBorder=0 width=560 allowfullscreen></IFRAME>
+<P></P></CENTER>
+Автор: Vit Belov
+
+### 02.09.2016 articles Евгений &#39;Agen Price&#39; Аксёнов: &quot;Петер из VADER так говорил: &quot;Приехав в Москву, вы можете не сходить на Красную площадь, а вот с Женей познакомиться обязаны!&quot;
+
+<p><em></em><center><em><img width="500" height="748" src="/images/articles_rus/2016.09/29910.jpg" border="0"></em><center><p></p><p><em>Продолжаем нашу рубрику, в которой беседуем с людьми так или иначе связанными с тяжёлой музыкой в нашей стране. На этот раз наш гость Евгений 'Agen Price' Аксенов, знаменитый "промоутер", один из первых металических деятелей в СССР.</em></p><p><strong>Начнём с вопроса о твоих нынешних делах. Давненько от тебя не было новостей. Совсем отошёл от металопросветительской деятельности?</strong></p><p>Можно сказать, что да. В качестве хобби издаю понемножку винил. Не так давно совместно с Beverina Productions переиздали альбом группы Alkonost "Каменного сердца кровь"... Есть планы на переиздание ещё нескольких альбомов разных групп. CD&nbsp; практически перестали продаваться, а от того и интерес к ним тоже пропал. А вот просветительскую деятельность как раз продолжаю. Часто обращаются музыканты, промоутеры, издатели с тем или иным вопросом. Помогаю чем могу, как нашим, так и иностранцам.</p><p><strong>Ну значит мы к тебе по адресу. Как ты думаешь, что наиболее актуально в тяжёлой музыке сейчас?</strong></p><p>Мне кажется, что продвинуться и подняться сейчас смогут те группы, которые в своём творчестве будут использовать синтез различных стилей и звучаний. Недавно переслушал почти все альбомы Slipknot. И что мне показалось интересным... Вроде бы ничего нового они не придумали, но использование одновременно нескольких барабанных установок, плюс перкуссия... значительно улучшают звук, делаю его ураганным, что ли... В принципе это не новое слово в музыке... много групп и раньше использовали одновременно несколько соло-гитар, но с разными партиями. Или несколько клавишных, опять же, играющих каждый свою партию. Голос опять же, давняя схема. Скажем, гроулинг+чистый вокал... Но при всем при этом, всегда впереди будут самородки, сочиняющие красивые мелодии или темы с драйвом. Всегда будут любители усложнённой музыки. Ну и первооткрыватели, само собой, всегда в чести будут. Потому что последователей всегда будут сравнивать с ними.</p><p><strong>Каких первооткрывателей ты видишь на сцене в последние годы?</strong></p><p>Я физически не имею возможности слушать всё то, что выходит в последнее время, поэтому тут сложно быть объективным. Это в 70-е годы сплошь были открытия и групп раз-два и обчелся... Сейчас в тяжелой музыке мне кажется есть некий застой. Всё, что ни выходит, так или иначе что-то напоминает, что было уже. Ну, это лично моё мнение. Может я чего-то не услышал. Более или менее оригинальными мне показались альбомы TODTGELICHTER или SOLSTAFIR... А может быть я просто ударился в эту тему... Север, холод, уныние, тоска, печалька... и т.п.</p><p><strong>А что опечалился?</strong></p><p>Я сам-то как раз не опечалился... Просто тема Севера очень притягивает... Я ведь служил там и меня всегда восхищали северные моря, фьорды, заливы, тамошняя природа, даже погода! Хотя она и очень сурова. Есть такой в нашей тусовке человек Андрей Мизери, у него свой лейбл, занимающийся нойзовой музыкой, так вот он почти каждый год ездит в Норвегию... Счастливчик! Не то, что мы... Всё по европам, да по африкам... Ну и ещё один момент... Окружение, то есть, те люди с кем ты постоянно общаешься. Так вот они тоже подсели на меланхоличную музыку, большинство конечно на ту, что полегче, типа Muse. Но вот у нас мода такая...</p><p><strong>Давай поговорим о более весёлых временах. О прошлом. Ты ведь стоял у истоков становления отечественого тяжеломузыкального бизнеса. Доволен во что вылились твои начинания?</strong></p><p>Я не думал об этом. Всё произошло как-то само собой. Ну, я конечно всегда любил тяжелый рок, но вместе с ним и весь классический рок, а потом и диско. Не особо меня впечатлили панк, да и металл, когда он только появился. Для меня это была лишь новая вывеска, ярлык, который приклеили к обычному хард-року, а к коммерции всегда есть какая-то настороженность. И только с появлением трэша, я осознал, что вот она... новая музыка, новые стили, новые горизонты... Интерес к этому всему был неимоверный. Это была уже середина, точнее вторая половина 80-х. Как раз тогда я начал активную переписку c иностранными лейблами и музыкантами. Понятное дело, что они оказали на меня большое влияние. Тем более, что помимо теории (переписки и обмена продукцией) это имело какую-то уже практическую направленность. Как-то организация собственного лейбла и обмен концертами. Они к нам, мы к ним... Первые страны, точнее люди этих стран, с которыми я завязался были Польша, Болгария, Югославия и Норвегия... В итоге, больше всего и лучше... получилось с Польшей... С остальными как-то банально и тупо прекратилось... Югославию разбомбили, в Норвегии был убит Еуронимус, с кем я вёл все дела и переписку... А Болгария просто на тот момент так и не заимела нормальных метал-групп... Может они и были, но мы друг о друге не узнали.</p><p><strong>Еуронимус? То есть если бы его Варг не замочил, поехал бы в Норвегию с Коррозией?</strong></p><p>Да, но первые гастроли, которые мы планировали провести в тогда ещё СССР... были концерты Mayhem. Во что это вылилось? У меня особо ни во что... После Союза у меня как-то всё надломилось, пропал интерес, как-то всё пошло вяло. Запала уже точно не было как раньше. Помню на Мастдае ещё, в ходе наших бурных дебатов... Лёша Ихтиандр сказал, мол, надо освобождать дорогу молодым... Я сначала всё это в штыки восприянял, а потом задумался... А ведь это правда, так и должно быть. По натуре я кустарь-одиночка, всё привык делать сам и один. Каких-то корпораций и концернов не создал... Двигать дальше тему будет просто не по силам... Да и денег таких нет, а тупо влачить какое-то невнятное существование... ну это просто не интересно... Плюс ко всему, у меня дети, внуки, семья... Надо и им внимание уделить... Всё же в следующем году мне уже будет 60... Сколько можно ещё предаваться "трэшу, угару и содомии"? Пора и остепениться... Я тогда был президентом Мытищинского рок-клуба, с Коррозией был мало знаком и у нас были свои кандидаты - Фаланга и Месса. Но первыми к нам должны были приехать норвеги.</p><p><strong>Расскажи про Петера из VADER. Вы же с ним общались. Он вон до сих пор мотается с турами по всему свету. В сентябре во Владивосток собрался. Были какие-то истории с ним связанные?</strong></p><p>Первыми в Россию из Польши приехали Magnus, потом Bloodlust и Slashing Death, в которых барабанил Доцент, вот с ним-то мы и познакомились первым из Vader. Но все приезжающие к нам поляки, и музыканты, и техники, постоянно твердили мне, что я обязательно должен пригласить Vader, мол, это новая звезда thrash'n'death metal, и что они скоро удивят всех. Что вскоре и случилось. С Петром мы реально задружились, так он оказался очень дружественным и порядочным человеком. Мы много с ним встречались на разных концертах и фестивалях в Польше, да и вообще, просто так, в тусовках, рок-магазинах, на лейблах, на радио. Он всегда спрашивал, есть ли какие проблемы и чем он может помочь. Отличный парень! На дебютном альбоме Vader, который вышел на Earache, в кредитах с благодарностью есть и моё имя. Чем я несказанно горд. Это не байка, кто хочет, может Петра спросить об этом, но приезжающим к нам музыкантам Петер так говорил: "Приехав в Москву, вы можете не сходить на Красную площадь, а вот с Женей познакомиться обязаны!"...</p><p><strong>Я тут брал у него интервью, он признавался в любви к России. Как ты думаешь не испортятся у нас отношения с польскими музыкантами из-за политики?</strong></p><p>К России кто угодно может изменить отношение, только не Петер. Я повторю, это глубоко порядочный и душевный человек. Несмотря на то, что он и сочиняет и играет брутальную музыку. Вот скажем, за Адама из Behemoth я никогда не стал бы давать каких-то гарантий. Хотя... может быть, что я просто не настолько близко его знаю. А люди все разные. Как в России, так и в Польше есть народ с разными мировоззрениями и разным воспитанием. Во всяком случае, у меня там осталось очень много друзей, которые примут меня в любой момент и окажут всяческое содействие. И второе, Петер прекрасно понимает и помнит, откуда началось триумфальное восхождение Vader на музыкальный Олимп. И все это знают, и многие в мире видели тв-кадры с полными залами, стадионами на наших фестивалях в те времена. В Европе же они тогда собирали лишь небольшие клубы.</p><p><strong>А как относишься к фактам отмены концертов у нас? Под раздачу как раз поляки попали. Адам Nergal, Батюшка.</strong></p><p>Отношусь негативно. Отмены ни к чему хорошему не приводят. Тем не менее, под раздачу попали как раз группы строящие свой имидж во многом на эпатаже. А раз ты находишься в таком состоянии и ситуации, оценивай обстановку трезво. Тем более, что в последнее время у нас сплошь крайности, что с одной, что с другой стороны. Всем нужно показать себя, либо свою силу, либо неординарность. Петя со-товарищи спокойно делает своё дело и не лезет в за...упу. Но повторюсь, сейчас в России общество крайне полярно и каждый использует любую возможность, чем и как бы насолить друг другу...</p><p><strong>То есть думаешь BEHEMOTH и Batushka в некотором роде сами виноваты?</strong></p><p>А ты считаешь нет? В Польше на Адама гонят ещё больше чем в России, за то, что он порвал библию и трезвонит об этом на каждом углу. Больше того, он стал нерукопожатным в некоторых кругах и у музыкантов. Поляки гораздо более религиозная нация, чем мы и там такое не прощают и не забывают. Батюшку же... считаю просто провокационным проектом... Хотя, на провокациях во многом построен современный шоу-бизнес...</p><p><strong>Знаю, часто ходишь на концерты и сейчас. Ностальгия мучает?&nbsp; Стадионов ведь больше не собирают.</strong></p><p>На концерты как раз хожу совсем редко. Ностальгия не то, что не мучает, её просто нет. Но с благодарностью и теплом вспоминаю те времена. Что было, то и было... Видимо такая судьба. То, что стадионы не собирают метал-группы, ну так это тоже, веяние времени. Значит так оно должно и быть. Это тем, кто бизнес на этом свой строил, можно сожалеть... А мне от этого не горячо и не холодно.</p><p><strong>Вот Круиз воссоединился. Был на концерте? Что думаешь?</strong></p><p>Был. Конечно было интересно посмотреть на них, в каком они состоянии, тонусе. Молодцы! Настоящие музыканты! Сохранили в себе задор, угар и владение инструментами. Также очень хотелось встретиться с людьми из прошлого, кого не видел уже несколько десятков лет. Общался большую часть фестиваля... Круиз конечно весь посмотрел, фрагментарно Арию, Доро, Слот, Хиппи Хаос... Хотя, есть ощущение, что время уходит. И вкусы у молодёжи стали другие... Да и вообще, как-то всё не радостно у нас... Хороших металлических журналов, как не было, так и нет. Я имею ввиду тиражные издания, чтобы в каждом киоске лежали. Как нет фестивалей подобных Вайкену, да и многим другим европейским, так и нет... И вывод из этого следует не радостный... Как не было у нас массовой культуры в металле, так её и нет... А это значит, что концерты так и будут малопосещаемыми, и диски будут продаваться мизерными тиражами. Бизнеса на этом нормально не построишь и всё будет держаться до поры до времени на плечах энтузиастов... пока и у них на это хватит сил...</p><p><strong>Печальная картина. А что думаешь о отечественной сцене? Случился какой-то качественный скачок или мы до сих пор на задворках мировой музыки?</strong></p><p>Есть хороший пример для всех нас - Аркона. Они всем показали, что наша музыка может быть на одном уровне с мировой. Просто для этого к музыкальному таланту (а у нас бескрайнее море талантов) нужно приложить самоотверженную работоспособность... Помню время, когда ещё работала старая Горбушка... Иду на свою точку и вижу, как Лазарь с Князем клеят афиши имени себя самих... они тогда презентовали свой дебютный альбом Rossomahaar... Подошёл к ним, поздоровались... Спрашиваю, а чой-то вы афиши клеите, наняли бы кого... А Лазарь и говорит, а мы, мол, всё сами, в своих руках хотим держать... Меня это просто проняло что ли, ну, говорю, молодцы, вас точно рано или поздно слава и успех найдут... Это как хороший наглядный пример... Сам для себя не сделаешь, никто для тебя особо разрываться и не будет. Так что разгонять свой паровоз всегда нужно самим, а от того, как разгонишь, так он дальше и полетит... или поедет... или остановится...</p><p><strong>Вот ты начинал почти одновременно с такими лейблами как Nuclear Blast, Century Media или там Osmose Productions, а высот подобных им так и не добился, что помешало этому?</strong></p><p>Можно конечно просто ответить... Совок и запад, разные величины, разные люди, разный менталитет, разный подход к делу, разная инфраструктура (у нас её в полном понимании, как я считаю, так и не возникло, выше уже отвечал про журналы, концерты, фестивали)... Но лично я думаю, что я просто распылил всю свою энергию, силы и средства. Вот скажем, Эдуард Ратников (глава Talent Concert International), промоутер на которого можно и нужно равняться всем. Он сосредоточился на теме, изучил опыт работы, как наш, так и зарубежный. Сделал поправки на особенности работы в странах бывшего СНГ, само собой плюс его неимоверная работоспособность и амбиции... Как итог - он и его команда лучшие в России по части организации рок-концертов. И металлических артистов, тяжелых групп и исполнителей в его бэкграунде внушительное количество. Я же взял за основу схему польских компаний Carnage Records, Morbid Moizz и конечно же Metal Mind Productions... Мне нравилось в них то, что они выполняли весь спектор работ или услуг на рынке... Прежде всего, это издание носителей - LP, CD, MC, DVD и прочее. Это и работа со своими собственными коллективами, менеджмент, букирование, организация туров и прочее... Организация своих фестивалей и издание собственных печатных изданий. У Carnage - Thrash'em All, Morbid Noizz одноимённый журнал и у Metal Mind польская версия Metal Hammer, который можно было купить в каждом газетном киоске и стоил он всего полтора доллара, при этом был великолепного цветного качества, содержал большие плакаты и на праздники CD-компиляции. Я попробовал сделать тоже самое, издавал и журналы, организовывал фестивали, продюсировал группы... И всё это требовало невообразимых затрат, сил и времени. И очень часто не приносило никакой прибыли. Так что вся эта работа была чисто подвижничеством и благотворительностью. Плюс ко всему, все кризисы которые у нас только не случались, целиком и полностью отражались на мне. И ладно бы это было так, между прочим, в процессе работы... Но нет, кризисы случались именно в тот момент, когда я форсировал свою деятельность. То есть, вкладывался в запись альбомов, съёмку клипов, в организацию больших проектов и фестивалей. Друзья уже смеясь, придумали такую феньку... мол, если Женя набрал кредитов - жди кризиса в стране... А отдавать приходилось годами... Так что богатства особого я так и не нажил...</p><p>Ещё в качестве P.S. И в заключение хочу дать один рецепт быстрого приготовления вкусняшки. Это польская запеканка. Поскольку сейчас много грибов она будет весьма кстати. Покупаем багет, желательно помягче. Режем его вдоль, отделяем верхнюю часть с корочкой. А нижнюю оставляем, она должна быть длиной 30 см. можно и больше. Сверху тонким слоем мажем томатной пастой. Заранее приготовленные грибы (их надо отварить, остудить, нашинковать помельче, а потом с лучком пережарить) накладываем на багет. Сверху посыпаем тёртым сыром и в духовку или микроволновку. 2-5 минут и у вас отличная хрустящая запеканочка! Этакая польская пица... Сейчас в Поляндии тоже с палатками идёт война, а своё время запеканки продавались на каждом шагу. Приятного аппетита!</p></center></center>
+Автор: Vit Belov
+
+### 01.10.2016 news KORN released audio clip with Corey Taylor from SLIPKNOT
+
+<p>New<strong> KORN</strong> track <strong>"A Different World</strong>" can be streamed below. In the recording vocalist of<strong> SLIPKNOT Corey Taylor</strong> took part. Song will be included in the new KORN album "<strong>The Serenity Of Suffering</strong>", which will be released this month via<strong> Roadrunner</strong>.</p><p><center><iframe width="560" height="315" src="https://www.youtube.com/embed/JAmszB9UE_4" frameborder="0" allowfullscreen></iframe></p>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 ### кто-нибудь "втыкает"  в SLIPKNOT?

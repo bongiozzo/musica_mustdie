@@ -46,6 +46,25 @@ Prado Longhi - Violin
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 28.08.2006 reviews True Metal Or True Joke
+
+<P>Первый серьезный релиз на лейбле (российском, надо отметить)&nbsp;этой итальянской команды, до этого выпустившей несколько демо-записей вызвавших фурор в андерграунде,&nbsp;и вот этот альбом, но самиздатом.&nbsp;У неподготовленного слушателя альбом может вызвать противоречивые чувства. По первым же аккордам и трек-листу сразу понятно, что музыканты - приверженцы true metal и девиза "смерть фальшивому металлу". Они не только музыкально копируют <STRONG>MANOWAR</STRONG>, но и идейно. Альбом "<STRONG>Other Bands Play ... Nanowar Gay</STRONG>" представляет собой изысканный глумёж над пластинкой "<STRONG>Fighting the World</STRONG>", причем не только в плане материала, но и в оформлении. Они нарочито передразнивают известных американцев. Чтобы понять это, достаточно взглянуть на обложку и почитать текста. Итальянцы перепели известные хиты <STRONG>MANOWAR</STRONG>, переделав лирику на свой манер. Так, на альбоме появились песни типа "<STRONG>Tricycles of Steel</STRONG>" и "<STRONG>Power of the Power of the Power (Of the Great Sword</STRONG>)". <STRONG>NANOWAR</STRONG> даже переделали фирменный боевой клич <STRONG>MANOWAR</STRONG>. А уж если присовокупить сюда и различные эффекты, типа ревущей толпы, радиоэфирных отрывков&nbsp;и откровенно тупых шуток, то становится не совсем понятно, зачем все это нужно. Причем, впоследствии, становится понятно, что они стебутся не только над <STRONG>MANOWAR</STRONG>. Под их острый топор попадают и <STRONG>IRON MAIDEN</STRONG>, и <STRONG>METALLICA</STRONG>, на которых сделаны кавера со своими юмористическими&nbsp;текстами. Досталось даже Луке Турилли, которому посвящена целая карикатурная песня. Многие называют эту команду самой смешной. Однако мне, даже при наличии чувства юмора, эта пародия не показалась особо смешной, во всяком случае, прослушивание данного альбома вызвало во мне лишь ехидную улыбку, не больше. Подобное произведение можно послушать один раз (ну от силы два), не более. Вечно смеяться над подобным не будешь. Извините, но подобный тупой юмор не по мне. Детский сад какой-то... Если уж мне и хочется веселого хэви, то я лучше послушаю <STRONG>MAGO DE OZ</STRONG> или <STRONG>TUATHA DE DANANN</STRONG>.</P>
+<P>Диск предоставлен компанией <STRONG>Mystic Empire</STRONG></P>
+Автор: Dimas
+
+### 16.10.2013 news Oktobierfest 2014
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Уже в эту субботу в московском клубе <STRONG>"Volta"</STRONG> (<A href="http://www.voltaclub.ru/">www.voltaclub.ru</A>), состоится ежегодный фестиваль <STRONG>"Oktobierfest"</STRONG>. </FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>В этом году в фестивале участвуют ирландские трэшеры <STRONG>GAMA BOMB</STRONG>, итальянские пародисты <STRONG>NANOWAR OF STEEL</STRONG> и норвежские folk/black весяльчаки&nbsp;<STRONG>TROLLFEST</STRONG>.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Более подробная информация о фестивале на сайте организатора: <A href="http://deltamekong.ru/?category=2&details=113">http://deltamekong.ru/?category=2&details=113</A></FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>А также в разделе <STRONG>Shows</STRONG> нашего сайта: <A href="/ru/shows/#69768">http://musica.mustdie.ru/ru/shows/#69768</A></FONT></P>
+<P>А пока скоротать оставшееся до фестиваля время, можно посмотрев видео-приветствие (обязательно несколько раз)&nbsp;от ансамбля <STRONG>GAMA BOMB</STRONG>, которое находится &nbsp;ниже&nbsp;в плеере.</P>
+<CENTER><IFRAME height=480 src="//www.youtube.com/embed/OTWlivfqfho" frameBorder=0 width=640 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### Oktobierfest 2013: GAMA BOMB (Ирландия), TROLLFEST (Норвегия), NANOWAR OF STEEL (Италия)

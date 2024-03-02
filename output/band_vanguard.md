@@ -20,6 +20,26 @@
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 23.03.2007 news Территория Рока №1 с участием VANGUARD
+
+<P><IMG height=283 alt="" hspace=0 src="/images/shows_rus/2007.03/11495.jpg" width=400 align=left border=5>Адрес клуба: г. Москва, проезд: Метро "СХОДНЕНСКАЯ" <BR>УЛ. СХОДНЕНСКАЯ, 54, Кинотеатр "БАЛТИКА"</P>
+<P>«VANGUARD»&nbsp; возникла в 1999 году, когда 4 музыканта нашли друг друга и решили создать что-то абсолютно новое, живое и органичное, но в то же время можное и тяжелое. В группе были задействованы&nbsp; два абсолютно разных вокалиста, а так же пианино и виолончель, что сделало музыку Vanguard поистине уникальной.<BR>Музыканты разослали демо по всему миру и тут же получили приглашение на немецкий фестиваль Wacken Open Air. Планировалось не только выступление, но и участие в конкурсе, главным призом которого был контракт с известным лейблом на запись альбома. <BR>Vanguard приняли участие в "Битве групп" и ... без труда выиграли.<BR>Так альбом SUCCUMBRA был полностью записан в Гамбурге (Германия) под руководством продюсера Ларса Ратза (Lars Ratz), а на студии Tornado был создан тот безподобный звук, комбинирующий rock’n’roll и heavy metal с красотой и загадочностью готического мира. За созданием альбома следил сам Александр Крулл (Alex Krull), хорошо известный своей работой с Atrocity, Leaves’ Eyes и Cradle of Filth.</P>
+<P>Летом 2006 новый альбом и великолепное шоу поразили мир.<BR>Теперь VANGUARD едет к нам - готовьтесь!<BR><A href="http://www.vanguard.fi/">www.vanguard.fi</A><BR><A href="http://www.myspace.com/vanguardfinland">www.myspace.com/vanguardfinland</A> </P>
+Автор: Vit Belov
+
+### 06.05.2009 news Дебютное видео VANGUARD
+
+<P>"<STRONG>Whisper</STRONG>" - дебютное видео от финнов <STRONG>VANGUARD</STRONG> можно посмотреть ниже. Песня взята с второго альбома группы "<STRONG>Hydralchemy</STRONG>", который вышел на <STRONG>Shadow World Records</STRONG>.</P>
+<P>
+<CENTER>
+<OBJECT height=344 width=425><PARAM NAME="movie" VALUE="http://www.youtube.com/v/NRG0iVRhxR0&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1"><PARAM NAME="allowFullScreen" VALUE="true">
+<embed src="http://www.youtube.com/v/NRG0iVRhxR0&color1=0xb1b1b1&color2=0xcfcfcf&feature=player_embedded&fs=1" type="application/x-shockwave-flash" allowfullscreen="true" width="425" height="344"></embed></OBJECT>
+<P></P></CENTER>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

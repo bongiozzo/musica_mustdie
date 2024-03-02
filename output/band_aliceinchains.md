@@ -163,6 +163,168 @@ Recorded At Bad Animals, Seattle.
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 21.02.2001 news Кандидат в басисты Metallica
+
+<p>По сообщению сайта heavymetal.tqn.com самым реальным кандидатом на вакантное место в Металлика является Mike Inez из Alice In Chains.</p>
+
+Автор: Yermola
+
+### 21.02.2001 news Metallica bass player
+
+<p>heavymetal.tqn.com are reporting that Alice In Chains bassist Mike Inez is a frontrunner for the Metallica bass player position.</p>
+
+Автор: Yermola
+
+### 09.04.2001 news Новый проект...
+
+<p>Экс участники "ALICE IN CHAINS", "SPONGE" и "QUEENSRYCHE" создали новый проект - "SPYS4DARWIN" (Интересно, Чарльз Дарвин, что ли?). Ритм секция - Sean Kinney (барабаны) и Mike Inez (басс), вокал - Vin Dombroski и гитара - Chris DeGarmo. Группа уже записала шестипесенный ЕР "Microfish" который скоро будет доступен через Pied Viper label. Микширование проходило в сиэтлской Studio X, на разные кнопочки нажимал Adam Kasper (FOO FIGHTERS, SOUNDGARDEN).</p>
+
+Автор: Yermola
+
+### 09.04.2001 news SPYS4DARWIN.....
+
+<p>More information has surfaced about SPYS4DARWIN, the new project consisting of the ALICE IN CHAINS rhythm section Sean Kinney (drums) and Mike Inez (bass), ex-SPONGE vocalist Vin Dombroski, and ex-QUEENSRYCHE guitarist Chris DeGarmo. According to sources, the group’s recently-recorded debut EP, entitled Microfish, will initially be available only via the band’s official web site, but will shortly thereafter find its way into stores on the Pied Viper label. The EP's six tracks were reportedly mixed at Seattle's Studio X, with Adam Kasper (FOO FIGHTERS, SOUNDGARDEN) twisting the knobs. A full-length album is expected to come out later this year.</p>
+
+Автор: Yermola
+
+### 05.10.2001 news Деградационное путешествие Джэрри Кантрелла...
+
+<p>Гитарист "ALICE IN CHAINS" - Jerry Cantrell подписал сделку на выпуск своего сольника "Degradation Trip, Vol. 1 and 2". Продюссировал релиз Toby Wright, а участвовали как музыканты: барабанщик Mike ("FAITH NO MORE"/"KORN") и бассист Роберт Трухильо ("OZZY"/ex-"SUICIDAL TENDENCIES"). Трек-лист: Disc One 01. Psychotic Break 02. Bargain asement Howard Hughes 03. Owned 04. Angel Eyes 05. Solitude 06. Mother Spinning In Her Grave 07. Hellbound 08. Spiderbite 09. Profalse Idol 10. Feel The Void 11. Locked On 12. Gone Disc Two 01. Castaway 02. Chemical Tribe 03. What It Takes 04. Dying Inside 05. Siddhartha 06. Instrumental 07. She Was My Girl 08. Pig Charmer 09. Anger Rising 10. SOS 11. Give It A Name 12. Thanks Anyway 13. B1/32. Из других новостей гитарист согласился поиграть с командой "COMES WITH THE FALL" на концерте в лос-анджелесском El Rey Theater 9-го октября посвященном трагедии в Нью-Йорке...</p>
+
+Автор: Yermola
+
+### 05.10.2001 news ALICE IN CHAINS guitarist Jerry Cantrell has yet to secure a deal ...
+
+<p>Despite reports to the contrary, former ALICE IN CHAINS guitarist Jerry Cantrell has yet to secure a deal for the release of his long-completed sophomore solo offering, Degradation Trip, Vol. 1 and 2, making it unlikely that the recordings will see the light of day until March at the earliest. Produced by Toby Wright and featuring performances by former FAITH NO MORE/KORN drummer Mike Bordin and OZZY/ex-SUICIDAL TENDENCIES bassist Robert Trujillo, the follow-up to 1998’s Boggy Depot will tentatively contain the following track listing: <br> Disc One <br> 01. Psychotic Break <br> 02. Bargain Basement Howard Hughes <br> 03. Owned <br> 04. Angel Eyes <br> 05. Solitude <br> 06. Mother Spinning In Her Grave <br> 07. Hellbound <br> 08. Spiderbite <br> 09. Profalse Idol <br> 10. Feel The Void <br> 11. Locked On <br> 12. Gone<br><br> Disc Two <br> 01. Castaway <br> 02. Chemical Tribe <br> 03. What It Takes <br> 04. Dying Inside <br> 05. Siddhartha <br> 06. Instrumental <br> 07. She Was My Girl <br> 08. Pig Charmer <br> 09. Anger Rising <br> 10. SOS <br> 11. Give It A Name <br> 12. Thanks Anyway <br> 13. B1/32. <br><br> In other Cantrell news, the guitarist has agreed to perform with Atlanta’s COMES WITH THE FALL (who toured with Cantrell earlier in the year) at the latter group’s appearance at the El Rey Theater in Los Angeles on Tuesday, October 9th to benefit the victims of the recent tragedy in New York City. According to an official statement from CWTF, Cantrell has “expressed a strong desire to learn some of the new songs from the forthcoming CWTF album, so, in what may prove to be a once-in-a-lifetime event, we will be performing material off of both The Year Is One and Degradation Trip in one continuous set as one band!! Should be a memorable evening indeed. We hope all of you on this end of the country will be able to join us in the names of all who died, all who are missing, and all of us who are still here, lucky enough to be able to enjoy all the pleasures and possibilities life has to offer…". Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 28.03.2002 news Скончался RANDY CASTILLO
+
+<P>Скончался барабанщик Рэнди Кастилло, участник проектов OZZY OSBOURNE/MOTLEY CRUE. Причина смерти &ndash; та же, что и у Чака Шульдинера &ndash; рак. До самой смерти Castillo работал над новым проектом с ex-ALICE IN CHAINS бассистом Mike Inez. </P></>
+<P>Карьера Кастилло начиналась в 1984 году с Литой Форд (альбом Dancin' On The Edge), после которого он был барабанщиком OZZY OSBOURNE на пяти альбомах: 1986 &ndash; Ultimate Sin, 1989 &ndash; No Rest For The Wicked, 1990 &ndash; Just Say Ozzy, 1991 &ndash; No More Tears и 1993 &ndash; Live & Loud. </P></>
+
+Автор: Yermola
+
+### 28.03.2002 news Randy Castillo reportedly passed away....
+
+<P>Former OZZY OSBOURNE/MOTLEY CRUE drummer Randy Castillo reportedly passed away yesterday due to complications stemming from his long-running battle with cancer. Castillo was 51 years old. </P></>
+<P> </P></>
+<P>MOTLEY CRUE bassist Nikki Sixx posted the following message at www.motley.com following Randy's death: “You used to joke around with me all the time, saying that we had 'dented halo's'. I'll miss you my friend, and I love you.” </P></>
+<P> </P></>
+<P>Prior to his passing, Castillo was reportedly working with ex-ALICE IN CHAINS bassist Mike Inez and an undisclosed guitarist in a new project, which was in the process of writing music and checking out prospective singers. </P></>
+<P> </P></>
+<P>It was only this past November that Castillo proclaimed himself to be “100% back, strong & kicking” in an interview posted at CRUE's official web site. The drummer seemed to be particularly excited about the new band and called the experience of working with Inez “very refreshing and satisfying”. </P></>
+<P> </P></>
+<P>Castillo's recording career began with the 1984 LITA FORD album Dancin' On The Edge, after which the drummer joined OZZY OSBOURNE for a total of five albums—1986's Ultimate Sin, 1989's No Rest For The Wicked, 1990's Just Say Ozzy, 1991's No More Tears, and 1993's Live & Loud. </P></>
+<P> </P></>
+<P>Castillo underwent emergency surgery after suffering a ruptured stomach ulcer in the weeks following the completion of the most recent MOTLEY CRUE album, 2000's New Tattoo. He was subsequently replaced in CRUE's touring line-up by HOLE drummer Samantha Maloney. </P></>
+<P> </P></>
+<P>Randy learned that he had cancer shortly after the above-mentioned operation, and immediately began an intensive radiation-and-chemotherapy program. Subsequent messages from Castillo indicated that his condition was improving, with one such posting, back in April of 2001, stating in no uncertain terms that the drummer had "won the battle against the big C!" </P></>
+<P> </P></>
+<P>Rest in peace, Randy. You will be missed. </P></>
+
+Автор: Yermola
+
+### 30.04.2002 articles Цепь порвалась...
+
+<p>Умер Лэйн Стэйли – очередная жертва рок-н-ролла наркотикам. 19 апреля вокалист великолепной сиэтлской группы ALICE IN CHAINS был найден мертвым у себя дома. Тело пролежало в квартире несколько дней и начало разлагаться, так что сразу же было невозможно опознать личность. И вот теперь судмедэксперты дали однозначный ответ и назвали причину смерти – передозировка героина. Банальный финал для гениальной группы.</p>
+<p>ALICE IN CHAINS называли одним из столпов гранжа наравне с NIRVANA и SOUNDGRADEN, хотя на самом деле группа в узкий формат жанра не вписывалась. Великолепная смесь блюза, хэви-метал, нового тяжелого звука и модных веяний, мрачная атмосфера, ревущая гитара Джерри Кантрелла и пробирающий до печенок голос Стэйли – благодаря этой формуле "Алиса в цепях" достигла платиновых тиражей за пару лет, а Ларс Ульрих из METALLICA назвал их "величайшей группой со времен BLACK SABBATH". В 1991 году группа была номинирована на "Грэмми", песня "We Die Young" ("Мы умрем молодыми") вошла в пятерку лучших рок-композиций года, а клип на песню "Man In The Box" продержался 26 недель в TOP 20 MTV. И тогда же появились слухи – мол, петь столь мрачную музыку без наркотиков невозможно, тем более, что в некоторых песнях затрагивалась тема наркотиков.</p>
+<p><I>Лэйн Стэйли: "Ненавижу, когда люди подходят ко мне и спрашивают – завишу ли я от наркотиков. Эй, вы что - идиоты? Это мое личное дело!"</I></p>
+<p>Карьера группы шла в гору до 1996 года: дебютник "Facelift" становится золотым, альбом 1992 года "Dirt" добирается до отметки в два миллиона экземпляров, а последний полноформатный диск группы "Alice In Chains", выпущенный в 1995 году, набирает платину менее чем за год. И тогда же группа впадает в кому – увлечение Лэйна Стэйли и Джерри Кантрелла наркотиками достигло апогея. Однако если Катрелл сумел-таки завязать и взялся за запись сольного альбома, то Стэйли ни о чем и слышать не хотел.</p>
+<p><I>Филип Ансельмо, PANTERA: "Ему не хватало воли, чтобы бросить. Я прошел через тот же ад, но в конце концов смог перебороть это пристрастие. Он знал о клиниках, где ему могли бы помочь завязать с этим, но Лэйн так и не решился встать на этот трудный путь".</I></p>
+<p>Фактически, это был финал всей группы – за последующие несколько лет ALICE IN CHAINS записали лишь две новые песни, "Died" и "Get Born Again". Стэйли несколько раз обращался в наркологические клиники, делал заявления о своем возвращении к работе, но каждый раз возвращался к очередной порции героина. "Когда я начал употреблять наркотики, они были великолепны и несколько лет все было прекрасно. Теперь все обернулось против меня, я иду через ад. Не хочу, чтобы мои фанаты думали, что героин – это круто. Да, было время, фэны после концертов сами приносили мне чертов порошок, но теперь я меньше всего на свете хочу этого".</p>
+<p>С тех пор Лэйна периодически хоронили – в Интернете стала регулярно появляться информация о том, что он умер от СПИДа, героина, погиб в автокатастрофе и т.д. Самого Стэйли это только смешило: "Однажды прямо на улице какая-то девчонка, увидев меня, застыла на месте с ужасом на лице – "Я прочла, что ты мертв". Да нет, говорю, я почему-то все еще жив!".</p>
+<p>Буквально несколько недель назад Джерри Кантрелл заявил, что готов забросить все свои сольные проекты и вновь заняться работой в ALICE IN CHAINS. Басист Майк Инез также завершил свою работу с Оззи Обсорном и был готов вернуться в группу – дело было только за Лейном. Однако вместо ответа все услышали в новостях сообщение о мертвом теле, обнаруженном в квартире Стэйли, а спустя неделю экспертиза идентифицировала труп. Грязная и жирная точка в истории одной из лучших групп 90-х.</p>
+<p> <I>Дон Йеннер, председатель Columbia Records Group: "Голос Лэйна, его стихи и само его присутствие делали группу неповторимой. НО теперь не остается ничего иного, как выражать соболезнования родственникам Лэйна, его друзьям и миллионам фанатов во всем мире. Мы все потеряли талантливого музыканта и великолепного друга".</I></p>
+<p>На прошедшей неделе друзья Лэйна, музыканты из SOUNDGARDEN, PEARL JAM, NIRVANA, участники ALICE IN CHAINS и просто фанаты собрались в парке в центре Сиэтла и провели ночь прощания – при этом никто не говорил о том, что Лэйн стал легендой и ушел в бессмертие. Все знали, что героин разорвал ему душу и уничтожил плоть. И все говорят о том, что, быть может, теперь он в мире с самим собой.</p>
+<p><I>Лэйн Стэйли: "Не судите меня по моим порокам. Пусть моя сила и мой талант говорят за себя". "Наркотики – не путь к свету и они не ведут к сказочной жизни. Это страдание, страдание и страдание".</I></p>
+
+Автор: Tornado
+
+### 21.06.2002 articles 2 месяца прошло со дня смерти Лэйна Стэйли.
+
+<p>2 месяца прошло со дня смерти Лэйна Стэйли, поистине великого музыканта, а все музыкальные издания как будто намеренно обошли стороной это событие, лишь упомянув об этом вскользь. А жаль. <BR><BR> “I think it’s gonna rain when I die…” <BR> Лэйн Стэйли (Alice in chains)<BR><BR> 22 апреля 2002 года весь день лил дождь. В этот день от передозировки наркотиками умер один из ведущих рок-вокалистов 90-х – лидер Alice in chains Лэйн Стэйли. <BR><BR> Alice in chains не очень известны широкой музобщественности России, и, наверное, не всем известно , что эта группа является одним из родоначальников “сиэтловского” гранжа. В США же AIC получили статус культовой группы практически сразу после выхода их первого альбома “Facelift” в ’90 г. После выхода в ’92 г. второго альбома “Dirt”, и по сей день считающимся лучшей работой коллектива, AIC по популярности в Америке можно было сравнить пожалуй только что с Nirvana и Pearl Jam. Но вот сравнивать звучание AIC со звучанием какой-либо другой группы бесполезно – сиэтловцы изобрели свой собственный стиль, который выходит далеко за рамки обычных представлений о гранже: это сочетание заводных металло-кантри-блюзовых риффов Джерри Кантрелла(ныне одного из влиятельнейших рок-гитаристов Америки) , массы неожиданных переходов и мелодичных соло, тяжёлых роковых композиций и тихих проникновенных акустических баллад.<BR> Но главным оружием в арсенале AIC всё-таки следует считать уникальные вокальные данные Лэйна Стэйли. Его редкий по тембру голос может заворожить даже далёких от тяжёлой музыки людей; услышав раз этот волшебно вибрирующий, надрывающийся, резкий и в то же время нежный, искренний вокал, хочется слушать его ещё и ещё…Альбом за альбомом Стэйли не прекращал удивлять своих поклонников невообразимыми вокальными партиями и своими “чокнутыми” текстами: за грустным, спокойным вокалом акустических “Jar of flies” и ”Sap” последовал резкий, “индустриальный” вокал на последнем студийном альбоме группы ’95 года. <BR><BR> О наркозависимости Стэйли публично стало известно ещё в ’96 – тогда врачам еле-еле удалось вывести его из клинической смерти. В этом же году был дан и последний живой концерт AIC – произошло это на MTV Unplugged. С тех пор о судьбе Лэйна не было известно абсолютно ничего, ходили слухи, что он проходит лечение в наркологической клинике, но не более того. За этот шестилетний период официально были выпущены целых 3 «новых» альбома AIC (все три можно с уверенностью назвать сборниками “Best of…”)и сольный альбом гитариста Кантрелла. <BR><BR> И вот, 22 апреля 2002 года, родственники вокалиста обнаружили уже остывшее тело Стэйли в его собственном доме. Причиной смерти явилась передозировка наркотиками(это была смесь из кокаина и героина, как показало вскрытие).<BR><BR> Следует ли проводить параллели между смертью Стэйли и самоубийством Кобэйна?<BR> Думаю, нет, уж слишком мало общего было между двумя этими личностями. <BR> Однако обидно, что смерть музыканта, по таланту, может быть, даже превосходившего Кобэйна, была практически проигнорирована СМИ, в то время как самоубийство Кобэйна было воспринято как всеобщая человеческая трагедия. Думаю, причина этого заключается в том, что Кобэйн ушёл на пике своего творчества, Стэйли же покинул нас после продолжительной борьбы с наркозависимостью, когда даже многие поклонники забыли о его существовании. <BR><BR> Со смертью гениального вокалиста Лэйна Стэйли, которому в этом году должно было исполниться всего лишь 35 лет, можно констатировать и смерть гранжа как музыкального стиля. Аминь. <BR><BR> Обязательно послушайте Alice in chains, если до сих пор вам не удалось сделать этого – не пожалеете.</p>
+
+Автор: Natural born loser
+
+### 01.07.2002 news ALICE IN CHAINS, PANTERA, NICKELBACK, DEFAULT members discuss possible collaboration...
+
+<p>Former ALICE IN CHAINS guitarist Jerry Cantrell, PANTERA guitarist Dimebag Darrell, NICKELBACK guitarist/singer Chad Kroeger, and DEFAULT frontman Dallas Smith have had reportedly had discussions about a future all-star collaboration. However, the combo hasn't gotten past the talking stage, according to Cantrell. <BR> <BR> "Chad and I have talked about doing something, but we haven't really taken it any further than that," said the guitarist. "So, of course I'd love to do something with Darrell, anytime."</p>
+
+Автор: Natural born loser
+
+### 23.03.2006 news Участники фестиваля Graspop Metal Meeting
+
+<P>С 23-го по 25-е июня в Десселе, Бельгия, пройдет фестиваль <B>Graspop Metal Meeting</B>. В данном шоу примут участие как монстры мировой тяжелой сцены, так и&nbsp;менее известные группы. Расписание выступлений пока такое:</P>
+<P>23 июня:</P>
+<P><B>WHITESNAKE, LACUNA COIL, SATYRICON, MICHAEL SCHENKER GROUP, MOONSPELL, EVERGREY, EDGUY, TRIVIUM, Y&T, LEAVES' EYES, LEATHERWOLF, THE GATHERING, COJIRA, SOILWORK, 36 CRAZYFISTS</B></P>
+<P>24 июня:</P>
+<P><B>GUNS N' ROSES, KORN, SOULFLY, OPETH, MY DYING BRIDE, NILE, OBITUARY, ALICE IN CHAINS, THE NEW YORK DOLL'S, STONE SOUR, BULLET MY VALENTINE, DEICIDE, AKERCOCKE, BLOODSIMPLE, THE DATSUNS</B></P>
+<P>25 июня:</P>
+<P><SPAN class=txt><SPAN class=txt><B>MOTORHEAD, SAXON, CRADLE OF FILTH, IN FLAMES, HELLOWEEN, ARCH ENEMY, AFTER FOREVER, EXODUS, ARMORED SAINT, AGNOSTIC FRONT,&nbsp;DEVIL DRIVER, AS I LAY DYING, IGNITE, DRAGONFORCE,&nbsp;ENSIFERUM, MACHINE MEN</B></SPAN></SPAN></P>
+Автор: Ixtiandr
+
+### 11.04.2009 news ALICE IN CHAINS сводят альбом
+
+<P><STRONG>ALICE IN CHAINS</STRONG> заняты сведением нового альбома. Это будет первый диск без погибшего от наркотиков оригинального вокалиста <STRONG>Layne Staley. </STRONG>Лидер коллектива гитарист <STRONG>Jerry Cantrell</STRONG>&nbsp;утверждает, что новый материал звучит по-новому, но каждый узнает <STRONG>ALICE IN CHAINS</STRONG>. </P>
+<P>Певцом в группе является <STRONG>William DuVall, </STRONG>который занял это место после воссоединения коллектива в 2005 году.</P>
+Автор: Vit Belov
+
+### 12.06.2009 news ALICE IN CHAINS назвали альбом
+
+<P>Первый за десять лет новый альбом<STRONG> ALICE IN CHAINS</STRONG> будет называться <STRONG>"Black Gives Way To Blue" </STRONG>и выйдет 29 сентября на<STRONG> Virgin</STRONG>.</P>
+Автор: Vit Belov
+
+### 15.08.2009 news Новости от ALICE IN CHAINS
+
+<P><STRONG><IMG height=400 alt="" hspace=5 src="/images/news_rus/2009.08/14816.jpg" width=400 align=right vspace=5 border=0>ALICE IN CHAINS</STRONG> обнародовали обложку нового альбома <STRONG>"Black Gives Way To Blue"</STRONG>, который выйдет 29 сентября. Альбом станет первой работой группы за более чем десятилетний период молчания&nbsp;и первой с новым вокалистом <STRONG>William DuVall</STRONG>. В записи заглавной песни принял участие <STRONG>Elton John</STRONG>.</P>
+<P>Трэк-лист альбома:</P>
+<P>01. <STRONG>All Secrets Known</STRONG><BR>02. <STRONG>Check My Brain</STRONG><BR>03. <STRONG>Last Of My Kind</STRONG><BR>04. <STRONG>Your Decision</STRONG><BR>05. <STRONG>A Looking In View<BR></STRONG>06. <STRONG>When The Sun Rose Again</STRONG><BR>07. <STRONG>Acid Bubble</STRONG><BR>08. <STRONG>Lessons Learned</STRONG><BR>09. <STRONG>Take Her Out</STRONG><BR>10. <STRONG>Private Hell</STRONG><BR>11. <STRONG>Black Gives Way To Blue</STRONG></P>
+Автор: Headcrusher
+
+### 07.10.2009 news ALICE IN CHAINS в пятёрке!!!
+
+<P>Новый альбом <STRONG>ALICE IN CHAINS</STRONG> <STRONG>"Black Gives Way To Blue" "</STRONG>взломал" пятёрку чартов <STRONG>Billboard</STRONG>. Их первый альбом за 14 лет продался в первую неделю в США тиражом 126000 экземпляров. Больше продали только релизы от <STRONG>PARAMORE</STRONG>, <B itxtvisited="1">MARIAH CAREY</B>, <B itxtvisited="1">BARBRA STREISAND</B>&nbsp;и <B itxtvisited="1">BREAKING BENJAMIN. </B></P>
+Автор: Vit Belov
+
+### 02.12.2010 news Номинанты &quot;Грэмми&quot; за этот год
+
+<P><IMG height=299 alt="" hspace=0 src="/images/news_rus/2010.12/17727.jpg" width=400 align=right border=0>Объявлены номинанты музыкальной премии<STRONG> "Грэмми"</STRONG> за 2010 год. 53 церемония вручения наград состоится 13 февраля 2011 года в <STRONG>Staples Center</STRONG> в Лос-Анджелесе. </P>
+<P>На звание лучшей 'hard-rock' команды претендуют следующие&nbsp;песни и исполнители:</P>
+<P>* <B>ALICE IN CHAINS</B> - "A Looking In View" (from "Black Gives Way to Blue")<BR>* <B>OZZY OSBOURNE</B> - "Let Me Hear You Scream" (from "Scream")<BR>* <B>SOUNDGARDEN</B> - "Black Rain" (from "Telephantasm")<BR>* <B>STONE TEMPLE PILOTS</B> - "Between The Lines" (from "Stone Temple Pilots")<BR>* <B>THEM CROOKED VULTURES</B> - "New Fang" (from "Them Crooked Vultures")</P>
+<P>На премию в категории "метал" номинированы:</P>
+<P>* <B>IRON MAIDEN</B> - "El Dorado" (from "The Final Frontier")<BR>* <B>KORN</B> - "Let The Guilt Go" (from "Korn III: Remember Who You Are")<BR>* <B>LAMB OF GOD</B> - "In Your Words" (from "Wrath")<BR>* <B>MEGADETH</B> - "Sudden Death" (from "Guitar Hero: Warriors Of Rock")<BR>* <B>SLAYER</B> - "World Painted Blood" (from "World Painted Blood")</P>
+<P>На заветный "граммофон" могут претендовать исполнители, выпустившие новую музыку с 1 сентября 2009 года по 30 сентября 2010 года.</P>
+Автор: Vit Belov
+
+### 08.01.2013 news ALICE IN CHAINS: новая песня &quot;Hollow&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Группа <STRONG>ALICE IN CHAINS</STRONG> работает над своим новым, пока безымянным полноформатником, который должен увидеть свет летом этого года. А пока можно послушать песню под названием <STRONG>"Hollow"</STRONG>, которая войдёт в этот самый альбом.</FONT></P>
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Данный диск станет вторым по счёту&nbsp;записанным с новым вокалистом Вильямом ДюВаллом&nbsp;(<STRONG>William DuVall</STRONG>).</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/1tmbv9ePGQo" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+### 25.03.2013 news Название, обложка и трек-лист пятого студийного альбома ALICE IN CHAINS
+
+<P>Новый альбом <STRONG>ALICE IN CHAINS</STRONG>, получивший&nbsp;название <STRONG>"The Devil Put Dinosaurs Here"</STRONG>, выйдет 14 мая&nbsp;на лейбле <STRONG>Virgin</STRONG>.</P>
+<P>Клип на первую песню с альбома, трек <STRONG>"Hollow"</STRONG>, можно посмотреть по ссылке: <A href="http://youtu.be/hmSeWqmlqYs">http://youtu.be/hmSeWqmlqYs</A></P>
+<P>Обложку альбома можно увидеть ниже.</P>
+<P>Трек-лист: 01. <STRONG>Voices</STRONG> | 02. <STRONG>Low Ceiling</STRONG> | 03. <STRONG>Stone</STRONG> | 04. <STRONG>The Devil Put Dinosaurs Here</STRONG> | 05. <STRONG>Hollow</STRONG> | 06.<STRONG> Lab Monkey</STRONG> | 07. <STRONG>Hung On A Hook</STRONG> | 08. <STRONG>Pretty Done</STRONG> | 09. <STRONG>Breath On A Window</STRONG> | 10. <STRONG>Choke</STRONG> | 11. <STRONG>Phantom Limb</STRONG></P>
+<P>
+<CENTER><IMG border=0 src="/images/news_rus/2013.03/25568.png" width=475 height=475> 
+<P></P></CENTER>
+Автор: Headcrusher
+
+### 14.05.2013 news ALICE IN CHAINS: клип на песню &quot;Stone&quot;
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Клип на трек <STRONG>"Stone"</STRONG> группы <STRONG>ALICE IN CHAINS</STRONG>, можно посмотреть ниже. Песня вошла на новый альбом <STRONG>ALICE IN CHAINS</STRONG> под названием "<STRONG>The Devil Put Dinosaurs Here"</STRONG>, который выходит 28 мая.</FONT></P>
+<CENTER><IFRAME height=315 src="http://www.youtube.com/embed/9KmYFY5oOvM" frameBorder=0 width=560 allowfullscreen></IFRAME></CENTER>
+Автор: Headcrusher
+
+
 ## Обсуждения
 
 ### ALICE IN CHAINS Frontman Passes Away

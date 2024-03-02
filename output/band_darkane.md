@@ -125,6 +125,183 @@ Jens Broman - Vocals
 * C группой "The Defaced" Klas Ideberg
 * C группой "Terror 2000" Klas Ideberg
 
+## Публикации
+
+### 22.11.2000 news Завершена запись нового альбома Darkane.
+
+<p>Новый альбом Darkane под названием "Insanity" увидит свет 26-ого февраля 2001 года. Общая реакция музыкальных критиков - "Insanity" лучше, чем предыдущий "Rusted Angel", быстрее, более брутальный и вместе с тем более мелодичный. На одной из песен нового альбома - "Psychic Pain" исполнил убийственное соло гитарист Fredrik Thordendal из Meshuggah.</p>
+
+Автор: Morsus
+
+### 22.11.2000 news The recording of new Darkane album is finished.
+
+<p>The new Darkane album is entitled "Insanity", it will be released Feb 26th 2001. The general reaction from the journalists was that "Insanity" is better than "Rusted Angel", faster, more brutal and also more melodic. The guitarist Fredrik Thordendal of Meshuggah has recorded a killer guest solo on one song of the new Darkane album, called "Psychic Pain".</p>
+
+Автор: Morsus
+
+### 29.05.2001 news Новый шведский проект THE DEFACED....
+
+<p>Богатая на таланты Швеция разродилась новым проектом "THE DEFACED". В состав вошли барабанщик "SOILWORK" Henry Ranta и гитарист "DARKANE" Klas Ideberg (оба они также участвовали в дебютнике "Slaughterhouse Supremacy" команды TERROR 2000). В Октябре в Европе появится первый альбом "Domination Commence", японский релиз выйдет на месяц раньше и будет иметь бонус "When The Levee Breaks" - LED ZEPPELIN. Стиль группы обещает быть смесью между MACHINE HEAD, MESHUGGAH и TESTAMENT.</p>
+
+Автор: Yermola
+
+### 29.05.2001 news Sweden&#39;s THE DEFACED....
+
+<p>Sweden's THE DEFACED, featuring SOILWORK drummer Henry Ranta and DARKANE guitarist Klas Ideberg (both of whom were also involved with the TERROR 2000 debut album Slaughterhouse Supremacy), are due to release their first album, entitled Domination Commence, in Europe in October, while the Japanese release is scheduled for September and will include as a bonus track the group's cover of LED ZEPPELIN's "When The Levee Breaks". THE DEFACED's musical style is being described as "an incredible thrash-tornado mixing influences from early MACHINE HEAD, MESHUGGAH and TESTAMENT." Source: BLABBERMOUTH.NET</p>
+
+Автор: Yermola
+
+### 10.10.2001 reviews Полное Безумие!
+
+<p>Новый альбом шведских дэтстеров в первую очередь поражает своей совершенно безумной обложкой, которая полностью соответствует названию диска. На обложке изображено некоторое подобие человеческой головы, собранной из разных кусков, и при этом подвергшейся невообразимым мутациям. Альбом начинается с психоделического симфонического интро, с хоровым пением. Материал, представненный на Insanity в целом похож на предыдущий альбом группы - это смесь мелодичного дэта с трэшем, истеричный вокал, замороченные партии соло-гитары. Музыка быстрая, злая, бескопромиссная! Несомненно, на новом альбоме Darkane выросли и в исполнительском и в композиционном плане. Как нельзя лучше подобрано название диска - Insanity - психологическая тематика песен, в сочетании с совершенно безумной, агрессивной музыкой. Музыкантам удалось вырваться за рамки традиционного мелодик-дэта. Их музыка немного напоминает сегодняшний Soilwork или The Crown, с небольшим индустриальным оттенком. Отличает Darkane разнообразное использование вокальных эффектов, подпевок. Их музыка будет сложна для восприятия тем, кто любит жвачку типа In Flames, зато может понравится любителям эксперименов типа Девина Таунсенда. Сейчас сложно сказать, будет ли этот релиз раскупаемым - это покажет время. Но то, что Insanity заслуживает внимания - это однозначно!</p>
+
+Автор: Vic Thor
+
+### 31.03.2002 news Подарочек ко дню рождения Ильича
+
+<p>К 132 годовщине со дня рождения великого пролетарского вождя Владимира Ильича Ульянова-Ленина, шведские комсомольцы-трэшеры TERROR 2K приготовили зубодробильный привет-подарочек Ильичу под названием 'Faster Disaster'. <BR> Официальный трэклист утренника : Back With Attack, Formula Flame Feast, Headrush, Infernal Outlaw, Burn-Out In Blood, Faster Disaster, Menace Of Brutality, Stalkers In The Night, I'm Speed At Night, Killing Machine. Японский вариант 'Faster Disaster' будет содержать бонустрэк 'Mental Machinery' (Live). Итак, по заверениям подпольной молодёжной организации Scarlet Records - земля задрожит 22 апреля 2002 года.</p>
+
+Автор: ZYKLON
+
+### 27.05.2002 news Раскрывающиеся чувства...
+
+<p>Шведы "DARKANE" равершили работу над третьим полноформатником Expanding Senses. Альбом выйдет в августе на Nuclear Blast Records. Список песен: <BR><BR> 01. Innocence Gone<BR> 02. Solitary Confinement<BR> 03. Fatal Impact<BR> 04. Imaginary Entity<BR> 05. Violence from Within<BR> 06. The Fear of One's Self<BR> 07. Chaos vs Order<BR> 08. Parasites of the Unexplained<BR> 09. Submission<BR> 10. Growing Hate (японский бонус трек)<BR><BR> "Expanding Senses" записывался в течении трех месяцев с продюссерами Daniel Bergstrand и Оrjan Оrnkloo (ex-MISERY LOVES CO.). В качестве гостя участвовал вокалист SEETHINGS - Lawrence Mackrory, он спел на треке "Chaos vs Order".</p>
+
+Автор: Yermola
+
+### 27.05.2002 news DARKANE: &quot;Expanding Senses&quot; Full Track Listing Unveiled .....
+
+<p>Sweden's DARKANE have completed work on their third full-length album, entitled Expanding Senses, for an August 18th release through Nuclear Blast Records. The final track listing for the effort is as follows: <BR><BR> 01. Innocence Gone<BR> 02. Solitary Confinement<BR> 03. Fatal Impact<BR> 04. Imaginary Entity<BR> 05. Violence from Within<BR> 06. The Fear of One's Self<BR> 07. Chaos vs Order<BR> 08. Parasites of the Unexplained<BR> 09. Submission<BR> 10. Growing Hate (Japanese bonus track)<BR><BR> Recorded over a three-month period by Daniel Bergstrand and co-producer Цrjan Цrnkloo (ex-MISERY LOVES CO.), Expanding Senses includes a guest appearance by former singer Lawrence Mackrory (SEETHINGS), who shares lead vocals with current frontman Andreas Sydow in the track "Chaos vs Order".</p>
+
+Автор: Yermola
+
+### 07.01.2003 reviews Странный европейский металл
+
+<p>Индустриальный звук сразу же вызовет аллергию у любителей старого доброго металла. Не советую выключать проигрыватель, то, что Вы услышите весьма занимательно. Сразу же снимаю с этой группы обвинения в Nu-metal'личности, скорее это thrash-metal нового поколения с вкраплениями миллиона различных стилей и направлений. Классифицировать довольно сложно, но какую-то общую для всех песен схему проследить удалось. Начинается всё обычно со злобного или безнадёжного риффа, которым Вас активно вгоняют в транс, при сумасшедшем крике вокалиста. Приготовившись слушать прямолинейный thrash, Вы сильно удивляетесь, когда на подходе к припеву слышите солирующуи гитару (respect to cоло-гитарист) или некое подобие шведского мелодичного death-metal. В припеве Вы можете услышать чуть ли не powerные распевки. А уж совсем впадёте в транс, почувствовав чуткую doomовую акустическую гитару в одной из песен. Остаётся только выразить своё мнение, некоторые песни очень хороши, другие чуть похуже. Вопрос только в том, проростут ли эти идеи в сердце слушателя, или он будет напуган сумасшедшей микстурой. Действительно, расширенные чувства.</p>
+
+Автор: Vit Belov
+
+### 08.01.2003 reviews Strange Europian metal
+
+<p>Industrial sound calls allergy for lovers of old kind metal quickly. I don't advise to put CD off. It will be very interesting. I can't tell, that this band plays Nu-metal, I think, style is new wave of thrash metal with addings from different styles. I can't classify, but i can paint common scheme for this music. In the begining it is wicked or hopelessness thrash riff, which drive in trance with crazy shout of singer. Are you ready to straightforward thrash-metal? Heh you will be surprised by solo-guitar (respect to guitarist) and likeness of swedish melodic death metal. In refrain you can listen to 'power' singings. I can only say my opinion. Some songs is very good, some is worse. Will ideas grow in the hearts of listeners? That's the question. Or will listener be frightened by this crazy mixture. That is really expanding sences!!!</p>
+
+Автор: Vit Belov
+
+### 22.09.2003 news Solo album from DARKANE guitarist ...
+
+MESHUGGAH bassist Gustaf Hielm, DARKANE drummer Peter Wildoer and THE DEVIN TOWNSEND BAND/GOD AWAKENS PETRIFIED drummer Ryan Van Poederooyen will be contributing to the forthcoming solo album from DARKANE guitarist Christofer Malmstr&ouml;m, tentatively due sometime in 2004. "I'm very excited to be involved in this project," Van Poederooyen said. "Christofer and I got in contact thru the band PREACHER who I recorded drum tracks for earlier this year. PREACHER has Christofer doing a guest guitar solo on their 'soon-to-be-completed' album, he heard my drumming, checked out my website and we got in contact. The rest is history." <br><br>
+
+The as-yet-untitled album, for which Van Poederooyen is currently writing the drum parts, will feature Wildoer on vocals rather than in his traditional drummer role. "This guy has a wicked voice," said Ryan.
+Автор: Yermola
+
+### 24.09.2003 news Соло-проект участника DARKANE
+
+<B>NON-HUMAN LEVEL</B> так будет называться группа, которую сколотил гитарист <B>DARKANE Christofer Malmstr&ouml;m</B>. Также участвуют: басист <B>MESHUGGAH Gustaf Hielm</B>, барабанщик <B>DARKANE Peter Wildoer</B> (он будет петь) и барабанить будет <B>Ryan Van Poederooyen (THE DEVIN TOWNSEND BAND/GOD AWAKENS PETRIFIED).</B> <B>Ryan</B> в сообщении на своём сайте обещает тотальное безумие и очень навороченную музыку.
+Автор: Vit Belov
+
+### 15.10.2003 news DARKANE finished video-clip
+
+<SPAN lang=EN-GB><B><IMG height=132 alt="" hspace=0 src="/images/news/2003.10/5085.jpg" width=200 align="left" border=0>DARKANE</B> just finished the video clip for „<B>Chaos vs. Order</B>”. Ex-vocalist <B>Lawrence Mackrory (Seethings</B>) is featured with a guest appearance, besides the clip will feature excerpts from different gigs such as the Sweden rock festival and the Rock Hard festival. Besides, <B>DARKANE</B> will be on tour with <B>Death Angel, Disbelief, Mnemic and Mystic Prophecy</B> to take a break from the recordings to their fourth album.</SPAN>
+Автор: Vit Belov
+
+### 19.10.2003 news DARKANE in Europe
+
+<SPAN lang=EN-GB>03.11.2003 PARIS - La Locomotive ( F) <BR>04.11.2003 LONDON - Underworld ( UK) <BR>06.11.2003 AMSTERDAM - Melkweg ( NL) <BR>07.11.2003 GRONINGEN - Vera ( NL) <BR>08.11.2003 VOSSELAAR - Biebob ( BL) <BR>09.11.2003 DEN BOSCH - Willem II ( NL) <BR>11.11.2003 ESSEN - Zeche Carl ( D) <BR>12.11.2003 MUNSTER(BREITEFELD) - Live Arena ( D) <BR>13.11.2003 SALZBURG - Rockhouse ( A) <BR>14.11.2003 BUDAPEST - Mega Club ( H) <BR>15.11.2003 LJUBLJANA - K4 ( SLO) <BR>16.11.2003 MILANO - Transilvania ( ITA) <BR>17.11.2003 PRATTELN - Z7 ( CH) <BR>18.11.2003 OSNABRUCK - Works ( D) </SPAN>
+Автор: Vit Belov
+
+### 15.11.2003 news Новый видеоклип DARKANE
+
+<P><B>DARKANE</B> закончили съемки видеоклипа на песню <B>"Chaos vs. Order"</B>. В новом видео можно увидеть ex-вокалиста группы <B>Lawrence Mackrory</B>, а также фрагметны различных выступлений, как, например, рок-фестиваль в Швеции и Rock Hard festival. <B>DARKANE</B> вскоре отправятся в турне с <B>DEATH ANGEL</B>, <B>DISBELIEF</B>, <B>MNEMIC</B> и <B>MYSTIC PROPHECY</B> для того, чтобы отдохнуть перед записью их четвертого альбома.</P>
+Автор: Darkfall
+
+### 19.11.2003 news Готов новый альбом IN FLAMES
+
+<P>Последователем релиза 2002 года <B>"Reroute To Remain"</B> станет новый полноформатник шведов <B>"Soundtrack To Your Escape"</B>. Он был записан в студии в Дании вместе с продюсерами <B>Daniel Bergstrand</B> (<B>DARKANE</B>, <B>MESHUGGAH</B>, <B>STRAPPING YOUNG LAD</B>) и <B>Orjan Ornkloo</B> (ex-<B>MISERY LOVERS CO.</B>) и смиксован в <B>Galaxy Studios</B> в Бельгии (<B>IRON MAIDEN</B>, <B>MANOWAR</B>, <B>RAMMSTEIN</B>). Мастеринг альбома будет проходить в <B>Cutting Room</B> в столице Швеции, Стокгольме.<BR><BR>Трэк-лист:<BR><BR>01. <B>F(r)iend</B><BR>02. <B>The Quiet Place</B><BR>03. <B>Borders And Shading</B><BR>04. <B>Discover Me Like Emptiness</B><BR>05. <B>Touch Of Red</B><BR>06. <B>Bottled</B><BR>07. <B>Dead Alone</B><BR>08. <B>Superhero Of The Computer Rage</B><BR>09. <B>Like You Better Dead</B><BR>10. <B>Dial 595-Escape</B><BR>11. <B>Evil In A Closet</B><BR>12. <B>In Search For I</B><BR>13. <B>My Sweet Shadow</B><BR><BR>Европейский релиз альбома состоится 29 марта 2004 года на <B>Nuclear Blast Records</B>.</P>
+Автор: Darkfall
+
+### 28.11.2003 news Переиздания классиков шведского death black metal
+
+<P><LABEL id=HbSession SessionId="1740891749">Лэйбл Regain Records приготовил подарок всем любителям шведятины. Компания выпустила шесть классических альбомов шведских групп, выпускавших альбомы на WAR Music в девяностых годах.</LABEL></P>
+<P><LABEL SessionId="1740891749"><B>Naglfar - Diabolical<BR></B>Ремастированная версия второго альбома группы 1998 года. Классический black death metal.<BR><B>Darkane - Rusted Angel</B><BR>Ремастированная версия дебюта группы 1998 года с тремя бонус-трэками. Техничный и мелодичный death metal. </LABEL></P>
+<P><LABEL SessionId="1740891749"></LABEL><LABEL SessionId="1740891749"><B>Carnal Forge - Whos Gonna Burn</B><BR>Ремастированная версия дебютного альбома группы 1998 года. <BR><B>Defleshed - Fast Forward</B><BR>Третий альбом шведов в ремастированном виде с четырьмя бонус-трэками. <BR><B>Dimension Zero - Penetrations from the Lost World</B><BR>Переиздание мини-альбома 1997 года, с семью бонус-трэками, среди которых две студийные нереализованные вещи и пять концертных, записанных в ходе японского тура 2002 года. .<BR><B>Eucharist - Mirrorworlds</B><BR>Ремастированный второй альбом 1997 года пионеров Swedish melodic death metal.</LABEL></P>
+<P><LABEL SessionId="1740891749"></LABEL>&nbsp;</P>
+<P><LABEL SessionId="1740891749">В нашем разделе mp3 можно ознакомиться с некоторыми песнями с этих альбомов.<BR>Есть надежда, что все эти альбомы выйдут по лицензии на российский рынок.</P></LABEL>
+Автор: Dimas
+
+### 07.09.2004 news DARKANE начинают запись
+
+<P><STRONG>DARKANE </STRONG>начинают запись нового альбома 1 октября. Пластинка выйдет в начале следующего года на <STRONG>Nuclear Blast</STRONG>.</P>
+Автор: Vit Belov
+
+### 07.09.2004 news DARKANE begin to record
+
+<P>Swedish thrashers <B>DARKANE</B> will enter the studio October 1 to begin recording the follow-up to 2002's <B>"Expanding Senses"</B>, tentatively due in early 2005 through <B>Nuclear Blast Records</B>. In other news, the band are scheduled to play this year's <B>Aalborg</B> festival, set to take place November 5-6 at Studenterhuset in Aalborg, Denmark. Other acts confirmed for the festival include <B>ZYKLON</B>, <B>HEAVEN SHALL BURN</B>, <B>PRIMAL FEAR</B>, <B>SCARVE</B>, <B>THE DEFACED</B>, <B>WITHERING SURFACE</B>, <B>JERKSTORE</B> and <B>VOLBEAT</B>.<BR></P>
+Автор: Vit Belov
+
+### 27.01.2005 news Новый альбом DARKANE
+
+<P><STRONG>DARKANE</STRONG> сейчас заняты записью вокала для нового альбома. Половина работы уже завершена. Новый альбом будет называться <STRONG>'Layers Of Lies'</STRONG>. Вот названия нескольких трэков: <STRONG>'Secondary Effect'</STRONG>, <STRONG>'Fading Dimensions'</STRONG>, <STRONG>'Organic Canvas'</STRONG>, <STRONG>'The Creation Insane</STRONG>', <STRONG>'Layers Of Lies'</STRONG>.</P>
+Автор: Vit Belov
+
+### 27.01.2005 news DARKANE: name of new album arrived
+
+<P><STRONG>DARKANE</STRONG> hardly work on new album. Here is press-statement from the band:</P>
+<P>"<EM>So far six songs out of ten are done with vocals. A bit more than half of the guitar solos are also to be recorded. Just came back from a meeting about shooting a new video for a track called <STRONG>'Secondary effect'</STRONG>. The video team will start working asap.</EM></P>
+<P><EM>So far we've decided to call the new CD:<STRONG>&nbsp;'Layers Of Lies'</STRONG></EM></P>
+<P><EM>Some song titles: <STRONG>'Secondary Effect', 'Fading Dimensions', 'Organic Canvas', 'The Creation Insane', 'Layers Of Lies'.</STRONG></EM></P>
+<P><EM>Stay metal</EM></P>
+<P><EM>Peter</EM>".</P>
+Автор: Vit Belov
+
+### 04.05.2005 news DARKANE готовы к выходу альбома
+
+<P>Новый альбом <STRONG>DARKANE</STRONG> "<STRONG>Layers Of Lies</STRONG>" выходит 27 июня на <STRONG>Nuclear Blast</STRONG>. Трэк-лист:</P>
+<P><IMG height=200 alt="" hspace=0 src="/images/news_rus/2005.05/8402.jpg" width=200 align=right border=5>01. <STRONG>Amnesia of the Wildoerian Apocalypse</STRONG><BR>02. <STRONG>Secondary Effects<BR></STRONG>03. <STRONG>Organic Canvas<BR></STRONG>04. <STRONG>Fading Dimensions<BR></STRONG>05. <STRONG>Layers of Lies<BR></STRONG>06. <STRONG>Godforsaken Universe</STRONG><BR>07. <STRONG>Klastrophobic Hibernation</STRONG><BR>08. <STRONG>Vision of Degradation<BR></STRONG>09. <STRONG>Contaminated<BR></STRONG>10. <STRONG>Maelstrom Crisis<BR></STRONG>11.<STRONG> Decadent Messiah<BR></STRONG>12. <STRONG>The Creation Insane</STRONG></P>
+Автор: Vit Belov
+
+### 18.04.2008 news DARKANE сводят новый альбом
+
+<P><FONT style="BACKGROUND-COLOR: #000000" color=#ffffff>Шведский thrash-death metal коллектив&nbsp; <STRONG>DARKANE</STRONG> приступил к сведению своего нового альбома под названием "<STRONG>Demonic Art</STRONG>". Он был записан с новым вокалистом группы<STRONG> Jens Broman</STRONG> (<STRONG>CONSTRUCDEAD</STRONG>, <STRONG>THE DEFACED</STRONG>). Релиз запланирован на конец года через <STRONG>Nuclear Blast Records</STRONG>. В альбом войдут следующие композиции:<BR>1.&nbsp;<B>Variations of an Eye Crush</B> (intro)<BR>2.&nbsp;<B>Still in Progress</B><BR>3.&nbsp;<B>Leaving Existence</B><BR>4.&nbsp;<B>Exectution 44</B><BR>5.&nbsp;<B>The Killing of I</B><BR>6. <B>Sole Survivor</B><BR>7.&nbsp;<B>Absolution</B><BR>8.&nbsp;<B>Wrong Grave</B> (instrumental)<BR>9.&nbsp;<B>Wrath Connection</B><BR>10.&nbsp;<B>Demigod</B><BR></FONT></P>
+Автор: Dimas
+
+### 02.09.2008 news DARKANE на Massacre
+
+<P><STRONG>DARKANE</STRONG> подписали контракт с <STRONG>Massacre Records</STRONG> на выпуск нового альбома "<STRONG>Demonic Art</STRONG>". Пластинка увидит свет 24 октября. Трэк-лист:</P>
+<P>1. <STRONG>Variations Of An Eye Crush</STRONG> (instrumental) <BR>2.<STRONG> Leaving Existence</STRONG><BR>3. <STRONG>Demonic Art</STRONG><BR>4.<STRONG> Absolution</STRONG> <BR>5. <STRONG>Execution <BR></STRONG>6. <STRONG>Impetious Constant Chaos</STRONG><BR>7.<STRONG> Demigod</STRONG><BR>8. <STRONG>Soul Survivor</STRONG><BR>9. <STRONG>The Killing of I<BR></STRONG>10. <STRONG>Wrong Grave</STRONG> (instrumental) <BR>11. <STRONG>Still In Progress<BR></STRONG>12. <STRONG>Wrath Connection</STRONG><BR>13. <STRONG>Reborn In Greed</STRONG> (bonus)</P>
+Автор: Vit Belov
+
+### 25.12.2008 reviews DARKANE продолжают эксперименты
+
+<P>Шведы DARKANE стартовали на волне увлечения публикой вариациями на тему modern-death-metal на базе творчества знаменитой шведской группы MESHUGGAH. Разнообразные композиции, рваные риффы, запрограммированное безумие. Не сказать, что DARKANE обрели дикую популярность, мода на подобную музыку быстро прошла, но в узких кругах шведы приобрели некоторый статус.</P>
+<P>Мода прошла, modern death-metal теперь всё чаще называют metalcore, фэны предпочитают либо что-то мелодичное, либо что-то брутальное. Progressive, одним из жанров которого безусловно являлась и музыка, предпочитаемая DARKANE, остался вотчиной избранных, как это всегда и было. Теперь и DARKANE изменились. На новом альбоме “Demonic Art” группа дала сильный крен в сторону thrash-metal. При этом их thrash-metal нельзя относить к классике стиля, скорее, в нём есть черты thrash-metal середины 90-х, когда многие группы безуспешно искали, чего бы нового добавить в сформировавшееся звучание. У некоторых получалось. Среди них PANTERA, MACHINE HEAD и даже KREATOR. Некоторые же играли нечто современное, не попадающее ни под какие определения и, главное, не несущее в себе никакого смысла. Зато энергичное и донельзя тупое. Вот и на новом DARKANE за основу взято нечто подобное. В группе появился новый вокалист – певец CONSTRUCDEAD. Он чутко уловил потребности покупающей диски публики. Его пение живо мне напомнило творчество James Hetfield на последнем “Death Magnetic”. Эдакий, недоSLAYER. Разбавлено всё это безумие чистоголосыми партиями в духе современного IN FLAMES. Судите сами, новое ли это слово в стиле, или просто попытка выделиться звучанием, замаскировав таким образом творческое бессилие.</P>
+<P>DARKANE продолжают работать на стыке многих стилей, выдавая непредсказуемый результат. Вот только в этот раз их попытки показались мне не слишком успешными.</P>
+Автор: Vit Belov
+
+### 05.01.2009 news DARKANE обещают новый альбом быстрее
+
+<P>После возвращения из американского тура вместе с <STRONG>WARBRINGER, SWALLOW THE SUN</STRONG> и <STRONG>SOILWORK</STRONG> гитарист <STRONG>DARKANE</STRONG> <STRONG>Christofer Malmstrom </STRONG>рассказал о ближайших планах своей группы. В частности, он пообещал, что поклонникам не придётся ждать новую пластинку три года.</P>
+Автор: Vit Belov
+
+### 19.02.2009 news Продажи DARKANE в США
+
+<P>Опубликованы данные о продажах нового альбома <STRONG>DARKANE</STRONG> "<STRONG>Demonic Art</STRONG>" в США в первую неделю. Продалось 600 копий этогго альбома.</P>
+Автор: Vit Belov
+
+### 08.08.2011 news DARKANE поменяли вокалиста
+
+<P>Шведы <STRONG>DARKANE</STRONG> объявили о возвращении своего бывшего вокалиста <STRONG>Lawrence Mackrory</STRONG>, который пел на дебюте группы <STRONG>"Rusted Angel"</STRONG> (1999). Это случилось после того, как коллектив покинул <STRONG>Jens Broman </STRONG>по личным мотивам<STRONG>. </STRONG></P>
+<P><center><STRONG><IMG height=499 src="/images/news_rus/2011.08/20498.jpg" width=351 border=0></STRONG></P>
+Автор: Vit Belov
+
+### 07.09.2013 reviews Пять лет безмолвия не сделали ожидания горячими
+
+<P><SPAN class=tit3>Objective</SPAN>: Ещё одна группа, вернувшаяся из небытия. Пять лет прошло с последнего студийного альбома этого коллектива <STRONG>“Demonic Art</STRONG>”. В то время музыкальная карьера <STRONG>DARKANE</STRONG> зашла в некий тупик. Стал популярным коллектив на<STRONG> Nuclear Blast</STRONG>, тогда группа пыталась подражать старшим товарищам из <STRONG>MESHUGGAH</STRONG>. DARKANE представляли некую ‘MESHUGGAH для бедных’ – не слишком сложные ритмические структуры, не слишком заумные мелодические ходы, но всё-таки не IN FLAMES и не <STRONG>SOILWORK</STRONG>. В принципе сейчас множество американских групп играют подобную музыку, но для DARKANE началась новая жизнь с понижением до <STRONG>Massacre Records</STRONG>. “<STRONG>The Sinister Supremacy</STRONG>” – второй альбом музыкантов для этого немецкого лэйбла. От былых амбиций не осталась и следа. Теперь DARKANE не мучают себя и других, а играют modern melodic death-metal.</P>
+<P><SPAN class=tit3>Subjective</SPAN>: Подобный ход кажется логичным, так как эксперименты DARKANE с ломанным звучанием нельзя назвать успешными по прошествии декады. Альбомы, вышедшие в начале прошлого десятилетия, никак не отнесёшь к классике стиля. Более того, за пять лет о DARKANE стали уже и забывать, и выход обозреваемой пластинки не взорвал информационное пространство. Новый альбом очень качественный, музыканты видно матёрые, а это, пожалуй, главное для групп калибра DARKANE.</P>
+<P><SPAN class=tit3>Goods</SPAN>: В Северной Америке этот альбом вышел на<STRONG> Prosthetic records</STRONG>. Digi-pack версия содержит два бонуса. В России альбом издали<STRONG> Mazzar</STRONG>, бонусов на этом издании нет.</P>
+<P><SPAN class=tit3>Conclusion</SPAN>: Грамотный альбом от подзабытой группы. В коллекцию любителям тяжёлой музыки, но отнюдь не шедевр.</P>
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

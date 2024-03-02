@@ -21,6 +21,34 @@ thrash from Poland
 ## Отношения с другими группами
 
 
+## Публикации
+
+### 13.12.2002 reviews Конец европейского трэша...
+
+<p>Не стоит надеяться на возрождение былой славы европейского thrash-metal. Практически не осталось команд, которые предтавляли бы стиль в его первородном виде. Данная польская группа представляет собой то, что сейчас называют thrash. Музыка с большой примесью stoner-rock и death-metal... Подобный "трэш" можно слышать на некоторых альбомах Dismember и Carcass. Правда в отличии от этих монстров Mess Age не поражают фантазию разнообразием риффов. Стоит отметить, что работа очень качественная и не лишена очарования. Также на одной песне засветился вокалист Behemoth Нергал. Всё вместе, это делает возможным оценить "Self-convicted" хорошо. Советую всем любителям энергичной музыки и хорошего настроения...</p>
+
+Автор: Vit Belov
+
+### 13.12.2002 reviews The end of European thrash-metal...
+
+<p>It is not necessary to hope for revival old glory of European thrash-metal. Practically there was no bands, which play in style in it first-borned kind. The given Polish group represents that we name thrash now. Music with the large impurity of stoner-rock and death-metal... Similar "thrash" it is possible to hear on some albums by Dismember and Carcass. The truth as against these monsters Mess Age do not amaze imagination with a variety of riffes. It is necessary to note, that the work is very qualitative and is not deprived of charm. Also on one song vocalist of Behemoth Nergal sings. Everything together, it makes possible to estimate "Self-convicted" as well. I advise to all fans of vigorous music and good mood...</p>
+
+Автор: Vit Belov
+
+### 24.04.2003 news Mess Age has a new bassist
+
+<p>Andzej "Gruby" Osmaіek has left Mess Age. The band has already found the new member, which is Artur "Marysia" Olkowicz who is a former member of Oblivion and Ad Noctum. Here is the info concerning shifts in the band sent to us by the drummer Dominik "Otwieracz" Koіodziejczak: "After five years of playing Andrzej Osmaіek left our band. As the decision of his move he claimed a lack of motivation for further creating music. Artur "Mary¶" Olkowicz took his place in Mess Age. He is our friend from non existing Oblivion. Also he used to play in Ad Noctum and we think he's going to share his experience and skills with us. We're going to check out the new bass player during the european tour in June. We thank Andrzej for five years of playing together with us and for everything he's done for us. We wish him all the best with his new band."</p>
+
+Автор: Vit Belov
+
+### 01.06.2003 news MESS AGE and YATTERING European Tour 2003
+
+<p>MESS AGE as support for YATTERING European tour 2003;</p>
+<P> 20/06 GLASGOW (UK) - Strawberry fields, 56 Oswald St.<BR> 21/06 BRADFORD (UK) - RIOS<BR> 22/06 TBA - are you interestintg to do it?<BR> 23/06 LONDON (UK) - The VERGE + as support DAM, BRAINCHOKE<BR> 24/06 TBA - are you interestintg to do it?<BR> 25/06 TBA - are you interestintg to do it?<BR> 26/06 Gent - Frontline (Belgique)<BR> 27/06 Metz - Ochs (France)<BR> 28/06 Columbey - Yukon (Suisse)<BR> 29/06 T.B.A<BR> 30/06 Paris - Pйniche Blues cafй with Slavery (to be comfirmed)<BR> 01/07 Rouen - Calif with Erektion - Birth decline<BR> 02/07 Cherbourg with Carnal Lust - Chainsaw holocaust -Dawn of sorrow<BR> 03/07 Bordeaux - Koslow with Iost - Obscurantis order<BR> 04/07 Toulouse with Internal Suffering - Sanatorium<BR> 05/07 Saint Paul Trois Chвteaux - Nuclear Fest with Gojira- Furia - Aquilon - Grimlord</p>
+
+Автор: Vit Belov
+
+
 ## Обсуждения
 
 

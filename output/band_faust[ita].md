@@ -29,6 +29,9 @@
 * C группой "Charred Walls Of The Damned" Steve DiGiorgio (bass)
 * C группой "Dragonlord" Steve DiGiorgio (bass)
 
+## Публикации
+
+
 ## Обсуждения
 
 
